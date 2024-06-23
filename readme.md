@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Friendly Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-friendly.techidaily.com](https://fox-friendly.techidaily.com)
 
 ## Publish
 
