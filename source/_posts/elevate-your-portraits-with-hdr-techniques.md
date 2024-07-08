@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your Portraits with HDR Techniques"
-date: 2024-06-22T08:26:28.605Z
-updated: 2024-06-23T08:26:28.605Z
+date: 2024-07-07T11:40:40.680Z
+updated: 2024-07-08T11:40:40.680Z
 tags: 
   - screen-recording
   - ai video
@@ -147,9 +147,9 @@ HDR portraits are way better than conventional portrait images as they bring out
 
 It is not as difficult as it seems to shoot an HDR portrait. We have made it as simple as we can for you people. So go outside and try this fantastic genre of photography, explore the limits of your camera and create some striking HDR portraits.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 How to Shoot HDR Portraits?
 
@@ -263,9 +263,9 @@ HDR portraits are way better than conventional portrait images as they bring out
 
 It is not as difficult as it seems to shoot an HDR portrait. We have made it as simple as we can for you people. So go outside and try this fantastic genre of photography, explore the limits of your camera and create some striking HDR portraits.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"

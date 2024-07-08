@@ -1,7 +1,7 @@
 ---
 title: "\"Fiscally-Friendly Action Footage Gear for 2024\""
-date: 2024-06-22T07:59:33.546Z
-updated: 2024-06-23T07:59:33.546Z
+date: 2024-07-07T11:40:38.698Z
+updated: 2024-07-08T11:40:38.698Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571
 
 ## Top 10 Cheap/Budget Friendly Action Cameras
 
-#### 1\. [Xiaomi Yi Action Camera ($79.99):](<https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a>)
+#### 1\. Xiaomi Yi Action Camera ($79.99):
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a)
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571
 
  Kodak offers a waterproof, rugged, dustproof and shock proof companion for athletes and adventure lovers. It can be easily used in rough weather conditions as well as under water. You will be able to capture still images with 12MP clarity whereas for videos it offers 720p HD quality. 2X digital zoom is one more advanced feature and the convenient advanced batteries assist users to enjoy long hour recording with ease.
 
-#### 3\. [Polaroid XS 100 ($99.99)](<https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f>)
+#### 3\. Polaroid XS 100 ($99.99)
 
 [Cheap Action Cameras - Polaroid XS 100](https://images.wondershare.com/filmora/article-images/Polaroid-XS-100-Extreme.jpg) ](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571
 
  Here is a lightweight solution for your action camera needs as its maximum weight goes up to 136grams. The video resolution offers by Polaroid is 1080p Full HD with the maximum storage capacity of 32GB. You can also enjoy the slow motion coverage with this device on 720p HD footage. This tube shaped device can be easily mounted anywhere and the auto rotate feature make it more suitable for adventure sports activities.
 
-#### 4\. [SJCAM SJ5000 ($99)](<https://www.amazon.com/gp/product/B00SUSLF8U/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00SUSLF8U&linkId=c6770a92f2510eb912a222add74cdf5c>)
+#### 4\. SJCAM SJ5000 ($99)
 
 [Cheap Action Cameras - PSJCAM SJ5000](https://images.wondershare.com/filmora/article-images/sjcam-sj5000.jpg) ](https://www.amazon.com/gp/product/B00SUSLF8U/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00SUSLF8U&linkId=c6770a92f2510eb912a222add74cdf5c)
 
