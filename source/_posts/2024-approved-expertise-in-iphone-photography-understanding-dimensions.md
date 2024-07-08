@@ -1,0 +1,124 @@
+---
+title: "\"2024 Approved  Expertise in iPhone Photography  Understanding Dimensions\""
+date: 2024-06-29T13:20:05.011Z
+updated: 2024-06-30T13:20:05.011Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes 2024 Approved: Expertise in iPhone Photography: Understanding Dimensions\""
+excerpt: "\"This Article Describes 2024 Approved: Expertise in iPhone Photography: Understanding Dimensions\""
+keywords: "IPhone Photo Expertise,Photography Techniques iPhone,IPhone Photos Understanding,Mastering iPhone Photography,IPhone Camera Dimension Knowledge,Expert iPhone Image Capture,Photographic Insights iPhone"
+thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a96b142f6b85654b12ef9f8e.jpg
+---
+
+## Expertise in iPhone Photography: Understanding Dimensions
+
+# How to Resize Photos on an iPhone
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The size of an image is directly related to its quality, and most iPhones produce large photo files that occupy a lot of space. If you have no intention of printing your pictures, resizing pictures you store on your iPhone can help you save a lot of space on your SD card.
+
+ In this article, we will take you through several methods of resizing photos on an iPhone that will help you store more photos on your iOS device.
+
+## How to Reduce the Size of A Photo on iPhone
+
+* [Method 1: Resizing photos via Email](#part1)
+* [Method 2: Using apps to resize your photos](#part2)
+
+### Method 1: Resizing photos via Email
+
+ This process may not be the fastest way imaginable to change the size of your images, but it still effective.
+
+ Simply select the pictures you want to resize in the Photos app and click share, or if you have an iPhone 7 click on the Action icon. The Mail app will allow you to choose one of the Small, Medium, Large and Actual Size presets, and after you selected the option that best fits your needs, tap the Send button to send the resized images to your email.
+
+![](https://images.wondershare.com/filmora/article-images/resize-iphone-photo-via-email.jpg)
+
+ Image source: OS X Daily
+
+ Despite being relatively easy, this method of resizing images doesn't allow you to enter the new size of a photo manually which may limit your options.
+
+### Method 2: Using apps to resize your photos
+
+ Even though apps for iPhones that allow you to resize your photos require you to spend some money, this method is still much more effective than resizing images via email.
+
+#### 1\. Image Size
+
+![](https://images.wondershare.com/filmora/article-images/image-size-app.jpg)
+
+ iPhone photographers can resize their photos in three simple steps with this app. The Image Size app is free to download but if you want to get rid of the adds you must pay $3,99\. However, all you need to do to change the size of an image with this app is to open the photo you want to resize and select the output size. Removing the parts of the image is made possible by the Cropping tool so you can even decide which parts of the photo you want to remove. Once you've completed the process of resizing the picture you can choose whether you want to Save, Send or Share your photo.
+
+#### 2\. PhotoShrinker
+
+![](https://images.wondershare.com/filmora/article-images/photo-shrink-app.jpg)
+
+ There aren't many better options for resizing images with an iPhone because this powerful tool allows you to change the size of an image within seconds. PhotoShrinker automatically compresses the photo to one-tenth of its original size, which means that you can free up a lot of space if you choose to invest $3,99 in this app. The latest version of the app also enables you to delete photos you don't like, but its users shouldn't count on it for any other kind of photo editing activity.
+
+#### 3\. Reduce
+
+![](https://images.wondershare.com/filmora/article-images/reduce-image-size-app.jpg)
+
+ Reduce app is a powerful image resize tool that allows you to change the size of several pictures at the same time. Besides the batch resizing feature the app also allows its users to resize the picture to specific dimensions or sharpen the image that has been slightly blurred by the resizing process. Reduce is equipped with an auto-detection option which recognizes the jpeg quality for the file size in question. Furthermore, the app lets you add a border to your photos in order to separate it from the background.
+
+### Conclusion
+
+ Preserving the quality of your photos is important and for that reason, you should only use methods of resizing photos on your iPhone that allow you to produce good images, regardless of their size. Using apps to resize photos may cost you some money, but it will provide you with powerful tools that will allow you to have control over the photo resizing process.
+
+ Let us know in the comments which method of changing the size of a photo you like the most and feel free to hit share and let your friends know about these remarkably simple methods of resizing pictures on an iPhone.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-high-quality-360-cameras-for-youtube-and-facebook-coverage/"><u>In 2024, High-Quality 360° Cameras for YouTube & Facebook Coverage</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/engage-and-captivate-with-these-top-tier-unpacked-vids-for-2024/"><u>Engage and Captivate with These Top-Tier Unpacked Vids for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-hilarityhub-online-tool-for-funny-image-crafting/"><u>[New] 2024 Approved  HilarityHub  Online Tool for Funny Image Crafting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-expert-tips-building-meme-foundations/"><u>In 2024, Expert Tips  Building Meme Foundations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-elite-photography-narrative-assembler-kit/"><u>2024 Approved  Elite Photography Narrative Assembler Kit</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-techniques-to-increase-periscope-stream-velocity/"><u>2024 Approved  Techniques to Increase Periscope Stream Velocity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-canon-camera-insights-for-stunning-time-lapse-vids/"><u>2024 Approved  Canon Camera Insights for Stunning Time-Lapse Vids</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-enhancing-your-video-conferencing-essential-tips-for-using-zoom-in-win10/"><u>2024 Approved  Enhancing Your Video Conferencing  Essential Tips for Using Zoom in Win10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-becoming-an-expert-at-using-zoom-for-your-windows-pc-win10/"><u>2024 Approved  Becoming an Expert at Using Zoom for Your Windows PC (Win10)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-step-by-step-harvesting-hundreds-of-tiktok-videos/"><u>[Updated] In 2024, Step-by-Step  Harvesting Hundreds of TikTok Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-addressed-hidden-shorters-now-visible/"><u>[New] Addressed  Hidden Shorters, Now Visible</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-stop-wasting-time-check-out-our-verified-filmora-coupons-for-2024/"><u>Updated Stop Wasting Time Check Out Our Verified Filmora Coupons for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-future-apples-unique-destination/"><u>Navigating the Future: Apple’s Unique Destination</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-vivo-y56-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Vivo Y56 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-prime-audio-cleansing-app-elevate-the-quality-of-your-videos-for-2024/"><u>New Prime Audio Cleansing App Elevate the Quality of Your Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-winning-hearts-an-approach-to-encourage-sign-ups/"><u>In 2024, Winning Hearts  An Approach to Encourage Sign-Ups</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-right-to-appeal-removed-videos-from-facebooks-domain/"><u>[Updated] In 2024, The Right to Appeal  Removed Videos From Facebook's Domain</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-guide-to-camstudio-recording-and-capturing-for-2024/"><u>[Updated] Ultimate Guide to CamStudio Recording and Capturing for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-enhance-your-videos-with-dynamic-camera-movements-camtasa-guide/"><u>[Updated] Enhance Your Videos with Dynamic Camera Movements - Camtasa Guide</u></a></li>
+</ul></div>
