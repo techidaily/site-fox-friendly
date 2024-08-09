@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step Guide to Brightening GoPro Footage\""
-date: 2024-07-11T23:57:06.870Z
-updated: 2024-07-12T23:57:06.870Z
+date: 2024-08-08T06:47:56.453Z
+updated: 2024-08-09T06:47:56.453Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/eeef901d1f6e0f72044944aeb5612974e0f0cbfc3
 
 # How to Do Color Correction in GoPro Studio
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -66,20 +69,40 @@ thumbnail: https://thmb.techidaily.com/eeef901d1f6e0f72044944aeb5612974e0f0cbfc3
 
 **Step 1:** Import the file. After opening the Filmora app go to the Action Cam Tool right on the interface of the software. Now click on the import button or just drag and drop your clip shot on any action cam into the middle of your timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![color correction](https://images.wondershare.com/filmora/guide/1-action-cam-tool-fix-entrance.jpg)
 
 **Step 2:** Color Tuning. Now you need to choose the Color Tab on the left of your control panel. Here you will be able to drag the individual slider so as to alter the contrast, brightness, tint, vignette and saturation.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
 
  The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
 
 **Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Export](https://images.wondershare.com/filmora/guide/8-action-cam-tool-export.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -106,3 +129,42 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-perfecting-your-images-with-cleared-backdrops/"><u>[New] Perfecting Your Images with Cleared Backdrops</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-swiftly-assemble-a-stunning-google-image-mosaic-with-ease/"><u>[New] Swiftly Assemble a Stunning Google Image Mosaic with Ease</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-add-a-pop-of-japanese-style-with-snapchats-anime-filter-for-2024/"><u>[Updated] How to Add a Pop of Japanese Style with Snapchat's Anime Filter for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-camera-selection-for-youtube-success/"><u>[Updated] The Ultimate Camera Selection for YouTube Success</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-assisted-narratives-how-chatgpt-elevates-storytelling/"><u>AI-Assisted Narratives: How ChatGPT Elevates Storytelling</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/aquatic-adventures-await-with-top-2023-diving-cameras-for-2024/"><u>Aquatic Adventures Await with Top 2023 Diving Cameras for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/architecting-top-quality-canon-time-lapse/"><u>Architecting Top Quality Canon Time-Lapse</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/avoiding-camera-induced-image-disruption-for-2024/"><u>Avoiding Camera-Induced Image Disruption for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/become-a-color-connoisseur-in-digital-photography-for-2024/"><u>Become a Color Connoisseur in Digital Photography for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/become-a-vr-pro-ios-devices-guide-to-vr-viewing-for-2024/"><u>Become a VR Pro  IOS Device's Guide to VR Viewing for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-20-public-license-pubg-image-collections-for-2024/"><u>Best 20 Public License PUBG Image Collections for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-camcorders-for-deer-stalking-success/"><u>Best Camcorders for Deer Stalking Success</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-for-videos-vlc-or-mx-for-2024/"><u>Best for Videos  VLC or MX for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/bring-a-chuckle-to-life-generating-text-memes-for-2024/"><u>Bring a Chuckle to Life  Generating Text Memes for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cinemas-best-hope-fueled-film-selections-for-2024/"><u>Cinema's Best  Hope-Fueled Film Selections for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/clear-shots-a-guide-to-still-image-stability/"><u>Clear Shots  A Guide to Still Image Stability</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comparative-evaluation-of-cost-effective-clouds-for-2024/"><u>Comparative Evaluation of Cost-Effective Clouds for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/connected-healing-telemedicine-evolved/"><u>Connected Healing  Telemedicine Evolved</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cost-efficient-filmmaking-action-cams-under-100-guide-for-2024/"><u>Cost-Efficient Filmmaking ACTION Cams Under $100 Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-immersive-experiences-with-audio-in-canva/"><u>Crafting Immersive Experiences with Audio in Canva</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cross-media-content-crafting-zone-for-2024/"><u>Cross-Media Content Crafting Zone for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-methods-for-drone-video-refinement/"><u>Cutting-Edge Methods for Drone Video Refinement</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/decoding-vlc-player-mac-usage-tips/"><u>Decoding VLC Player Mac Usage Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/deep-investigation-into-ustream-and-its-competitors/"><u>Deep Investigation Into Ustream & Its Competitors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/delving-into-history-accessible-copyrighted-canvases/"><u>Delving Into History  Accessible, Copyrighted Canvases</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/demystifying-camera-technology-in-auto-and-ai-enhanced-hdr-for-2024/"><u>Demystifying Camera Technology in Auto and AI-Enhanced HDR for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/detailed-process-for-creating-professional-voice-recordings/"><u>Detailed Process for Creating Professional Voice Recordings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/digital-puppetry-and-storytelling-movies-maker-edition/"><u>Digital Puppetry and Storytelling  Movies Maker Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/direct-pathway-iphone-files-on-your-desktop-for-2024/"><u>Direct Pathway  IPhone Files on Your Desktop for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discovering-different-facets-of-ar-stickers-a-focus-on-google-for-2024/"><u>Discovering Different Facets of AR Stickers  A Focus on Google for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v15-document-with-electronic-signature-service-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.5 document with electronic signature service</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-lenovo-thinkphone-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Lenovo ThinkPhone to Roku | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ocam-screen-recorder-review-and-alternative/"><u>OCam Screen Recorder Review and Alternative</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/tailored-minecraft-filming-techniques-for-gamers-for-2024/"><u>Tailored Minecraft Filming Techniques for Gamers for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/xerox-printer-driver-download-for-windows/"><u>Xerox Printer Driver Download for Windows</u></a></li>
+</ul></div>

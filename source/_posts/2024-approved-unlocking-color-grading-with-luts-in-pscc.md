@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking Color Grading with LUTs in PSCC\""
-date: 2024-07-12T00:00:25.234Z
-updated: 2024-07-13T00:00:25.234Z
+date: 2024-08-08T06:44:57.918Z
+updated: 2024-08-09T06:44:57.918Z
 tags: 
   - screen-recording
   - ai video
@@ -92,6 +92,9 @@ Most creators resort to increasing their LUT library from external sources. You 
 
 Fix the Photo is an online professional photo editing company that has been operating since 2003\. Despite offering a range of premium services, they also offer freebies for you to use in your DIY projects. Additionally, they give you samples of what you can achieve with each free LUT pack to help you in deciding what works best.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to use luts in ps](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-1.jpg)
 
 You can download this free Classical Monochrome LUT pack to give your photos a soft and gentle finish. The LUT pack is ideal for wedding photos, fashion, and lifestyle photos.
@@ -108,18 +111,27 @@ Here is a free LUT photoshop pack for you to use. It features a variety of creat
 
 Free Presets is another valuable LUT photoshop resource you must check out. It offers a variety of LUTs compatible with all your favorite editing programs including Photoshop CC. You can start with this color grading LUT collection to practice.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![free luts resource of ps - free presets](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-3.jpg)
 
 #### 4\. Envato Elements
 
 The site is full of LUTs you can use across a variety of creative programs. However, you need to pay a subscription to get full access. Regardless, you may find one of their time-limited freebies if you keep checking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![free luts resource of ps - Envato Elements](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-4.jpg)
 
 #### 5\. Giggster.com
 
 Giggster.com is an online resource for aspiring filmmakers and photographers. You can find helpful guides and video tutorials on applying different finishes to your work, including color grading and effects.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ![free luts resource of ps - Giggster.com](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-5.jpg)
 
 Here is a free LUT photoshop pack you can use for your color grading projects. As you can see, the pack contains LUTs to transform your images into grayscale, adding a vintage yet crisp finish.
@@ -156,6 +168,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** Regardless of the editing software you use, LUTs are essential to give your creations the extra boost they need to stand out. The LUT photoshop guide above is sufficient to help you unleash your creativity. Additionally, the free LUT resources give you the freedom to express your artform across different software. So, what are you waiting for? Put what you have read into practice and watch people craving more of your work. /p
@@ -174,6 +189,156 @@ Their success results from the effective use of editing programs and other enhan
 
 03 [Looking for LUTs for Video? Try Filmora.](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## How to Use LUTs in Photoshop
+
+A Look Up Table (LUT) refers to a preset value of color calibrations you use in post-production. Some of the reasons for using LUTs include:
+
+* Shorten your color grading time.
+* Provide a base to develop your unique style.
+* Quickly add color effects to your fast-turnaround videos.
+
+You can use Adobe Photoshop CC to apply LUTs to your creation with ease. Additionally, it comes with preset LUTs to help you achieve a variety of color outcomes. For example, there are plenty of LUTs to give your image an artistic look, as if it was a painting. Additionally, you can use the program on both Windows and Mac devices, including handheld macOS devices.
+
+With the basics out of the way, here is how to use LUTs in Photoshop:
+
+#### 1\. Load your image to the workspace
+
+You can load your photos directly from the program or launch them from your device. The most recent versions of the program store your media on the cloud.
+
+#### 2\. Open the Color Lookup tool
+
+The Color Lookup tool allows you to apply preset and custom LUTs to your image. Below is how to access it.
+
+* Proceed to the Adjustments Panel and click Color Lookup from the dropdown menu. You will find this as the next option after Libraries, on the right side of your workspace. Most editions of Adobe Photoshop CC use a grid icon to represent Color Lookup.
+* Alternatively, you may access Color Lookup from the Layers panel. Navigate to the bottom-right corner of your workspace and click the half-shaded icon. Then, select the Color Lookup option from the menu.
+
+#### 3\. Loading your LUT in Photoshop CC
+
+Once the Color Lookup tool is active, select the option Load 3D LUT to activate the dropdown menu. All your LUT presets will appear on the list, each with a different effect. You can also use custom LUTs in Photoshop CC. Here is how you access them.
+
+* Click the Load 3D LUT entry from the dropdown menu. The program will open the File Explorer window that allows you to navigate directories on your device.
+* Navigate to the directory that contains your custom luts photoshop, and select the one you need.
+* Finally, click on Ok on the File Explorer window to complete the process.
+* Make adjustments to your LUT in Photoshop CC.
+
+Preset and custom LUTs may not give you the finish you anticipate. As such, you may need to make adjustments. Some of the adjustments you can make include:
+
+* Color blending.
+* Luminosity.
+* Opacity.
+* Saturation.
+* Hues.
+
+On the right side of your workspace is the Layers panel. It includes all the tools you need to edit your LUT. Remember, you need an Adjustment Layer to make changes to your LUTs. Additionally, you can save and export your custom LUTs for use across other video editing programs like Filmora.
+
+## Free LUTs to enhance your image in Photoshop CC
+
+You now have an understanding of how to use LUTs Photoshop to enhance your photos and films. However, the presets LUTs that come pre-installed are often basic and leave a lot to desire. So, what do you do to make your creations better?
+
+Most creators resort to increasing their LUT library from external sources. You can also increase your collection by adding free LUTs from these sources. Furthermore, you will get a sample of what to expect from each LUT collection.
+
+#### 1\. Fix the Photo
+
+Fix the Photo is an online professional photo editing company that has been operating since 2003\. Despite offering a range of premium services, they also offer freebies for you to use in your DIY projects. Additionally, they give you samples of what you can achieve with each free LUT pack to help you in deciding what works best.
+
+![how to use luts in ps](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-1.jpg)
+
+You can download this free Classical Monochrome LUT pack to give your photos a soft and gentle finish. The LUT pack is ideal for wedding photos, fashion, and lifestyle photos.
+
+#### 2\. PH Learn
+
+PH Learn is an online learning resource for aspiring photographers and filmmakers. It offers tutorials for the Adobe Creative Cloud Suite, along with free samples you can use to practice.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![free luts resource of ps - ph learn](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-2.jpg)
+
+Here is a free LUT photoshop pack for you to use. It features a variety of creative LUTs ideal for portraits and nature photography.
+
+#### 3\. Free Presets
+
+Free Presets is another valuable LUT photoshop resource you must check out. It offers a variety of LUTs compatible with all your favorite editing programs including Photoshop CC. You can start with this color grading LUT collection to practice.
+
+![free luts resource of ps - free presets](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-3.jpg)
+
+#### 4\. Envato Elements
+
+The site is full of LUTs you can use across a variety of creative programs. However, you need to pay a subscription to get full access. Regardless, you may find one of their time-limited freebies if you keep checking.
+
+![free luts resource of ps - Envato Elements](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-4.jpg)
+
+#### 5\. Giggster.com
+
+Giggster.com is an online resource for aspiring filmmakers and photographers. You can find helpful guides and video tutorials on applying different finishes to your work, including color grading and effects.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![free luts resource of ps - Giggster.com](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-5.jpg)
+
+Here is a free LUT photoshop pack you can use for your color grading projects. As you can see, the pack contains LUTs to transform your images into grayscale, adding a vintage yet crisp finish.
+
+## Looking for LUTs for Video? Try Filmora
+
+Filmora is an easy-to-use video editing program available for both macOS and Windows. It offers you an interactive interface with preset LUTs you can apply to achieve exceptional finishes for each project. Some of the adjustments you can perform with the program include color grading, monitor calibration, and color transfer across different software.
+
+Here is how to use LUTs in Filmora.
+
+#### 1\. Download Filmora
+
+Check the Filmora website to download your compatible version. Then, proceed with the installation to start using the video editing program.
+
+#### 2\. Upload your video
+
+Select the video you want to edit and drop it on the FIlmora timeline. Ensure you click the video so that it is active for editing.
+
+#### 3\. Apply your LUT
+
+Select Tools from the top menu in your workspace. Then, click on Color Correction from the dropdown menu. This opens the LUT importer, where you will click on Load new LUT to choose from a variety of presets and custom LUTs from your device. Once you find the LUT you need, press OK to apply the LUT.
+
+Here are a few things to consider before using LUTs on Filmora.
+
+* You may need to color correct your video before applying any LUTs. For example, your white balance needs to be on point to achieve the best results.
+* Videos vary in quality depending on the equipment you use. Therefore, you may not receive the same results from applying the same LUT.
+* You will need a subscription to access all of Filmora’s editing tools.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+**●** Regardless of the editing software you use, LUTs are essential to give your creations the extra boost they need to stand out. The LUT photoshop guide above is sufficient to help you unleash your creativity. Additionally, the free LUT resources give you the freedom to express your artform across different software. So, what are you waiting for? Put what you have read into practice and watch people craving more of your work. /p
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+With over two billion people posting videos and photos online, it is challenging to make your content stand out. However, some creators seem to always excel with their top-in-class creations. So, how do they do it?
+
+Their success results from the effective use of editing programs and other enhancements to ensure their work is above the rest. For example, Adobe Photoshop CC allows you to effectively apply LUTs to your creations. Below is a complete guide on how to use luts photoshop to get you in the elite leagues.
+
+#### In this article
+
+01 [How to Use LUTs in Photoshop](#part1)
+
+02 [Free LUTs to enhance your image in Photoshop CC.](#part2)
+
+03 [Looking for LUTs for Video? Try Filmora.](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Use LUTs in Photoshop
 
 A Look Up Table (LUT) refers to a preset value of color calibrations you use in post-production. Some of the reasons for using LUTs include:
@@ -248,6 +413,9 @@ Free Presets is another valuable LUT photoshop resource you must check out. It o
 
 The site is full of LUTs you can use across a variety of creative programs. However, you need to pay a subscription to get full access. Regardless, you may find one of their time-limited freebies if you keep checking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![free luts resource of ps - Envato Elements](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-4.jpg)
 
 #### 5\. Giggster.com
@@ -258,6 +426,9 @@ Giggster.com is an online resource for aspiring filmmakers and photographers. Yo
 
 Here is a free LUT photoshop pack you can use for your color grading projects. As you can see, the pack contains LUTs to transform your images into grayscale, adding a vintage yet crisp finish.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Looking for LUTs for Video? Try Filmora
 
 Filmora is an easy-to-use video editing program available for both macOS and Windows. It offers you an interactive interface with preset LUTs you can apply to achieve exceptional finishes for each project. Some of the adjustments you can perform with the program include color grading, monitor calibration, and color transfer across different software.
@@ -308,6 +479,9 @@ Their success results from the effective use of editing programs and other enhan
 
 03 [Looking for LUTs for Video? Try Filmora.](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Use LUTs in Photoshop
 
 A Look Up Table (LUT) refers to a preset value of color calibrations you use in post-production. Some of the reasons for using LUTs include:
@@ -350,6 +524,9 @@ Preset and custom LUTs may not give you the finish you anticipate. As such, you 
 
 On the right side of your workspace is the Layers panel. It includes all the tools you need to edit your LUT. Remember, you need an Adjustment Layer to make changes to your LUTs. Additionally, you can save and export your custom LUTs for use across other video editing programs like Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Free LUTs to enhance your image in Photoshop CC
 
 You now have an understanding of how to use LUTs Photoshop to enhance your photos and films. However, the presets LUTs that come pre-installed are often basic and leave a lot to desire. So, what do you do to make your creations better?
@@ -376,152 +553,27 @@ Here is a free LUT photoshop pack for you to use. It features a variety of creat
 
 Free Presets is another valuable LUT photoshop resource you must check out. It offers a variety of LUTs compatible with all your favorite editing programs including Photoshop CC. You can start with this color grading LUT collection to practice.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![free luts resource of ps - free presets](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-3.jpg)
 
 #### 4\. Envato Elements
 
 The site is full of LUTs you can use across a variety of creative programs. However, you need to pay a subscription to get full access. Regardless, you may find one of their time-limited freebies if you keep checking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![free luts resource of ps - Envato Elements](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-4.jpg)
 
 #### 5\. Giggster.com
 
 Giggster.com is an online resource for aspiring filmmakers and photographers. You can find helpful guides and video tutorials on applying different finishes to your work, including color grading and effects.
 
-![free luts resource of ps - Giggster.com](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-5.jpg)
-
-Here is a free LUT photoshop pack you can use for your color grading projects. As you can see, the pack contains LUTs to transform your images into grayscale, adding a vintage yet crisp finish.
-
-## Looking for LUTs for Video? Try Filmora
-
-Filmora is an easy-to-use video editing program available for both macOS and Windows. It offers you an interactive interface with preset LUTs you can apply to achieve exceptional finishes for each project. Some of the adjustments you can perform with the program include color grading, monitor calibration, and color transfer across different software.
-
-Here is how to use LUTs in Filmora.
-
-#### 1\. Download Filmora
-
-Check the Filmora website to download your compatible version. Then, proceed with the installation to start using the video editing program.
-
-#### 2\. Upload your video
-
-Select the video you want to edit and drop it on the FIlmora timeline. Ensure you click the video so that it is active for editing.
-
-#### 3\. Apply your LUT
-
-Select Tools from the top menu in your workspace. Then, click on Color Correction from the dropdown menu. This opens the LUT importer, where you will click on Load new LUT to choose from a variety of presets and custom LUTs from your device. Once you find the LUT you need, press OK to apply the LUT.
-
-Here are a few things to consider before using LUTs on Filmora.
-
-* You may need to color correct your video before applying any LUTs. For example, your white balance needs to be on point to achieve the best results.
-* Videos vary in quality depending on the equipment you use. Therefore, you may not receive the same results from applying the same LUT.
-* You will need a subscription to access all of Filmora’s editing tools.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-## Conclusion
-
-**●** Regardless of the editing software you use, LUTs are essential to give your creations the extra boost they need to stand out. The LUT photoshop guide above is sufficient to help you unleash your creativity. Additionally, the free LUT resources give you the freedom to express your artform across different software. So, what are you waiting for? Put what you have read into practice and watch people craving more of your work. /p
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-With over two billion people posting videos and photos online, it is challenging to make your content stand out. However, some creators seem to always excel with their top-in-class creations. So, how do they do it?
-
-Their success results from the effective use of editing programs and other enhancements to ensure their work is above the rest. For example, Adobe Photoshop CC allows you to effectively apply LUTs to your creations. Below is a complete guide on how to use luts photoshop to get you in the elite leagues.
-
-#### In this article
-
-01 [How to Use LUTs in Photoshop](#part1)
-
-02 [Free LUTs to enhance your image in Photoshop CC.](#part2)
-
-03 [Looking for LUTs for Video? Try Filmora.](#part3)
-
-## How to Use LUTs in Photoshop
-
-A Look Up Table (LUT) refers to a preset value of color calibrations you use in post-production. Some of the reasons for using LUTs include:
-
-* Shorten your color grading time.
-* Provide a base to develop your unique style.
-* Quickly add color effects to your fast-turnaround videos.
-
-You can use Adobe Photoshop CC to apply LUTs to your creation with ease. Additionally, it comes with preset LUTs to help you achieve a variety of color outcomes. For example, there are plenty of LUTs to give your image an artistic look, as if it was a painting. Additionally, you can use the program on both Windows and Mac devices, including handheld macOS devices.
-
-With the basics out of the way, here is how to use LUTs in Photoshop:
-
-#### 1\. Load your image to the workspace
-
-You can load your photos directly from the program or launch them from your device. The most recent versions of the program store your media on the cloud.
-
-#### 2\. Open the Color Lookup tool
-
-The Color Lookup tool allows you to apply preset and custom LUTs to your image. Below is how to access it.
-
-* Proceed to the Adjustments Panel and click Color Lookup from the dropdown menu. You will find this as the next option after Libraries, on the right side of your workspace. Most editions of Adobe Photoshop CC use a grid icon to represent Color Lookup.
-* Alternatively, you may access Color Lookup from the Layers panel. Navigate to the bottom-right corner of your workspace and click the half-shaded icon. Then, select the Color Lookup option from the menu.
-
-#### 3\. Loading your LUT in Photoshop CC
-
-Once the Color Lookup tool is active, select the option Load 3D LUT to activate the dropdown menu. All your LUT presets will appear on the list, each with a different effect. You can also use custom LUTs in Photoshop CC. Here is how you access them.
-
-* Click the Load 3D LUT entry from the dropdown menu. The program will open the File Explorer window that allows you to navigate directories on your device.
-* Navigate to the directory that contains your custom luts photoshop, and select the one you need.
-* Finally, click on Ok on the File Explorer window to complete the process.
-* Make adjustments to your LUT in Photoshop CC.
-
-Preset and custom LUTs may not give you the finish you anticipate. As such, you may need to make adjustments. Some of the adjustments you can make include:
-
-* Color blending.
-* Luminosity.
-* Opacity.
-* Saturation.
-* Hues.
-
-On the right side of your workspace is the Layers panel. It includes all the tools you need to edit your LUT. Remember, you need an Adjustment Layer to make changes to your LUTs. Additionally, you can save and export your custom LUTs for use across other video editing programs like Filmora.
-
-## Free LUTs to enhance your image in Photoshop CC
-
-You now have an understanding of how to use LUTs Photoshop to enhance your photos and films. However, the presets LUTs that come pre-installed are often basic and leave a lot to desire. So, what do you do to make your creations better?
-
-Most creators resort to increasing their LUT library from external sources. You can also increase your collection by adding free LUTs from these sources. Furthermore, you will get a sample of what to expect from each LUT collection.
-
-#### 1\. Fix the Photo
-
-Fix the Photo is an online professional photo editing company that has been operating since 2003\. Despite offering a range of premium services, they also offer freebies for you to use in your DIY projects. Additionally, they give you samples of what you can achieve with each free LUT pack to help you in deciding what works best.
-
-![how to use luts in ps](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-1.jpg)
-
-You can download this free Classical Monochrome LUT pack to give your photos a soft and gentle finish. The LUT pack is ideal for wedding photos, fashion, and lifestyle photos.
-
-#### 2\. PH Learn
-
-PH Learn is an online learning resource for aspiring photographers and filmmakers. It offers tutorials for the Adobe Creative Cloud Suite, along with free samples you can use to practice.
-
-![free luts resource of ps - ph learn](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-2.jpg)
-
-Here is a free LUT photoshop pack for you to use. It features a variety of creative LUTs ideal for portraits and nature photography.
-
-#### 3\. Free Presets
-
-Free Presets is another valuable LUT photoshop resource you must check out. It offers a variety of LUTs compatible with all your favorite editing programs including Photoshop CC. You can start with this color grading LUT collection to practice.
-
-![free luts resource of ps - free presets](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-3.jpg)
-
-#### 4\. Envato Elements
-
-The site is full of LUTs you can use across a variety of creative programs. However, you need to pay a subscription to get full access. Regardless, you may find one of their time-limited freebies if you keep checking.
-
-![free luts resource of ps - Envato Elements](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-4.jpg)
-
-#### 5\. Giggster.com
-
-Giggster.com is an online resource for aspiring filmmakers and photographers. You can find helpful guides and video tutorials on applying different finishes to your work, including color grading and effects.
-
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![free luts resource of ps - Giggster.com](https://images.wondershare.com/filmora/article-images/2022/03/luts-photoshop-5.jpg)
 
 Here is a free LUT photoshop pack you can use for your color grading projects. As you can see, the pack contains LUTs to transform your images into grayscale, adding a vintage yet crisp finish.
@@ -585,3 +637,49 @@ For macOS 10.12 or later
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-use-preview-app-on-mac/"><u>[New] How to Use Preview App on Mac</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-chromatic-wonders-bridging-color-knowledge/"><u>[New] In 2024, Chromatic Wonders  Bridging Color Knowledge</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-engagement-professional-tips-for-youtube-video-tweaks/"><u>[New] In 2024, Elevating Engagement  Professional Tips for YouTube Video Tweaks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-25-essential-hashtags-for-increased-instagram-engagement/"><u>[Updated] 2024 Approved  25 Essential Hashtags for Increased Instagram Engagement</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-cutting-edge-8-streaming-selectors-for-2024/"><u>[Updated] Cutting-Edge 8 Streaming Selectors for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-smartphone-to-screen-uploading-pics-on-youtube/"><u>[Updated] From Smartphone to Screen  Uploading Pics on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/advancing-well-being-with-facebook-campaign-insights/"><u>Advancing Well-Being with Facebook Campaign Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ai-driven-naming-tools-for-dynamic-podcast-titles/"><u>AI-Driven Naming Tools for Dynamic Podcast Titles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/androids-premier-music-video-experience-6-picks/"><u>Android's Premier Music Video Experience  6 Picks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/audacitys-toolkit-for-exceptional-sound-recording-for-2024/"><u>Audacity's Toolkit for Exceptional Sound Recording for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/aural-artistry-the-magic-of-sound-fading/"><u>Aural Artistry  The Magic of Sound Fading</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/azures-speech-to-text-an-easy-guide-for-2024/"><u>Azure's Speech-to-Text  An Easy Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/behind-glasses-and-screens-vrs-evolutionary-tale-for-2024/"><u>Behind Glasses and Screens  VR’s Evolutionary Tale for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/behind-the-colorscape-a-look-at-hps-z32-x/"><u>Behind the Colorscape  A Look at HP’s Z32 X</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-of-both-worlds-androids-8-most-popular-free-and-paid-videomosaic-apps-for-2024/"><u>Best of Both Worlds  Android's 8 Most Popular Free & Paid Videomosaic Apps for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/choose-right-gopro-hero5-vs-garmin-virb-updated-22-for-2024/"><u>Choose Right  GoPro Hero5 Vs. Garmin VIRB (Updated '22) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/choreographing-gripping-podcast-openings/"><u>Choreographing Gripping Podcast Openings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/close-up-mastery-in-film-production/"><u>Close-Up Mastery in Film Production</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/color-cutting-edge-the-basics-of-green-screen-filming-for-newbies-for-2024/"><u>Color Cutting Edge  The Basics of Green Screen Filming for Newbies for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comparing-costs-of-global-cloud-data-centers/"><u>Comparing Costs of Global Cloud Data Centers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/conquering-interviews-a-compreayers-journey-to-success/"><u>Conquering Interviews  A Compreayer's Journey to Success</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-impeccable-inshot-segment-flows-for-2024/"><u>Crafting Impeccable Inshot Segment Flows for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-your-future-in-the-art-of-visuals/"><u>Crafting Your Future in the Art of Visuals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/curated-listings-top-20plus-immersive-vr-games-on-cardboard/"><u>Curated Listings  Top 20+ Immersive VR Games on Cardboard</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/curating-capsules-of-gratitude-paidfree-options-for-2024/"><u>Curating Capsules of Gratitude  Paid/Free Options for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-creatives-choice-the-ultimate-selection-of-10-dynamic-background-alternators-for-2024/"><u>Cutting-Edge Creatives Choice  The Ultimate Selection of 10 Dynamic Background Alternators for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-design-practices-for-career-advancement-for-2024/"><u>Cutting-Edge Design Practices for Career Advancement for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/cutting-edge-tips-for-capturing-movies-on-everyday-tech/"><u>Cutting-Edge Tips for Capturing Movies on Everyday Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-tools-for-optimal-yt-titles-for-2024/"><u>Cutting-Edge Tools for Optimal YT Titles for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/declutter-your-canvas-how-to-delete-background-in-figma-for-2024/"><u>Declutter Your Canvas  How To Delete Background in Figma for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/digital-scrutiny-vll-app-evaluation/"><u>Digital Scrutiny  VLL App Evaluation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/diminutive-directors-script/"><u>Diminutive Director's Script</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discover-the-best-comparing-free-video-players-vlc-and-mpc/"><u>Discover the Best  Comparing Free Video Players (VLC and MPC)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discover-the-depths-of-funimate-for-2024/"><u>Discover the Depths of Funimate for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-apple-iphone-12-pro-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Transfer Music from Apple iPhone 12 Pro to Android | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-desktop-capture-the-windows-user-guide/"><u>In 2024, Desktop Capture  The Windows User Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-realme-c33-2023-easily-by-drfone-android/"><u>In 2024, How To Unlock a Realme C33 2023 Easily?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-programs-of-july-2024-on-discoveryplus-our-picks/"><u>Top Programs of July 2024 on Discovery+ - Our Picks</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-office-suites-strict-safe-mode-on-windows-operations/"><u>Troubleshooting Office Suite's Strict Safe Mode on Windows Operations</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unlocking-full-potential-always-launch-apps-with-admin-rights-on-windows-11-explained/"><u>Unlocking Full Potential: Always Launch Apps with Admin Rights on Windows 11 Explained</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-guide-to-generating-speech-in-different-languages-with-the-best-tools/"><u>Updated 2024 Approved Guide to Generating Speech in Different Languages With the Best Tools</u></a></li>
+</ul></div>

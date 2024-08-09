@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Techniques for Capturing Wide Angle 360 Photos Effortlessly\""
-date: 2024-07-12T00:00:01.491Z
-updated: 2024-07-13T00:00:01.491Z
+date: 2024-08-08T06:45:20.109Z
+updated: 2024-08-09T06:45:20.109Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
 # How to Create 360 Degree Photos/Images with Fisheye Lens
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
@@ -42,6 +45,9 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -54,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -62,6 +72,18 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -70,12 +92,18 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
  The fisheye lenses are used for a myriad of applications, especially in digital photography. They can also be used for re-projecting images captured by a fisheye lens or computer generated graphics onto hemispherical screens. Additionally, the lenses can be used in scientific photography such as studying canopy geometry, recording meteors and aurora, calculating near-ground solar radiation as well as in peepholes to offer a wide field of view to the users.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
@@ -102,3 +130,48 @@ Follow @Benjamin Arango
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>[New] Top Picks  7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nveiling-youtubes-cc-policy-for-aspiring-creators/"><u>[New] Unveiling YouTube's CC Policy for Aspiring Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-understanding-camera-shake-in-photographyvideo/"><u>[Updated] 2024 Approved  Understanding Camera Shake in Photography/Video</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-vimeo-video-editing-top-5-techniques-for-cuts-and-trimming/"><u>[Updated] Mastering Vimeo Video Editing  Top 5 Techniques for Cuts & Trimming</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/advanced-zoom-strategies-for-clarity-in-web-meetings/"><u>Advanced Zoom Strategies for Clarity in Web Meetings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/airdrop-not-working-how-to-fix-it-on-iphone-ipad-and-mac/"><u>Airdrop Not Working? How to Fix It on iPhone, iPad, & Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/amplify-iphone-imagery-with-lighting-hacks/"><u>Amplify iPhone Imagery with Lighting Hacks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/analyzing-the-features-of-vegaspros-latest-release/"><u>Analyzing the Features of VegasPro's Latest Release</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/beaming-login-logout-directions-for-2024/"><u>Beaming Login / Logout Directions for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/become-an-expert-at-unearthing-unique-visuals-from-pexels-for-2024/"><u>Become an Expert at Unearthing Unique Visuals From Pexels for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-picture-repository-platforms/"><u>Best Picture Repository Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/beyond-boundaries-vrs-educational-potential/"><u>Beyond Boundaries  VR's Educational Potential</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/breaking-barriers-7-top-tools-for-artists-transforming-into-nfts/"><u>Breaking Barriers  7 Top Tools for Artists Transforming Into NFTs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/breaking-barriers-in-drone-races-and-top-5-innovative-fpv-units-for-2024/"><u>Breaking Barriers in Drone Races & Top 5 Innovative FPV Units for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/bringing-back-windows-photo-viewer-a-quick-guide-for-win-11-users-for-2024/"><u>Bringing Back Windows Photo Viewer  A Quick Guide for Win 11 Users for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/building-blocks-of-virtual-experience-terminology-for-2024/"><u>Building Blocks of Virtual Experience Terminology for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/capture-striking-shots-using-leading-lines-iphone/"><u>Capture Striking Shots Using Leading Lines (iPhone)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/charting-the-course-to-cash-how-much-does-pewdopeep-make/"><u>Charting the Course to Cash  How Much Does PewDoPeep Make?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/choreographing-compelling-cinematic-hooks/"><u>Choreographing Compelling Cinematic Hooks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/chucklechisel-designing-memes-in-adobe/"><u>ChuckleChisel  Designing Memes in Adobe</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cinema-crafting-excellence-top-5-camera-skills-to-hone/"><u>Cinema Crafting Excellence  Top 5 Camera Skills to Hone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/coders-showdown-which-codec-will-dominate-video-quality-for-2024/"><u>Coders' Showdown  Which Codec Will Dominate Video Quality for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comprehensive-study-editmagics-power-edition/"><u>Comprehensive Study  EditMagic's Power Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/conquer-kinemaster-efficient-use-plus-top-online-gaming-platforms-reviewed/"><u>Conquer KineMaster  Efficient Use + Top Online Gaming Platforms Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/conquering-image-search-a-pathway-to-stunning-pexels-visuals/"><u>Conquering Image Search  A Pathway to Stunning Pexels Visuals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/craft-digital-laughter-kapwing-meme-maker-for-2024/"><u>Craft Digital Laughter – Kapwing Meme Maker for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-excellent-micro-photography-videos-step-by-step-for-2024/"><u>Crafting Excellent Micro Photography Videos Step by Step for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-the-futures-past-digital-conversion-for-timeless-images-for-2024/"><u>Crafting the Future's Past  Digital Conversion for Timeless Images for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-optics-top-recommendations-for-best-4k-cinematography/"><u>Cutting-Edge Optics  Top Recommendations for Best 4K Cinematography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/data-realm-renaissance-pioneering-cloud-services-s-needs/"><u>Data Realm Renaissance  Pioneering Cloud Services 'S Needs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/deciphering-hdr-mastery-through-luminance-testing-for-2024/"><u>Deciphering HDR Mastery Through Luminance Testing for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/decoding-the-journey-from-sdr-to-stunning-hdr-images-for-2024/"><u>Decoding the Journey  From SDR to Stunning HDR Images for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discover-the-magic-of-editing-in-60-seconds-with-snapseed-for-2024/"><u>Discover the Magic of Editing in 60 Seconds with Snapseed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enable-the-nocturnal-look-in-facebook-settings/"><u>Enable the Nocturnal Look in Facebook Settings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-text-enhancements-for-video-impact/"><u>Essential Text Enhancements for Video Impact</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-update-for-hp-deskjet-ink-advantage-3050-windows-printer-drivers/"><u>Free Update for HP Deskjet Ink Advantage 3050 Windows Printer Drivers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/going-above-and-beyond-without-the-need-for-vimeo-for-2024/"><u>Going Above and Beyond Without the Need for Vimeo for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-honor-magic-v2-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Honor Magic V2</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-champions-of-3d-spatial-displays/"><u>In 2024, Champions of 3D Spatial Displays</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-on-your-iphone-se-2020-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password On your iPhone SE (2020)</u></a></li>
+</ul></div>
