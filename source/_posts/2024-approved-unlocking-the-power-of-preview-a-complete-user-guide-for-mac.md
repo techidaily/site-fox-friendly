@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking the Power of Preview  A Complete User Guide for Mac\""
-date: 2024-07-11T23:55:40.624Z
-updated: 2024-07-12T23:55:40.624Z
+date: 2024-08-15T14:49:16.016Z
+updated: 2024-08-16T14:49:16.016Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,9 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -64,6 +67,9 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -80,6 +86,9 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -108,6 +117,9 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -140,6 +152,9 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -185,6 +200,9 @@ Choose a destination folder in the **Where** field, select your preferred format
 * Click **Choose** to convert all the images in a single go
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -210,3 +228,49 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-crossfade-mastery-in-professional-mixing-logic-pro-x-edition/"><u>[New] 2024 Approved  Crossfade Mastery in Professional Mixing - Logic Pro X Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-boost-your-meeting-impact-with-efficient-screen-sharing/"><u>[New] Boost Your Meeting Impact with Efficient Screen Sharing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-funimate-games-with-a-single-apk-install-for-2024/"><u>[New] Discover Funimate Games with a Single APK Install for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elite-fast-windows-10-picture-viewer-for-2024/"><u>[New] Elite Fast Windows 10 Picture Viewer for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-apps-to-record-on-iphone/"><u>[New] Exclusive Apps to Record on iPhone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-exclusive-insiders-take-on-best-3d-blu-ray-players-for-2024/"><u>[New] Exclusive Insider's Take on Best 3D Blu-Ray Players for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-how-to-create-podcast-rss-feeds/"><u>[New] In 2024, How To Create Podcast RSS Feeds</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-music-infused-videos-perfecting-sound-with-inshot/"><u>[New] In 2024, Music-Infused Videos  Perfecting Sound with InShot</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-leading-free-graphic-resource-hubs-to-elevate-your-artistry-for-2024/"><u>[New] Leading Free Graphic Resource Hubs to Elevate Your Artistry for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-role-of-timestamps-in-content-longevity-and-popularity/"><u>[New] The Role of Timestamps in Content Longevity and Popularity</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-the-ultimate-toolkit-facebook-live-recording-conversion-for-2024/"><u>[New] The Ultimate Toolkit  Facebook Live Recording Conversion for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-directly-connect-tweeting-with-videos-on-whatsapp/"><u>[Updated] 2024 Approved  Directly Connect  Tweeting with Videos on WhatsApp</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-elite-selection-6-unmatched-tools-for-pristine-signature-edits/"><u>[Updated] 2024 Approved  Elite Selection - 6 Unmatched Tools for Pristine Signature Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-exclusive-sites-for-youtube-content-surge/"><u>[Updated] 2024 Approved  Exclusive Sites For YouTube Content Surge</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-eye-catching-text-top-10-photo-writing-tools-for-smartphones/"><u>[Updated] 2024 Approved  Eye-Catching Text  Top 10 Photo Writing Tools for Smartphones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-integrated-sound-and-vision-workspace/"><u>[Updated] 2024 Approved  Integrated Sound & Vision Workspace</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-lightroom-guide-blending-high-dynamic-range-magic/"><u>[Updated] 2024 Approved  Lightroom Guide  Blending High Dynamic Range Magic</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-minicam-record-evaluation-and-backup-software/"><u>[Updated] 2024 Approved  MiniCam Record Evaluation & Backup Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-digital-space-for-every-need-the-best-free-services-offering-massive-storage-for-2024/"><u>[Updated] Digital Space for Every Need - The Best Free Services Offering Massive Storage for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fusing-visual-media-and-apple-audio/"><u>[Updated] Fusing Visual Media and Apple Audio</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-elevate-your-podcast-with-professional-scriptwriting-strategies/"><u>[Updated] In 2024, Elevate Your Podcast with Professional Scriptwriting Strategies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-fast-forward-altering-instagram-stories-tempo/"><u>[Updated] In 2024, Fast-Forward  Altering Instagram Stories' Tempo</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-renaming-your-podcast-leading-ai-generators-explored/"><u>[Updated] In 2024, Renaming Your Podcast  Leading AI Generators Explored</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unveiling-top-8-premium-free-srt-translation-solutions/"><u>[Updated] In 2024, Unveiling Top 8 Premium Free SRT Translation Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-streamlining-video-creation-with-windows-movie-maker-on-windows-8-for-2024/"><u>[Updated] Streamlining Video Creation with Windows Movie Maker on Windows 8 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-10-hilarious-tweets-galore-for-2024/"><u>[Updated] Top 10 Hilarious Tweets Galore for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-y55s-5g-2023-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/dive-into-full-rotation-cinematography-9-critical-tips/"><u>Dive Into Full Rotation Cinematography  9 Critical Tips</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/engage-in-privacy-focused-conversations-with-duckduckgos-ai-chat-featuring-chatgpt-and-beyond/"><u>Engage in Privacy-Focused Conversations with DuckDuckGo's AI Chat Featuring ChatGPT and Beyond</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/foster-community-with-unique-insta-story-questions/"><u>Foster Community with Unique Insta Story Questions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-correcting-jscriptdll-not-found-problems-quickly-and-easily/"><u>Guide to Correcting 'JScript.dll Not Found' Problems Quickly and Easily</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-capturing-elegance-ideal-websites-for-photo-framing/"><u>In 2024, Capturing Elegance  Ideal Websites for Photo Framing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-directors-of-the-airspace-editing-for-impactful-drone-videos/"><u>In 2024, Directors of the Airspace  Editing for Impactful Drone Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-ultimate-guide-to-iphone-light-balancing/"><u>In 2024, The Ultimate Guide to iPhone Light Balancing</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-5-amazing-voice-changer-for-google-meet-for-2024/"><u>New 5 Amazing Voice Changer for Google Meet for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/tips-and-tricks-incorporating-audio-into-your-tiktok-masterpieces-for-2024/"><u>Tips & Tricks  Incorporating Audio Into Your TikTok Masterpieces for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/titlegenius-revolutionizing-video-title-generation/"><u>TitleGenius  Revolutionizing Video Title Generation</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-stemma-qt-enhancements-grove-accessories-for-raspberry-pi-and-arduino-in-2e/"><u>Top Stemma QT Enhancements: Grove Accessories for Raspberry Pi & Arduino in 2E</u></a></li>
+<li><a href="https://some-tips.techidaily.com/ultimate-techniques-from-video-to-audio-downloads-on-pinterest-for-2024/"><u>Ultimate Techniques  From Video to Audio Downloads on Pinterest for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/uncovering-the-best-in-botting-with-bard-and-bing/"><u>Uncovering the Best in Botting with Bard & Bing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-list-top-frame-addition-services-for-images/"><u>Updated List  Top Frame Addition Services for Images</u></a></li>
+</ul></div>

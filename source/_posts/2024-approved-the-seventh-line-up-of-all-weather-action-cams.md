@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Seventh Line-Up of All-Weather Action Cams\""
-date: 2024-07-11T23:55:05.904Z
-updated: 2024-07-12T23:55:05.904Z
+date: 2024-08-15T14:49:48.516Z
+updated: 2024-08-16T14:49:48.516Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,9 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  Although this device appears like an old video game controller but it’s slim, compact and lightweight design can assist you on long and tough tours. This device is designed to handle all weather conditions and you can take it under water up 26 feet depth. It comes with 16MP advanced CMOS sensor whereas maximum video resolution is 720p. People love to enjoy its numerous shooting modes and advanced control features.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Comparison Table
 
 | Product                      | Price   | Nation | Waterproof          | Battery | Display  | Weight | shockproof | freezeproof     | Video resolution |
@@ -85,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 | Panasonic LUMIX DMC TS30     | $179.99 | JP     | 8m without housing  | 680mah  | 2.7" LCD | 144g   | 1.5m       | \-10°C          | 720p/30fps       |
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -110,3 +117,50 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-a-comprehensible-guide-to-chromebooks-best-digital-pencils/"><u>[New] 2024 Approved  A Comprehensible Guide to Chromebook's Best Digital Pencils</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-enhance-videos-with-easy-apple-music-integration/"><u>[New] 2024 Approved  Enhance Videos with Easy Apple Music Integration</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-enhancing-video-production-for-instagram-reels/"><u>[New] 2024 Approved  Enhancing Video Production for Instagram Reels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fb-snapcast-converter/"><u>[New] 2024 Approved  FB Snapcast Converter</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-10-enterprise-cloud-options/"><u>[New] 2024 Approved  Top 10 Enterprise Cloud Options</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ultimate-webcam-selection-for-podcasting/"><u>[New] 2024 Approved  Ultimate Webcam Selection for Podcasting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-critical-examination-of-lg-bp350-screen-size-and-viewing-distance-for-2024/"><u>[New] Critical Examination of LG BP350 Screen Size & Viewing Distance for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-cutting-edge-anime-ideas-dominating-social-media-screens-for-2024/"><u>[New] Cutting-Edge Anime Ideas Dominating Social Media Screens for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-dynamic-action-photography-on-your-iphone/"><u>[New] Dynamic Action Photography on Your iPhone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-gif-genius-unleashed-the-best-tools-and-methods-of-memetic-artistry/"><u>[New] In 2024, GIF Genius Unleashed  The Best Tools and Methods of Memetic Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-rapid-results-elevate-images-on-windows-11-for-2024/"><u>[New] Rapid Results  Elevate Images on Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-future-of-audio-extraction-with-pazera-tools-analysis-for-2024/"><u>[New] The Future of Audio Extraction with Pazera Tools Analysis for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-uncharted-territories-the-ultimate-guide-to-iphone-vr-games-for-2024/"><u>[New] Uncharted Territories  The Ultimate Guide to iPhone VR Games for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-choreographing-compelling-screen-trailers/"><u>[Updated] 2024 Approved  Choreographing Compelling Screen Trailers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-creative-edge-essential-afx-templates-without-investment/"><u>[Updated] 2024 Approved  Creative Edge  Essential AFX Templates Without Investment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ultimate-rotation-video-mounting/"><u>[Updated] 2024 Approved  Ultimate Rotation Video Mounting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-straightforward-approach-to-editing-age-on-tiktok/"><u>[Updated] In 2024, The Straightforward Approach to Editing Age on TikTok</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-inexpensive-high-quality-cameras-for-2024/"><u>[Updated] Inexpensive High-Quality Cameras for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-master-image-editing-with-these-top-8-tablets-beyond-filmoras-reach-for-2024/"><u>[Updated] Master Image Editing with These Top 8 Tablets  Beyond Filmora's Reach for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-platform-prowess-twitch-vs-youtube-comparison/"><u>[Updated] The Platform Prowess  Twitch vs YouTube Comparison</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-understanding-the-role-of-software-in-high-quality-screencasts-for-2024/"><u>[Updated] Understanding the Role of Software in High-Quality Screencasts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-grit-vs-glory-hitbox-versus-twitch-titans/"><u>2024 Approved  Grit vs Glory  Hitbox Versus Twitch Titans</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-optimal-audio-10-best-microphones-for-action-footage/"><u>2024 Approved  Optimal Audio  10 Best Microphones for Action Footage</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-seamless-transition-to-using-a-virtual-whiteboard-on-zoom-platforms/"><u>2024 Approved  Seamless Transition to Using a Virtual Whiteboard on Zoom Platforms</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/craft-perfection-transforming-your-vhs-graphics-online-for-2024/"><u>Craft Perfection  Transforming Your VHS Graphics Online for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-superior-features-of-samsung-galaxy-tab-s3-for-android-aficionados/"><u>Expert Analysis on the Superior Features of Samsung Galaxy Tab S^3 for Android Aficionados</u></a></li>
+<li><a href="https://video-capture.techidaily.com/guide-to-smooth-youtube-video-documentation-for-2024/"><u>Guide to Smooth YouTube Video Documentation for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-infinix-smart-8-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Infinix Smart 8 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-effortlessly-gain-premium-quality-pictures-online/"><u>How to Effortlessly Gain Premium Quality Pictures Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-pixel-8-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Pixel 8 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-samsung-galaxy-m34-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Samsung Galaxy M34 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-explore-innovative-ways-for-sound-capture-in-modern-windows-11-pcs/"><u>In 2024, Explore Innovative Ways for Sound Capture in Modern Windows 11 PCs</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-motorola-moto-g34-5g-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Motorola Moto G34 5G FRP Locks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-60-pro-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo 60 Pro 5G Phone without PIN</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-simplifying-video-content-on-vimeo-with-right-plan-selection/"><u>In 2024, Simplifying Video Content on Vimeo with Right Plan Selection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mediasphere-app-user-experience-report/"><u>MediaSphere App User Experience Report</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pixelperfect-toolkit-guidebook/"><u>PixelPerfect Toolkit Guidebook</u></a></li>
+<li><a href="https://driver-install.techidaily.com/simplify-system-improvement-upgrading-to-new-audio-drivers-in-ws11/"><u>Simplify System Improvement: Upgrading to New Audio Drivers in WS11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/synesthetic-screens-the-future-of-cinema-for-2024/"><u>Synesthetic Screens  The Future of Cinema for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/top-ten-pro-level-drones-imagery-reimagined/"><u>Top Ten Pro-Level Drones  Imagery Reimagined</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transform-your-snaps-into-art-with-snapseed-basics/"><u>Transform Your Snaps Into Art with Snapseed Basics</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-for-the-dxgkrnl-fatal-error-on-your-pc/"><u>Troubleshooting Steps for the Dxgkrnl Fatal Error on Your PC</u></a></li>
+</ul></div>
