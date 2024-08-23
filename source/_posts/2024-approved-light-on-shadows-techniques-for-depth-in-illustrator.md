@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Light on Shadows  Techniques for Depth in Illustrator\""
-date: 2024-07-11T23:48:16.469Z
-updated: 2024-07-12T23:48:16.469Z
+date: 2024-08-22T20:28:47.246Z
+updated: 2024-08-23T20:28:47.246Z
 tags: 
   - screen-recording
   - ai video
@@ -66,6 +66,9 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 
 Step9 Finally, it's time to export the image, and you're all done.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Best Alternative Way to Create 3D Text Animation
 
 You might not believe it, but there's an even more accessible and less expensive way to create 3D text effects. You can use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Compared to Illustrator, Filmora is much better for beginners and more affordable.
@@ -76,6 +79,9 @@ You might not believe it, but there's an even more accessible and less expensive
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -86,10 +92,16 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
@@ -102,6 +114,9 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -112,6 +127,9 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
@@ -149,3 +167,44 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-free-screenshot-and-recording-made-simple-for-android-users/"><u>[New] 2024 Approved  Free Screenshot & Recording Made Simple for Android Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-how-to-download-and-convert-youtube-twittersongs-videos-to-mp3-for-2024/"><u>[New] How to Download and Convert YouTube Twittersongs (Videos) to MP3 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-enthralling-audiences-mastery-in-using-text-in-films/"><u>[New] In 2024, Enthralling Audiences  Mastery in Using Text in Films</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-drone-editors-playbook-a-comprehensive-guide/"><u>[New] In 2024, The Drone Editor's Playbook  A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-master-mac-audio-an-in-depth-look-at-using-audacity-for-recordings/"><u>[New] Master Mac Audio  An In-Depth Look at Using Audacity for Recordings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-live-cricket-livestreams/"><u>[New] Mastering the Art of Live Cricket Livestreams</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-rising-above-the-rest-crafting-content-for-top-spot-at-vimeo-for-2024/"><u>[New] Rising Above the Rest  Crafting Content for Top Spot at Vimeo for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-silent-insights-into-improving-visual-elements-for-2024/"><u>[New] Silent Insights Into Improving Visual Elements for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-skill-elevation-rising-through-the-ranks-in-designing-for-2024/"><u>[New] Skill Elevation  Rising Through the Ranks in Designing for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-copyrighted-chords-navigating-music-uploads-to-insta/"><u>[Updated] 2024 Approved  Copyrighted Chords  Navigating Music Uploads to Insta</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enhance-conversations-with-custom-whatsapp-ringtones/"><u>[Updated] 2024 Approved  Enhance Conversations with Custom WhatsApp Ringtones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastery-guide-to-flawless-srt-file-construction/"><u>[Updated] 2024 Approved  Mastery Guide to Flawless SRT File Construction</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-non-sport-spectacles-in-the-top-ten-front-rows/"><u>[Updated] 2024 Approved  Non-Sport Spectacles in the Top Ten Front Rows</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-horizon-harmony-best-online-spots-for-high-res-sky-views-for-2024/"><u>[Updated] Horizon Harmony  Best Online Spots for High-Res Sky Views for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-how-to-develop-and-download-your-own-instagram-alerts/"><u>[Updated] In 2024, How to Develop & Download Your Own Instagram Alerts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-how-to-find-the-good-iphone-photography-angles/"><u>[Updated] In 2024, How to Find the Good iPhone Photography Angles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-installation-guide-for-movie-maker-6-version-6/"><u>[Updated] Installation Guide for Movie Maker 6 Version 6</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-quick-and-simple-ipad-conversion-turn-jpgpng-into-pdf-for-2024/"><u>[Updated] Quick and Simple iPad Conversion  Turn JPG/PNG Into PDF for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-sliding-to-victory-celebrating-the-best-in-snowboard-cross-winter-games-22/"><u>[Updated] Sliding to Victory  Celebrating the Best in Snowboard Cross, Winter Games '22</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-streamlining-virtual-meetings-integrating-zoom-with-skype-effortlessly/"><u>[Updated] Streamlining Virtual Meetings  Integrating Zoom with SKYPE Effortlessly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-techniques-for-maximum-zoom-utility-on-chromebook/"><u>2024 Approved  Innovative Techniques for Maximum Zoom Utility on Chromebook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-quintessential-screenplays-among-varied-genres/"><u>2024 Approved  Quintessential Screenplays Among Varied Genres</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-thumbnails-for-your-youtube-content-for-2024/"><u>Crafting Compelling Thumbnails for Your YouTube Content for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/drone-wizardry-and-the-mavic-pro-breakdown/"><u>Drone Wizardry and the Mavic Pro Breakdown</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/enhance-team-engagement-with-microsoft-teams-snap-camera-feature/"><u>Enhance Team Engagement with Microsoft Teams' Snap Camera Feature</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-vivo-s18e-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Vivo S18e Without Password | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-iphone-13-mini-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 13 mini Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-find-x7-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo Find X7 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone 11 Pro Max</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-hype-generator-chief-architect/"><u>In 2024, Hype Generator Chief Architect</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/jestjunction-tap-into-the-world-of-meme-magic-for-2024/"><u>JestJunction  Tap Into the World of Meme Magic for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-avi-video-trimming-software-for-windows-mac-android-iphone-and-online/"><u>New 2024 Approved Top AVI Video Trimming Software for Windows, MAC, Android, iPhone, and Online</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ps4-controller-color-signals-explained-recognizing-blue-white-red-or-orange-blinks/"><u>PS4 Controller Color Signals Explained: Recognizing Blue, White, Red, or Orange Blinks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/saving-screen-shots-in-windows-systems-for-2024/"><u>Saving Screen Shots in Windows Systems for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-top-10-wave-capturing-cams-for-2024/"><u>The Top 10 Wave-Capturing Cams for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-samsung-galaxy-f14-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Samsung Galaxy F14 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/top-tips-for-efficient-film-recording-on-pc-and-mobile/"><u>Top Tips for Efficient Film Recording on PC & Mobile</u></a></li>
+</ul></div>
