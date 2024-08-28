@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Dive Into Full Rotation Cinematography  9 Critical Tips\""
-date: 2024-07-11T23:41:31.248Z
-updated: 2024-07-12T23:41:31.248Z
+date: 2024-08-27T16:25:36.686Z
+updated: 2024-08-28T16:25:36.686Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  When shooting a 360 degree video, you need to have enough battery and SD card. When using a GoPro camera, it requires a lot of power and storage space, especially if you are going to make a long video. It is recommended that you buy battery packs to keep your cameras charged while shooting. You should also bring extra SD cards to ensure that you have adequate storage space.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. Make sure all the settings are the same
 
  When using multiple cameras, it is important to make sure that all the setting of each GoPro camera is the same. It is recommended to use manual mode, and turn off white balance, ISO, and color temperature. You should also use 4:3 ratio to ensure you have the largest coverage. That way editing the 360 degree will be easier. There will be fewer corrections to be made with the individual videos.
@@ -44,10 +47,16 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  You need an unipod to keep the camera setup stable at all times, and at the same time allow you to move with ease. Moving with a tripod can be hard. Another benefit of using a unipod is that it is easier to clean after the video shoot because it only has a single leg, compared to the tripod’s three legs.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ### 5\. Keep device at the same height as your line of sight
 
  The placement of the camera can affect the experience of the viewers. If the camera is too low, the viewers will feel like they are two feet shorter. It will be like see the world as a mouse. And if the camera is too high, the viewers will feel like they are giants. And if the viewers will be watching the 360 video with a VR headset, the effect will be exaggerated a lot more. That’s why it is important to keep the camera level with your line of sight.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### 6\. Keep all the videos in the same timeline for easier editing of the video
 
  When the videos are recorded in the same timeline, it will make it easier to edit the video. It is recommended to turn on all the GoPro cameras at the same time. Avoid using a remote control for the cameras because it will cost a lot of power. Another suggestion is to clap your hand around the device. That way you can identify the frame and make it easier to keep the six videos in the same timeline.
@@ -56,10 +65,16 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  When shooting a 360 degree video, you should consider using natural light or utilize a panoramic shooting studio. That way there will be no light device shown in the resulting video.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Hide the microphone
 
  For recording the audio, it is best to hide the camera. It is recommended to use a mini microphone when shooting the video. It will provide a more natural sound to other types of microphones. Hopefully in the future cameras are able to capture 360 degree sound that will make the sound shift as the viewer turns one’s head.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 9\. Keep an object in one camera
 
  It is important to keep the subject in one of the cameras or else it will be hard to stitch or edit the videos. Objects that are near the edge of the video should be static to make editing a lot easier.
@@ -68,6 +83,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -94,3 +112,46 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-crafting-cosmic-leaps-effects-for-fiction-films/"><u>[New] 2024 Approved  Crafting Cosmic Leaps  Effects for Fiction Films</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ideal-digital-talk-initiator/"><u>[New] 2024 Approved  Ideal Digital Talk Initiator</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-mastering-powerpoints-voice-recognition-feature/"><u>[New] 2024 Approved  Mastering PowerPoint's Voice Recognition Feature</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-quick-and-quirky-make-memes-with-kapwing-app/"><u>[New] 2024 Approved  Quick & Quirky  Make Memes with Kapwing App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-can-a-64gb-drive-manage-large-video-files/"><u>[New] Can a 64GB Drive Manage Large Video Files?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-and-downloading-personalized-insta-ringtones/"><u>[New] Crafting & Downloading Personalized Insta Ringtones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-compreenasive-look-the-new-era-of-vr-cams-by-samsung/"><u>[New] In 2024, Compreenasive Look  The New Era of VR Cams by Samsung</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-crafting-an-epic-unboxing-journey/"><u>[New] In 2024, Crafting an Epic Unboxing Journey</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-from-novice-to-leader-mastering-social-media-marketing-smm-in-10-steps/"><u>[New] In 2024, From Novice to Leader  Mastering Social Media Marketing (SMM) in 10 Steps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-journey-beyond-boundaries-secure-this-top-7-metavue-tech/"><u>[New] In 2024, Journey Beyond Boundaries - Secure This Top 7 Metavue Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-top-10-text-tools-elevating-creative-compositions/"><u>[New] In 2024, Top 10 Text Tools Elevating Creative Compositions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-innovative-android-camera-apps/"><u>[New] Innovative Android Camera Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-pages-for-stylish-shiny-3d-type-creations-for-2024/"><u>[New] Top Pages for Stylish, Shiny 3D Type Creations for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-gnasher-no-cost-and-paid-alternatives-to-lightroom/"><u>[Updated] 2024 Approved  Gnasher  No-Cost & Paid Alternatives to Lightroom</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-spreading-smiles-building-a-solid-foundation-in-gif-humor/"><u>[Updated] 2024 Approved  Spreading Smiles  Building a Solid Foundation in GIF Humor</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-art-of-attraction-how-to-increase-video-likes-on-tiktok/"><u>[Updated] 2024 Approved  The Art of Attraction  How to Increase Video Likes on TikTok</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-alternative-platforms-windows-media-cutting-tools/"><u>[Updated] Alternative Platforms  WIndows Media Cutting Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-art-of-transferring-tunes-between-platforms/"><u>[Updated] In 2024, The Art of Transferring Tunes Between Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-10-hidden-functions-to-enhance-your-canva-artistry/"><u>[Updated] In 2024, Top 10 Hidden Functions to Enhance Your Canva Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-score-big-with-these-8-no-cost-3d-videos-apps-for-windows-and-mac-os-for-2024/"><u>[Updated] Score Big with These 8 No-Cost 3D Videos Apps for Windows & Mac OS for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-mic-showdown-for-podcasters-for-2024/"><u>[Updated] Ultimate Mic Showdown for Podcasters for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-lava-blaze-2-pro-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-becoming-an-exclusive-guest-on-tiktok-live/"><u>2024 Approved  Becoming an Exclusive Guest on TikTok Live</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/continuous-display-recorder/"><u>Continuous Display Recorder</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/dji-phantom-3-standard-vs-advanced-vs-professional-vs-4k-for-2024/"><u>DJI Phantom 3 Standard Vs Advanced Vs Professional Vs 4K for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elite-virtual-reality-setups-for-uavs-for-2024/"><u>Elite Virtual Reality Setups for UAVs for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-vivo-t2-pro-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Vivo T2 Pro 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/high-resolution-sky-photography-10-preferred-pages-for-2024/"><u>High-Resolution Sky Photography  10 Preferred Pages for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-xiaomi-civi-3-disney-100th-anniversary-edition-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Xiaomi Civi 3 Disney 100th Anniversary Edition to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-audiophile-tools-best-audio-interfaces-for-podcasters/"><u>In 2024, Audiophile Tools  Best Audio Interfaces for Podcasters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elemental-story-articulation/"><u>In 2024, Elemental Story Articulation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-perfecting-profile-collaboration-add-linktree-to-your-tiktok-bio/"><u>In 2024, Perfecting Profile Collaboration  Add Linktree to Your TikTok Bio</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/premier-presenter-label-provider/"><u>Premier Presenter Label Provider</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/proficient-techniques-securely-embedding-a-url-in-tiktok-profiles-for-2024/"><u>Proficient Techniques  Securely Embedding a URL in TikTok Profiles for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/starter-mic-solutions-for-youtube-starters-for-2024/"><u>Starter Mic Solutions for YouTube Starters for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/supplementing-income-with-ai-assistant-jobs-and-home-built-pc-tips-for-enthusiasts/"><u>Supplementing Income with AI Assistant Jobs & Home-Built PC Tips for Enthusiasts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tailored-transfer-process-for-mobile-camera-roll-on-snapchat-for-2024/"><u>Tailored Transfer Process for Mobile Camera Roll on Snapchat for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-to-fixing-recurring-issues-with-pathfinder-wrath-of-the-righteous/"><u>Ultimate Guide to Fixing Recurring Issues with Pathfinder: Wrath of the Righteous</u></a></li>
+</ul></div>

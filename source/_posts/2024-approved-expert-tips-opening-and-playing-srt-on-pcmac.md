@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Expert Tips  Opening and Playing SRT on PC/Mac\""
-date: 2024-07-11T23:42:07.014Z
-updated: 2024-07-12T23:42:07.014Z
+date: 2024-08-27T16:24:58.672Z
+updated: 2024-08-28T16:24:58.672Z
 tags: 
   - screen-recording
   - ai video
@@ -79,6 +79,9 @@ One of the online tools that can be used for opening SRT subtitle files on your 
 
 ![open srt using aspose](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-06.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 Steps to **open SRT file online** using Aspose
 
 Step1 On your browser open the [Online SRT Viewer](https://products.aspose.app/pdf/viewer/srt).
@@ -107,6 +110,9 @@ Mac system. In the Media resource area, import the SRT subtitle files directly.
 
 ![open srt using wondershare filmora 1](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-07.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 Step2 Next, double-click on the selected SRT file or right-click on the timeline and then choose the Advanced Edit option.
 
 ![open srt using wondershare filmora 2](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-08.jpg)
@@ -117,6 +123,9 @@ Step4 Once the subtitle file is edited, right-click and then choose the Export S
 
 ![open srt using wondershare filmora 3](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-09.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Final Words
 
 The above listed are several ways by which an SRT subtitle file can be opened on your Windows and Mac systems. Choose the method that is suitable for your device and fulfils your requirements. Out of the listed methods, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) works as a great choice if you are looking for a tool that not only opens the subtitle files but also lets you perform a wide range of video editing tasks.
@@ -133,16 +142,25 @@ Steps to **open subtitles SRT** files in Windows 10/11
 
 ![open srt on windows 1](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-02.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Select Word or Notepad in the Open with window. You can choose the option- “Always use the selected program to open this type of file” so that all the srt files are opened using this selected program.
 
 ![open srt on windows 2](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-03.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Next click on the OK button and then double click on the file that will open in Notepad or WordPad as selected.
 
 ![open srt on windows 3](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-04.jpg)
 
 1. The SRT file will open in the text editor and you can even edit it if required.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Open SRT Files on Mac
 
 A multimedia player supporting the SRT feature will enable watching the videos with these subtitles. On the Mac system, there are several programs available that can be used for opening the SRT files like ObjectifMac, VLC Media Player, SubCleaner, and more. Also, you can even use the text editor-TextEdit for Mac. Simply find the desired SRT file and choose to open it using the TextEdit program. **QuickTime SRT** can also be used for opening and playing the SRT files.
@@ -151,6 +169,13 @@ We recently covered some concrete methods in detail of **how to open SRT file on
 
 ![text edit for mac](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-05.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Part 4: Open the File with Online SRT Viewers \[Mac & Windows\]
 
 In addition to the desktop programs, there are several online tools available as well that allow opening the SRT subtitle files on your Windows and Mac systems. These online programs are simple tools that need no software download or installation and work straight from the browser. Though these online tools are simple to use, they are internet dependent and the features supported are also limited.
@@ -169,6 +194,9 @@ Step3 The tool will render the file and you can easily view it.
 
 Step4 You can easily navigate between the pages and even zoom in and zoom out.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: Open the File with Video Editing Software \[Mac & Windows\]
 
 Another way to open as well as edit your SRT files is by using video editing software and one such Windows and Mac-compatible professional tool is [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). This feature-packed software can let you perform all basic as well as advanced editing functions including adding as well as editing the SRT subtitle files.
@@ -187,10 +215,16 @@ Mac system. In the Media resource area, import the SRT subtitle files directly.
 
 ![open srt using wondershare filmora 1](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-07.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step2 Next, double-click on the selected SRT file or right-click on the timeline and then choose the Advanced Edit option.
 
 ![open srt using wondershare filmora 2](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-08.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Step3 Now, the software can be used for performing an array of SRT editing functions like editing the time code, changing the subtitles, adding, removing, and merging the subtitle strips, changing the subtitle style, and more.
 
 Step4 Once the subtitle file is edited, right-click and then choose the Export Subtitle File option.
@@ -226,3 +260,43 @@ The above listed are several ways by which an SRT subtitle file can be opened on
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-cropped-frames-in-media-pro-whats-the-cause/"><u>[New] 2024 Approved  Cropped Frames in Media Pro  What's the Cause?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-straightforward-tips-for-mastering-simple-hdr-photography/"><u>[New] 2024 Approved  Straightforward Tips for Mastering Simple HDR Photography</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unlock-windows-xp-professional-for-media-development/"><u>[New] 2024 Approved  Unlock Windows XP Professional for Media Development</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-venture-into-virtuality-comprehensively-reviewing-top-10-vr-streamers/"><u>[New] 2024 Approved  Venture Into Virtuality  Comprehensively Reviewing Top 10 VR Streamers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-cross-platform-screen-recording/"><u>[New] Cross-Platform Screen Recording</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-elevate-your-content-on-facebook-using-wirecast/"><u>[New] Elevate Your Content on Facebook Using Wirecast</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-how-to-set-up-an-impromptu-zoom-meeting-with-your-android-smartphone/"><u>[New] In 2024, How to Set Up an Impromptu Zoom Meeting with Your Android Smartphone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-perfect-your-android-experience-with-screen-and-video-tech/"><u>[New] In 2024, Perfect Your Android Experience with Screen & Video Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-combo-of-virtual-reality-tech/"><u>[New] In 2024, The Ultimate Combo of Virtual Reality Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-underdogs-playbook-livestream-youtube-on-smartphones-no-million-followers/"><u>[New] In 2024, The Underdog's Playbook  Livestream YouTube on Smartphones, No Million Followers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlock-new-speech-potentials-on-chrome-ranked-top-voice-alteration-tools-for-2024/"><u>[New] Unlock New Speech Potentials on Chrome  Ranked Top Voice Alteration Tools for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-flip-shift-and-merge-videos-for-professional-android-results/"><u>[Updated] 2024 Approved  Flip, Shift & Merge Videos for Professional Android Results</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-perfect-package-presentation-transformative-openings/"><u>[Updated] 2024 Approved  Perfect Package Presentation  Transformative Openings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-elevate-your-downloads-to-4k-heaven-with-top-apps/"><u>[Updated] Elevate Your Downloads to 4K Heaven with Top Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-hasten-haste-in-videos-with-top-apps-android-for-2024/"><u>[Updated] Hasten Haste in Videos with Top Apps, Android for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-evaluating-video-performance-vlc-versus-mx/"><u>[Updated] In 2024, Evaluating Video Performance  VLC Versus MX</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-navigating-instagrams-pathway-to-picture-posting/"><u>[Updated] In 2024, Navigating Instagram's Pathway to Picture Posting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-step-by-step-guide-to-creating-virtual-space-with-iphone/"><u>[Updated] In 2024, Step-by-Step Guide to Creating Virtual Space with iPhone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-complete-guide-to-harnessing-power-of-movie-maker-in-windows-8/"><u>[Updated] In 2024, The Complete Guide to Harnessing Power of Movie Maker in Windows 8</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-kickstart-cinematic-craft-install-xp-movie-maker-for-2024/"><u>[Updated] Kickstart Cinematic Craft  Install XP Movie Maker for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-comprehensive-guide-to-farming-on-ginger-islet-for-2024/"><u>[Updated] The Comprehensive Guide to Farming on Ginger Islet for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/empower-yourself-top-10-inspirational-movie-selections-for-2024/"><u>Empower Yourself  Top 10 Inspirational Movie Selections for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/freedomsongextractors-evolution-in-the-2024-landscape/"><u>FreedomSongExtractor's Evolution in the 2024 Landscape</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/immersion-boosting-backdrops-for-broadcasts/"><u>Immersion-Boosting Backdrops for Broadcasts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fbs-hot-five-most-captivating-vids/"><u>In 2024, FB's Hot Five Most Captivating Vids</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-c55-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Realme C55 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-masterful-video-text-techniques-ranked/"><u>In 2024, Masterful Video Text Techniques - Ranked</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-collage-artistry-with-precision/"><u>In 2024, Mastering Collage Artistry with Precision</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-quick-access-to-quality-sound-with-easy-vrecorder-downloads/"><u>In 2024, Quick Access to Quality Sound with Easy VRecorder Downloads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-ultimate-guide-to-action-hunting-gear/"><u>In 2024, The Ultimate Guide to Action Hunting Gear</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-depth-look-at-sonys-x1000v-hd-recorder-for-2024/"><u>In-Depth Look at Sony's X1000V HD Recorder for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/simplified-methods-to-record-gotomeeting-chats/"><u>Simplified Methods to Record GoToMeeting Chats</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/skip-unwanted-podcast-advice-on-the-spotify-app/"><u>Skip Unwanted Podcast Advice on the Spotify App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-complete-guide-to-adding-powerful-narrations-for-2024/"><u>The Complete Guide to Adding Powerful Narrations for 2024</u></a></li>
+</ul></div>
