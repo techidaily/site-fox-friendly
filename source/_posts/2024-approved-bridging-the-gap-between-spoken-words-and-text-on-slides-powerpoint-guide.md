@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Bridging the Gap Between Spoken Words and Text on Slides  PowerPoint Guide\""
-date: 2024-07-11T23:37:55.830Z
-updated: 2024-07-12T23:37:55.830Z
+date: 2024-08-31T22:29:03.555Z
+updated: 2024-09-01T22:29:03.555Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,9 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## Part 2: How do I dictate PowerPoint for Mac?
 
 It is easy to use PowerPoint on a Mac after activating the **“dictation”** button.
@@ -71,10 +74,19 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 ![reselect the option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * From “all commands,” locate the speak option and add the option. Upon selection, the microphone button appears on the home screen of the PowerPoint.
 
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ### **Use the speak option**
 
 Now you can click on the microphone button and speak to add text.
@@ -91,6 +103,15 @@ Ensure the background noise does not interrupt your speech.
 
 Exploit the user dictionary. Visit Settings > **Languages**, and info > **Advanced** \> Personal word reference, and you can add last names and other “unofficial” words.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## Part 3: How to enable real-time speech-to-text translation in PowerPoint
 
 The only difference between real-time speech-to-text translation and other forms is the real-life experience. There are cases you need to activate speech-to-text in a life event. PowerPoint supports this through the “speech-to-text” feature available on the platform.
@@ -103,18 +124,27 @@ Real-time display and translation are suitable for the multi-language purpose. Y
 
 ![click on the slide show](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 * After setting the spoken language, move on to set the **subtitle/caption language.** The subtitle or caption language is the translated language. PowerPoint allows you to translate speech without using an application. You can make a multi-language selection without much involvement - just settings.
 
 **Tips:** Many options are available for easy use and accessibility. Aside from the multi-language selection, you can explore the “slide show” settings for better understanding. You may see other options that best illustrate your need for translation in real-time on PowerPoint.
 
 When you activate the real-time translation on PowerPoint, the settings occur in two stages: slideshow view and presenter view. You can vary the changes based on your view (as the presenter) or what people see (slideshow view).
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## Part 4: How to make speech-to-text and translation to create PowerPoint videos
 
 When you want to make perfect PPT videos, you can use Filmora's STT feature. Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora version 13.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Top Adavantages of Filmora STT
 
 * Supports direct transcription of bilingual subtitles.
@@ -133,12 +163,19 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## FAQs
 
 ### **Does speech-to-text require the internet?**
@@ -149,6 +186,11 @@ No, it doesn't. However, you may need the internet to set up some settings.
 
 No. The feature is free for all registered users on PowerPoint.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### **Do you need an additional microphone?**
 
 You can use your device's in-built microphone. However, you may need external gear for efficiency.
@@ -165,6 +207,9 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,3 +230,46 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-become-a-digital-native-in-the-metaverse-now/"><u>[New] Become a Digital Native in the Metaverse Now</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-boosting-creativity-the-most-outstanding-free-slide-show-templates-for-2024/"><u>[New] Boosting Creativity  The Most Outstanding Free Slide Show Templates for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-decoding-the-legal-labyrinth-of-sharing-music-on-instagram/"><u>[New] Decoding the Legal Labyrinth of Sharing Music on Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-exclusive-directory-free-visual-content-oasis-online-for-2024/"><u>[New] Exclusive Directory  Free Visual Content Oasis Online for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-find-the-finest-websites-with-free-game-of-thrones-audio-for-2024/"><u>[New] Find the Finest Websites with Free Game of Thrones Audio for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-high-definition-at-its-peak-top-10-4k-screens-for-2024/"><u>[New] High Definition at Its Peak  #Top 10 4K Screens for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-harnessing-free-clip-art-legally/"><u>[New] In 2024, Harnessing Free Clip Art Legally</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-mastering-airdrop-issues-quick-solutions-for-iphoneipadmac-users/"><u>[New] In 2024, Mastering AirDrop Issues  Quick Solutions for iPhone/iPad/Mac Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unleash-your-twitter-potential-premium-video-upload-tools/"><u>[New] In 2024, Unleash Your Twitter Potential  Premium Video Upload Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-experts-playbook-for-transforming-srt-into-diverse-formats-for-2024/"><u>[New] The Expert's Playbook for Transforming SRT Into Diverse Formats for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlocking-secrets-of-strong-openings-podcasters-guidebook/"><u>[New] Unlocking Secrets of Strong Openings  Podcaster's Guidebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unparalleled-top-5-lightweight-cinematography-devices/"><u>[New] Unparalleled Top 5 Lightweight Cinematography Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-6-video-techniques-that-grab-eyes/"><u>[New] Unveiling 6 Video Techniques That Grab Eyes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-virtual-reality-wars-which-tech-rules-the-gamers-world/"><u>[New] Virtual Reality Wars  Which Tech Rules the Gamer’s World</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-xtreme-old-phone-photos-the-ultimate-archive-for-2024/"><u>[New] Xtreme Old Phone Photos – The Ultimate Archive for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-audio-alchemy-transforming-videos-through-music-addition-and-cutting-for-2024/"><u>[Updated] Audio Alchemy  Transforming Videos Through Music Addition & Cutting for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-broadcasting-duels-is-wirecast-superior-to-obs-for-2024/"><u>[Updated] Broadcasting Duels  Is Wirecast Superior to OBS for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-crafting-cinematic-experiences-on-your-desktop-with-windows-hdr/"><u>[Updated] Crafting Cinematic Experiences on Your Desktop with Windows HDR</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dynamic-images-from-static-pixels-from-photos-to-video/"><u>[Updated] Dynamic Images From Static Pixels  From Photos to Video</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-illuminate-your-images-adding-life-with-illustrator-motion/"><u>[Updated] Illuminate Your Images  Adding Life with Illustrator Motion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-xsplit-archive-detailed-video-game-analyses/"><u>[Updated] In 2024, XSplit Archive  Detailed Video Game Analyses</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-transform-your-videos-swiftly-with-these-top-8-iphone-apps/"><u>[Updated] Transform Your Videos Swiftly with These Top 8 iPhone Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-your-guide-to-premium-metaverse-goggles-and-headsets-for-2024/"><u>[Updated] Your Guide to Premium Metaverse Goggles & Headsets for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-complete-immersive-camera-review/"><u>2024 Approved  Complete Immersive Camera Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-video-to-music-selecting-the-cheapest-online-converters/"><u>2024 Approved  From Video to Music  Selecting the Cheapest Online Converters</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-illustrate-effortlessly-prime-ios-design-software/"><u>2024 Approved  Illustrate Effortlessly  Prime iOS Design Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-video-prowess-comparison-the-battle-between-cameras/"><u>2024 Approved  Video Prowess Comparison  The Battle Between Cameras</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elevating-your-ride-the-sj4000-must-haves-list-for-2024/"><u>Elevating Your Ride - The SJ4000 Must-Haves List for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Phones with/without a PC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-fluid-formats-and-finesse-the-leading-video-apps-in-big-sur-macos/"><u>In 2024, Fluid Formats and Finesse  The Leading Video Apps in Big Sur macOS</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-vivo-s17e-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Vivo S17e FRP?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-ideal-video-editing-software-enhance-your-webcam-content/"><u>In 2024, Ideal Video Editing Software  Enhance Your Webcam Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-secure-your-free-lut-resources-top-ten-list/"><u>In 2024, Secure Your Free LUT Resources - Top Ten List</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-key-to-social-media-dominance-learning-the-craft-of-self-replication-on-tiktok/"><u>In 2024, The Key to Social Media Dominance  Learning the Craft of Self-Replication on TikTok</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unseen-wonders-in-vlcs-arsenal-of-features/"><u>In 2024, Unseen Wonders in VLC's Arsenal of Features</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-the-complete-guide-to-adding-and-modifying-soundtracks-in-your-diy-video-projects-for-fee-free-options/"><u>New 2024 Approved The Complete Guide to Adding and Modifying Soundtracks in Your DIY Video Projects for Fee-Free Options</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/next-gen-sky-dome-cutting-edge-cloud-services-of-2024/"><u>Next-Gen Sky Dome  Cutting-Edge Cloud Services of 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/savory-storytelling-in-video-cooking-top-7-insights/"><u>Savory Storytelling in Video Cooking - Top 7 Insights</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-trim-cut-and-edit-divx-videos-for-free-top-tools/"><u>Updated In 2024, Trim, Cut, and Edit Divx Videos for Free Top Tools</u></a></li>
+</ul></div>
