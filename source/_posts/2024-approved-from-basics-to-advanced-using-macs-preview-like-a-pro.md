@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Basics to Advanced  Using Mac's Preview Like a Pro\""
-date: 2024-07-11T23:33:31.680Z
-updated: 2024-07-12T23:33:31.680Z
+date: 2024-09-05T00:37:54.360Z
+updated: 2024-09-06T00:37:54.360Z
 tags: 
   - screen-recording
   - ai video
@@ -64,6 +64,18 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -80,6 +92,12 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -92,6 +110,12 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -108,6 +132,12 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -152,6 +182,18 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -186,6 +228,18 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -212,3 +266,67 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-crafting-a-submission-that-works-on-apples-platform/"><u>[New] 2024 Approved  Crafting a Submission that Works on Apple's Platform</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-foundations-of-virtual-reality-speak/"><u>[New] 2024 Approved  Foundations of Virtual Reality Speak</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-harness-the-full-potential-of-your-videos-with-simple-cuts-on-windows/"><u>[New] 2024 Approved  Harness the Full Potential of Your Videos with Simple Cuts on Windows</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-pixel-perfect-memes-with-kinemaster/"><u>[New] 2024 Approved  Pixel Perfect Memes with KineMaster</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-reveling-in-the-highs-of-nature-with-garmins-ultra-30/"><u>[New] 2024 Approved  Reveling in the Highs of Nature with Garmin's Ultra 30</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-5-emulators-for-reviving-ps1-classics-on-pc/"><u>[New] 2024 Approved  Top 5 Emulators for Reviving PS1 Classics on PC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ae-text-styles-the-ultimate-selection-for-2024/"><u>[New] AE Text Styles  The Ultimate Selection for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capture-every-detail-on-mac-free-in-2024/"><u>[New] Capture Every Detail on Mac - Free, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-download-free-youtube-pics-and-templates-for-2024/"><u>[New] Download Free YouTube Pics & Templates for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expert-tips-to-triumph-in-spotifys-ad-marketplace/"><u>[New] Expert Tips to Triumph in Spotify's Ad Marketplace</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-engaging-life-journeys-in-video-formats/"><u>[New] In 2024, Crafting Engaging Life Journeys in Video Formats</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-easier-than-ever-simplified-hdr-photography-insights/"><u>[New] In 2024, Easier Than Ever  Simplified HDR Photography Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-enhancing-room-luminosity-using-daylight-tactics/"><u>[New] In 2024, Enhancing Room Luminosity Using Daylight Tactics</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-builds-for-maximum-mc-safety/"><u>[New] In 2024, Top Builds for Maximum MC Safety</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-magix-vision-control-a-deep-dive/"><u>[New] MAGIX Vision Control  A Deep Dive</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-quiet-curator-of-online-chronicles-for-2024/"><u>[New] Quiet Curator of Online Chronicles for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ski-and-snow-gear-best-cams-compiled-in-7-lists-for-2024/"><u>[New] Ski and Snow Gear  Best Cams Compiled in 7 Lists for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-essential-blueprint-for-melding-linktree-into-tiktok-profiles-for-2024/"><u>[New] The Essential Blueprint for Melding Linktree Into TikTok Profiles for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-total-360-giroptic-vr-capture-examination-for-2024/"><u>[New] Total 360 Giroptic VR Capture Examination for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-aerial-precision-mavic-pro-analysis-for-2024/"><u>[New] Unveiling Aerial Precision - Mavic Pro Analysis for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-virtual-efficiency-boosted-setting-up-zoom-right-for-2024/"><u>[New] Virtual Efficiency Boosted  Setting Up Zoom Right for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-fiscal-flyers-top-5-low-cost-aerial-vehicles/"><u>[Updated] 2024 Approved  Fiscal Flyers  Top 5 Low-Cost Aerial Vehicles</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-flipping-order-inverting-the-flow-of-your-youtube-watch-list/"><u>[Updated] 2024 Approved  Flipping Order  Inverting the Flow of Your YouTube Watch List</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-innovative-attention-grabber-designer/"><u>[Updated] 2024 Approved  Innovative Attention Grabber Designer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-laugh-ledger-the-premier-free-meme-repository/"><u>[Updated] 2024 Approved  Laugh Ledger  The Premier FREE Meme Repository</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-catching-life-in-motion-iphones-burst-capability/"><u>[Updated] Catching Life in Motion  IPhone's Burst Capability</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-digital-creativity-unleashed-top-montage-apps-for-iphone-android-users-for-2024/"><u>[Updated] Digital Creativity Unleashed  Top Montage Apps for iPhone, Android Users for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-embed-audios-in-microsoft-powerpoint-slides/"><u>[Updated] Embed Audios in Microsoft PowerPoint Slides</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-expert-insights-into-mov-file-recording-on-latest-win-11-edition/"><u>[Updated] Expert Insights Into .MOV File Recording on Latest Win 11 Edition</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ultimate-nintendo-switch-fighter-showcase-max-156/"><u>[Updated] In 2024, Ultimate Nintendo Switch Fighter Showcase (Max 156)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-perfecting-webp-conversion-to-jpeg-format/"><u>[Updated] Perfecting WebP Conversion to JPEG Format</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-skys-dynamic-range-masterpieces-website-roundup/"><u>[Updated] Sky's Dynamic Range Masterpieces - Website Roundup</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-tactics-for-snagging-free-visual-frame-content/"><u>[Updated] Tactics for Snagging Free Visual Frame Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-future-speaks-inspirational-metaverse-quotes-with-arvr/"><u>[Updated] The Future Speaks  Inspirational Metaverse Quotes with AR/VR</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-mastering-windows-11-photo-and-video-import-magic/"><u>2024 Approved  Mastering Windows 11  Photo & Video Import Magic</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-sony-xperia-1-v-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Sony Xperia 1 V FRP Bypass Instantly</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-solutions-for-microsofts-print-to-pdf-not-working-on-windows-11/"><u>Effective Solutions for Microsoft’s Print to PDF Not Working on Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/faster-than-ever-revolutionary-methods-to-speed-up-fb-videos/"><u>Faster Than Ever  Revolutionary Methods to Speed Up FB Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/from-still-shots-to-movies-mastering-logitech-webcam-videos/"><u>From Still Shots to Movies  Mastering Logitech Webcam Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-samsung-galaxy-a14-4g-is-unlocked-by-drfone-android/"><u>How To Check if Your Samsung Galaxy A14 4G Is Unlocked</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-samsung-galaxy-m14-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Samsung Galaxy M14 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-oppo-reno-11f-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Oppo Reno 11F 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-10-best-cinema-cameras-for-filmmaking-from-beginner-to-professional/"><u>In 2024, 10 Best Cinema Cameras for Filmmaking From Beginner to Professional</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-motorola-edge-40-neo-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Motorola Edge 40 Neo to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-a-compreeved-look-at-effective-spotify-ad-implementation/"><u>In 2024, A Compreeved Look at Effective Spotify Ad Implementation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-instructors-handbook-on-video-assisted-pedagogy/"><u>In 2024, The Instructor's Handbook on Video-Assisted Pedagogy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-uploading-and-embedding-srt-text-in-social-media-videos/"><u>In 2024, Uploading and Embedding SRT Text in Social Media Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/innovation-meets-opportunity-the-leading-7-nft-generation-tools/"><u>Innovation Meets Opportunity  The Leading 7 NFT Generation Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-15-pro-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone 15 Pro Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/method-for-integrating-bots-with-your-discord-server-configuration/"><u>Method for Integrating Bots with Your Discord Server Configuration</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-discover-the-power-of-final-cut-pro-90-day-free-trial-available/"><u>New Discover the Power of Final Cut Pro 90-Day Free Trial Available</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pro-level-clarity-top-8k-cameras-for-the-ultimate-picture/"><u>Pro-Level Clarity  Top 8K Cameras for the Ultimate Picture</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/seize-the-moment-download-outro-samples-freepaid/"><u>Seize the Moment  Download Outro Samples (Free/Paid)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/smooth-snapshot-mastery-eliminate-shakes/"><u>Smooth Snapshot Mastery - Eliminate Shakes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/speedy-shots-that-captivate-audiences/"><u>Speedy Shots That Captivate Audiences</u></a></li>
+<li><a href="https://fox-that.techidaily.com/spot-the-clues-9-symptoms-of-h2o-damaged-iphones-revealed/"><u>Spot the Clues: 9 Symptoms of H2O-Damaged iPhones Revealed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unveiling-the-metaverse-and-multimetase-core-disparities-explored/"><u>Unveiling the Metaverse & MultiMetase  Core Disparities Explored</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-samsung-galaxy-s23-ultra-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Samsung Galaxy S23 Ultra? Fixed | Dr.fone</u></a></li>
+</ul></div>

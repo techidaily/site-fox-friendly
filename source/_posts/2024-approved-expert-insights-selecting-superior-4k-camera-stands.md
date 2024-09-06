@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Expert Insights  Selecting Superior 4K Camera Stands\""
-date: 2024-07-11T23:34:02.033Z
-updated: 2024-07-12T23:34:02.033Z
+date: 2024-09-05T00:37:19.255Z
+updated: 2024-09-06T00:37:19.255Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,12 @@ The video tutorial is made with Filmora8.X version but you can achieve the stabi
 
 ![tilta-universal-shoulder-rig](https://images.wondershare.com/filmora/article-images/tilta-universal-shoulder-rig.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Overview:_**
 
 It comes with a shoulder pad and baseplate where performance is increased with mounted follow focus, perfect handgrip, 3 well curved support arms and advanced lens support. It offers compatibility for most of DSLR devices, video camcorders and the large camera units. They offer great flexibility in handling and the custom rolling case allows better space for all components.
@@ -68,6 +74,12 @@ It comes with a shoulder pad and baseplate where performance is increased with m
 
 ![ikan-flyweight-DSLR-shoulder-rig](https://images.wondershare.com/filmora/article-images/ikan-flyweight-DSLR-shoulder-rig.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Overview:_**
 
 This lightweight DSLR rig offers perfect compatibility to DSLR cameras and mid-sized or small camcorders. These rigs help in easy camera positioning with effortless adjustments at eye level. The kit includes foam grip handles to make it handy, movable arms for easy adjustments, base plate as well as offset piece that assists in better positioning at eye level. This camera rig ensures highly balanced performance even while allowing easy placement for several accessories.
@@ -86,6 +98,18 @@ This lightweight DSLR rig offers perfect compatibility to DSLR cameras and mid-s
 
 **_Weight:_** 2.72 kg
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Movo MFF400 DSLR Rig
 
 ![movo-dslr-rig](https://images.wondershare.com/filmora/article-images/movo-dslr-rig.jpg)
@@ -107,6 +131,12 @@ This premium motorized type shoulder rig offers compatibility with almost all po
 
 **_Dimensions:_** 25.7x10x5.5 inches
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. FILMCITY Shoulder Rig Kit for Blackmagic Cinema Camera
 
 ![filmcity-shoulder-rig-for-bccs](https://images.wondershare.com/filmora/article-images/filmcity-shoulder-rig-for-bccs.jpg)
@@ -128,10 +158,22 @@ This durable rig is well known for its classic performance with delivery of high
 
 **_Dimensions:_** 16x12x7 inches.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. FILMCITY DSLR Camera Shoulder Support Rig Kit
 
 ![filmcity-dslr-camera-shoulder-rig](https://images.wondershare.com/filmora/article-images/filmcity-dslr-camera-shoulder-rig.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Overview:_**
 
 This rig is designed to offer wide range of features even at a reasonable price range. It offers compatibility with all popular HDV, DV, camcorders and DSLR cameras. The soft padded design makes it more comfortable so that professionals can work tirelessly for hours. Filmcity DSLR Support Rig is capable enough to maintain smooth shooting experience while minimizing vibrations and shakes. The multiple mounting points allow users to adjust it up to suitable height with proper angle and direction adjustment.
@@ -148,6 +190,12 @@ This rig is designed to offer wide range of features even at a reasonable price 
 
 **_Dimensions:_** 13x13x6 inches
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Fotodiox WonderRig Elite
 
 ![fotodiox-wonder-rig-elite](https://images.wondershare.com/filmora/article-images/fotodiox-wonder-rig-elite.jpg)
@@ -200,6 +248,12 @@ This durable rig is designed using stainless steel and aluminium material; you c
 
 **_Dimensions:_** 24x18x18 inches.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Neewer DSLR Shoulder Mount
 
 ![neewer-dslr-shoulder](https://images.wondershare.com/filmora/article-images/neewer-dslr-shoulder.jpg)
@@ -224,6 +278,12 @@ Here you have a super lightweight choice for your field recording needs and it f
 
 **_Dimensions:_** 3x6.6x15.3 inches.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9\. IVATION
 
 ![ivation-dslr-rig-shoulder-mount](https://images.wondershare.com/filmora/article-images/ivation-dslr-rig-shoulder-mount.jpg)
@@ -245,6 +305,18 @@ It is light in weight so you can enjoy hour long recording with this rig. Film c
 
 **_Dimensions:_** 12.2x7.2x3.7 inches.
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\. FOTGA DP3000 DSLR Shoulder Rig Mount
 
 ![fotga-dp3000-dslr-shoulder-rig](https://images.wondershare.com/filmora/article-images/fotga-dp3000-dslr-shoulder-rig.jpg)
@@ -302,3 +374,68 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-full-disclosure-unveiling-all-about-google-podcasts-app/"><u>[New] 2024 Approved  Full Disclosure  Unveiling All About Google Podcasts App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-to-remove-images-background-in-canva/"><u>[New] 2024 Approved  How to Remove Image's Background In Canva</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-techniques-for-intense-online-visualization/"><u>[New] 2024 Approved  Techniques for Intense Online Visualization</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-breaking-the-code-30-novel-window-11-strategies-exposed-for-2024/"><u>[New] Breaking the Code  30 Novel WINDOW 11 Strategies Exposed for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-holistic-health-approaches-with-tech/"><u>[New] Holistic Health Approaches with Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-discerning-divergence-360-video-vs-virtual-reality/"><u>[New] In 2024, Discerning Divergence  360° Video Vs. Virtual Reality</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-elevate-your-intellect-with-top-11-general-knowledge-quiz-networks/"><u>[New] In 2024, Elevate Your Intellect with Top 11 General Knowledge Quiz Networks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-whimsical-videoland-assessment/"><u>[New] In 2024, Whimsical Videoland Assessment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-magix-music-maker-2024-the-next-generation-software/"><u>[New] Magix Music Maker 2024  The Next Generation Software?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-revised-interview-guidelines-for-captivating-listeners-for-2024/"><u>[New] Revised Interview Guidelines for Captivating Listeners for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sound-seekers-free-beats-detection-tools-for-2024/"><u>[New] Sound Seekers  Free Beats Detection Tools for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-syma-x8c-mastering-advanced-maneuvers/"><u>[New] Syma X8C  Mastering Advanced Maneuvers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-essential-guide-free-and-trusted-vlc-downloads-for-mac-os-x/"><u>[New] The Essential Guide  Free & Trusted VLC Downloads for Mac OS X</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ultimate-selection-of-budget-friendly-4k-projector-brands-for-2024/"><u>[New] Ultimate Selection of Budget-Friendly 4K Projector Brands for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-whirling-installer-range-for-2024/"><u>[New] Whirling Installer Range for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-best-performing-8-recording-software-picks/"><u>[Updated] 2024 Approved  Best Performing 8 Recording Software Picks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-instagram-to-tik-tok-integration-strategy/"><u>[Updated] 2024 Approved  Instagram to Tik Tok Integration Strategy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-mystery-behind-professional-looking-time-lapses-in-gopro/"><u>[Updated] 2024 Approved  Unveiling the Mystery Behind Professional-Looking Time Lapses in GoPro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-conquering-hdr-photography-with-ease/"><u>[Updated] Conquering HDR Photography with Ease</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dive-into-multi-tasking-mastery-with-chromes-pip-feature/"><u>[Updated] Dive Into Multi-Tasking Mastery with Chrome's PIP Feature</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-enhanced-imagery-at-your-fingertits-iphone-and-androids-sticker-boost-apps-for-2024/"><u>[Updated] Enhanced Imagery at Your Fingertits – iPhone and Android's Sticker-Boost Apps for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-eradicating-warped-imagery-a-complete-guide-to-fixing-gopro-fish-eye/"><u>[Updated] Eradicating Warped Imagery  A Complete Guide to Fixing GoPro Fish Eye</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-essential-techniques-for-changing-music-tempo-in-spotify/"><u>[Updated] Essential Techniques for Changing Music Tempo in Spotify</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-decoding-photopeas-art-of-backdrop-elimination/"><u>[Updated] In 2024, Decoding Photopea's Art of Backdrop Elimination</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-disclosing-the-top-10-hidden-story-enthusiasts/"><u>[Updated] In 2024, Disclosing the Top 10 Hidden Story Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-complete-guide-to-crafting-youtube-masterpieces/"><u>[Updated] In 2024, The Complete Guide to Crafting YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-learn-how-to-create-compelling-youtube-closures-economically-for-2024/"><u>[Updated] Learn How To Create Compelling YouTube Closures Economically for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-lowering-sounds-strength-progressively-with-lumafusion/"><u>[Updated] Lowering Sounds' Strength Progressively with Lumafusion</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-revolutionary-approaches-to-share-fb-videos-on-whatsapp-for-2024/"><u>[Updated] Revolutionary Approaches to Share FB Videos on WhatsApp for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-method-for-producing-captivating-video-thumbnails/"><u>[Updated] Step-by-Step Method for Producing Captivating Video Thumbnails</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-streamlining-audacity-for-superior-audio-capture-for-2024/"><u>[Updated] Streamlining Audacity for Superior Audio Capture for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-streamlining-your-meetings-using-zoom-with-win11-for-2024/"><u>[Updated] Streamlining Your Meetings  Using Zoom with Win11 for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-xiaomi-redmi-13c-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Xiaomi Redmi 13C without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-honor-90-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Honor 90 by Name | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/analyzing-the-strengths-and-weaknesses-of-chatgpt-plus-for-users/"><u>Analyzing the Strengths & Weaknesses of ChatGPT Plus for Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/avoiding-overstimulation-in-your-gaming-journey/"><u>Avoiding Overstimulation in Your Gaming Journey</u></a></li>
+<li><a href="https://blog-min.techidaily.com/copying-encrypted-dvd-content-made-easy-with-vlc-player-and-handbrake-software/"><u>Copying Encrypted DVD Content Made Easy with VLC Player and HandBrake Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-correcting-issues-with-unresponsive-bose-speakers/"><u>Diagnosing and Correcting Issues with Unresponsive Bose Speakers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/dive-deep-into-vivacut-editor-review-and-tutorial/"><u>Dive Deep Into VivaCut  Editor Review & Tutorial</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-tecno-spark-10-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Tecno Spark 10 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-digital-frontiers-with-toms-hardware-experts/"><u>Exploring Digital Frontiers with Tom's Hardware Experts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/go-beyond-basic-top-10-hidden-whatsapp-features-for-2024/"><u>Go Beyond Basic  Top 10 Hidden WhatsApp Features for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723011370876-grand-theft-auto-v-optimization-fixes-for-performance-issues/"><u>Grand Theft Auto V Optimization - Fixes for Performance Issues!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guide-to-resolving-windows-1087-driver-problems-for-the-ralink-rt3290-wireless-card/"><u>Guide to Resolving Windows 10/8/7 Driver Problems for the Ralink RT3290 Wireless Card</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-poco-c65-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Poco C65 FRP</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-best-free-premiere-pro-templates/"><u>In 2024, Best Free Premiere Pro Templates</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-s17withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo S17with/without a PC</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-infinix-smart-8-plus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Infinix Smart 8 Plus Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-your-content-delivery-the-power-of-onestream/"><u>In 2024, Transforming Your Content Delivery  The Power of OneStream</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-motorola-moto-g24-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Motorola Moto G24? Fixed | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/leading-high-speed-memory-sticks-of-2024-maximizing-storage-on-the-go/"><u>Leading High-Speed Memory Sticks of 2024: Maximizing Storage on the Go</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastery-over-discord-setup-failures-on-windows-1011/"><u>Mastery Over Discord Setup Failures on Windows 10/11</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/peeling-back-the-layers-of-machine-intelligence-black-boxes-uncovered/"><u>Peeling Back the Layers of Machine Intelligence: Black Boxes Uncovered</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/restoring-windows-photo-viewer-in-windows-10-step-by-step-guide-for-2024/"><u>Restoring Windows Photo Viewer in Windows 10  Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/spectral-perfection-program/"><u>Spectral Perfection Program</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/step-by-step-process-for-successful-obs-integration-on-macos-for-2024/"><u>Step-by-Step Process for Successful OBS Integration on macOS for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/tailoring-your-multi-task-experience-safe-area-and-pip-settings/"><u>Tailoring Your Multi-Task Experience  Safe Area & PIP Settings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-selection-identifying-best-12-vloggers-camera-choices-for-2024/"><u>The Ultimate Selection  Identifying Best 12 Vloggers' Camera Choices for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/transforming-patience-into-speed-with-apps-for-2024/"><u>Transforming Patience Into Speed with Apps for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unparalleled-vr-game-setups-top-8-edition/"><u>Unparalleled VR Game Setups  Top 8 Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/voice-your-thoughts-quick-recording-in-windows-10/"><u>Voice Your Thoughts  Quick Recording in Windows 10</u></a></li>
+</ul></div>

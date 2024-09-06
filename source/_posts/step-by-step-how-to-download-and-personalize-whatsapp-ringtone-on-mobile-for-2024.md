@@ -1,7 +1,7 @@
 ---
 title: "\"Step-By-Step  How to Download and Personalize WhatsApp Ringtone on Mobile for 2024\""
-date: 2024-08-31T22:38:09.674Z
-updated: 2024-09-01T22:38:09.674Z
+date: 2024-09-05T00:46:15.021Z
+updated: 2024-09-06T00:46:15.021Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,12 @@ The site is easy to explore, ad-free, and rich in **WhatsApp ringtones**. The do
 * Bhangra
 * Loud
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [MoboCup](https://mobcup.net/browse/ringtones/mp3/0/downloads/whatsapp)
 
 MoboCup is a wonderful resource for downloading **WhatsApp ringtones** and high-quality wallpapers. There’s an option to share the ringtones with your friends and family using WhatsApp, Twitter, email, or other social media platforms. You can also directly copy the link and share it.
@@ -64,7 +70,10 @@ MoboCup is a wonderful resource for downloading **WhatsApp ringtones** and high-
 ![mobo cup whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Richness & Access**
 
@@ -82,7 +91,10 @@ The site has a massive library of free **WhatsApp ringtones** that ranges from p
 * Classic
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### [MP3 Ringtone](https://mp3-ringtone.com/genre/Whatsapp-Ringtones)
 
@@ -90,6 +102,12 @@ MP3 Ringtone is a renowned site for **downloading WhatsApp ringtones** for free*
 
 ![mp3 ringtone whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mp3-ringtone-whatsapp-ringtones.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Richness & Access**
 
 The site isn’t too rich because of fewer category options and a glitchy interface for accessing. However, the quality of the ringtones is crystal-clear!
@@ -102,9 +120,6 @@ The site isn’t too rich because of fewer category options and a glitchy interf
 * Beats
 * Notification
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Create a Keen WhatsApp Ringtone Using Filmora?
 
 If your taste doesn’t match the available **WhatsApp ringtones** on the sites mentioned above, here’s a handy way to create personalized WhatsApp tones using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is a user-friendly video editor. You can easily detach the audio from the video clip and customize your own ringtone. Besides, if you are worried that the video file with your favourite audio has silent moments and you don’t want to break the whole audio, Filmora can also help you with that! Let’s see how Filmora can help you!
@@ -120,7 +135,10 @@ Step2 Drag the keen video songs to the **“Timeline Panel”** at the bottom. N
 ![detach audio filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-filmora.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step3 In this step, right-click only the audio file whose silent parts you want to eliminate and select **“Silence Detection.”** Now, a window will open up showing three parameters; **“Threshold,” “Minimum Silence,” and “Buffer,”** which you can adjust using the slider.
 
@@ -128,24 +146,30 @@ Moreover, you can also click **“Start”** to roll automatic silence detection
 
 ![silence detection parameters filmora](https://images.wondershare.com/filmora/article-images/2023/03/silence-detection-parameters-filmora.PNG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 Step4 Next up, emphasize one Keen WhatsApp song over the other. For this, right-click a specific song and select **“Adjust Audio.”** Then, check the **“Audio Ducking”** feature and click **“OK”** to save the changes. You can also adjust the intensity of the **“Audio Ducking”** feature by moving the slider.
 
 ![audio ducking filmora](https://images.wondershare.com/filmora/article-images/2023/03/audio-ducking-filmora.png)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step5 Now reduce the length of the file by trimming it. To do this, click on the file, and a double arrow will appear. Drag the double arrow to select a part that you want to delete. Next, click **“Split”** to delete that part.
 
 Step6 In the final step, click **“Create”** and hit the **“Export”** button to save the customized Keen WhatsApp ringtone on your PC. Finally, transfer the file to your phone using a USB cable or sync the file directly on your phone with Google Drive or any other cloud service.
 
 ![export whatsapp ringtone filmora](https://images.wondershare.com/filmora/article-images/2023/03/export-whatsapp-ringtone-filmora.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you want to learn more about Filmora’s features, you can watch the video below and see what Filmora can bring to you!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: How Can I Customize a WhatsApp Ringtone on My Android & iPhone?
 
 After knowing how to get your keen audio, you may also want to know about how to customize your WhatsApp ringtone? If yes, please follow the below-mentioned steps:
@@ -158,22 +182,31 @@ Step1 Open the **“Settings”** menu from the home screen of your Android phon
 
 ![android apps whatsapp ringtone](https://images.wondershare.com/filmora/article-images/2023/03/android-apps-whatsapp-ringtone.PNG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 Step2 Next, scroll down to the WhatsApp option, tap to open it, and select the **“Notifications”** option.
 
 ![android notifications whatsapp ringtone](https://images.wondershare.com/filmora/article-images/2023/03/android-notifications-whatsapp-ringtone.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step3 In the next step, scroll down and select **“Call Notifications.”** Then, tap on **“Sound”** and select a custom-made **WhatsApp ringtone**. And that’s it!
 
 ![select custom whatsapp ringtone](https://images.wondershare.com/filmora/article-images/2023/03/select-custom-whatsapp-ringtone.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **How to Customize Whatsapp Ringtone on Android – Directly From Whatsapp**
 
@@ -183,23 +216,43 @@ Step1 Head to WhatsApp from the home screen of your Android phone and tap the th
 
 ![settings whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/settings-whatsapp-ringtones.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step2 Next, tap **“Notifications,”** scroll down and tap **“Ringtone.”**
 
 ![notification whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/notification-whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step3 Select any ringtone from the list, and you’re done!
 
 ![whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. On iPhone
 
@@ -214,12 +267,27 @@ Step2 Now, tap **“Notifications”** and access the **“Sound”** option.
 ![iphone notifications sounds whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/iphone-notifications-sounds-whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step3 Finally, select any custom WhatsApp tone, tap **“Save,”** and you’re done!
 
 ![select ringtone save whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/select-ringtone-save-whatsapp-ringtones.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this comprehensive article, we discussed three high-quality websites to **download WhatsApp ringtones**.
@@ -232,9 +300,6 @@ Best Websites for Downloading WhatsApp Ringtones
 
 If you want to **download WhatsApp ringtones** on your device, here are the three best websites:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### [Zedge](https://www.zedge.net/find/ringtones/whatsapp)
 
 Zedge has[30 million active users](https://www.zedge.net/), and more than 436 million app installs because of the free resources such as **WhatsApp ringtones** library**.**
@@ -296,9 +361,6 @@ The site isn’t too rich because of fewer category options and a glitchy interf
 * Beats
 * Notification
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Create a Keen WhatsApp Ringtone Using Filmora?
 
 If your taste doesn’t match the available **WhatsApp ringtones** on the sites mentioned above, here’s a handy way to create personalized WhatsApp tones using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is a user-friendly video editor. You can easily detach the audio from the video clip and customize your own ringtone. Besides, if you are worried that the video file with your favourite audio has silent moments and you don’t want to break the whole audio, Filmora can also help you with that! Let’s see how Filmora can help you!
@@ -331,9 +393,6 @@ Step6 In the final step, click **“Create”** and hit the **“Export”** but
 
 If you want to learn more about Filmora’s features, you can watch the video below and see what Filmora can bring to you!
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Bonus: How Can I Customize a WhatsApp Ringtone on My Android & iPhone?
 
 After knowing how to get your keen audio, you may also want to know about how to customize your WhatsApp ringtone? If yes, please follow the below-mentioned steps:
@@ -347,12 +406,27 @@ Step1 Open the **“Settings”** menu from the home screen of your Android phon
 ![android apps whatsapp ringtone](https://images.wondershare.com/filmora/article-images/2023/03/android-apps-whatsapp-ringtone.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step2 Next, scroll down to the WhatsApp option, tap to open it, and select the **“Notifications”** option.
 
 ![android notifications whatsapp ringtone](https://images.wondershare.com/filmora/article-images/2023/03/android-notifications-whatsapp-ringtone.PNG)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step3 In the next step, scroll down and select **“Call Notifications.”** Then, tap on **“Sound”** and select a custom-made **WhatsApp ringtone**. And that’s it!
 
 ![select custom whatsapp ringtone](https://images.wondershare.com/filmora/article-images/2023/03/select-custom-whatsapp-ringtone.PNG)
@@ -366,21 +440,36 @@ Step1 Head to WhatsApp from the home screen of your Android phone and tap the th
 ![settings whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/settings-whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step2 Next, tap **“Notifications,”** scroll down and tap **“Ringtone.”**
 
 ![notification whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/notification-whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step3 Select any ringtone from the list, and you’re done!
 
 ![whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. On iPhone
 
@@ -390,12 +479,27 @@ Step1 Tap the **“WhatsApp”** icon on the iPhone home screen and tap **“Set
 
 ![iphone settings whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/iphone-settings-whatsapp-ringtones.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step2 Now, tap **“Notifications”** and access the **“Sound”** option.
 
 ![iphone notifications sounds whatsapp ringtones](https://images.wondershare.com/filmora/article-images/2023/03/iphone-notifications-sounds-whatsapp-ringtones.PNG)
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step3 Finally, select any custom WhatsApp tone, tap **“Save,”** and you’re done!
 

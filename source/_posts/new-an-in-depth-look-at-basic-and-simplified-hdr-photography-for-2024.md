@@ -1,7 +1,7 @@
 ---
 title: "\"[New] An In-Depth Look at Basic and Simplified HDR Photography for 2024\""
-date: 2024-08-31T22:41:36.730Z
-updated: 2024-09-01T22:41:36.730Z
+date: 2024-09-05T00:46:10.982Z
+updated: 2024-09-06T00:46:10.982Z
 tags: 
   - screen-recording
   - ai video
@@ -99,6 +99,12 @@ As expected, you can find it pretty tedious to import and merge each HDR bracket
 
 Although we've mainly focused on brackets and photos in this post, it's important to note that easyHDR also works with single images. Instead of having three separate bracketed exposures, LDR (Low Dynamic Range) enhancement allows you to generate exposures from a single JPEG or RAW photo.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tips: The Best Way to Edit HDR videos on your Desktop
 
 Like HDR images, HDR videos offer more comprehensive displays in dark and bright surroundings. In short, these videos allow more colourful and detailed highlight representations. Unfortunately, not all HDR editing programs can merge bracketed exposures effortlessly to produce outstanding results. And those that do can cost you an arm and a leg.
@@ -111,49 +117,50 @@ With that in mind, we recommend [Wondershare Filmora 11](https://tools.techidail
 
 ![easy hdr alternative load video](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Run [Wondershare Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your Mac/Win computer and start a new project. After creating a project, click Import Media to upload the video to edit and move it to the storyboard.
 
 ##### Step2Add a blending mode effect
 
 ![easy hdr alternative add white sample color](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-2.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Next, select the video and choose White as the color overlay. To do that, open the Sample color options and move the While color on the top timeline.
 
 ![easy hdr alternative add exclusion blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 After that, it's time to change the Blending Mode of the color overlay. To do that, right-click the color track and choose Edit Properties. Then tap Composition and then select Exclusion on the Blending Mode drop-down menu.
 
 ##### Step3Apply the B&W Film color effect
 
 ![easy hdr alternative add bw film effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now tap the Effect tab and search for the B&W Film effect. This film effect should be free to use whether using a paid or free account. After downloading it, add the effect overlay to the video track and export the video.
 
 ##### Step4Import the uploaded video
 
 ![easy hdr alternative set overlay blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 After creating the video, import it on Filmora 11 and delete the white color overlay and W&B Film effects. Now add the imported video on the first track, then search and apply a Square Blur effect. Also, change the Blending Mode of the footage to Overlay. Meanwhile, click the Effect tab and adjust the Size slider accordingly. For example, you can choose 10.
 
 ![easy hdr alternative add luma sharp effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Don't stop there. Open the Effects tab and add the Lomo effect to your video. Also, search and add the Luma Sharp effect. Remember that you can retouch these effects accordingly under the Effect tab. And lastly, export the new HDR video. That's it!
 
 ### Final Words
@@ -209,7 +216,16 @@ Cons
 * No HDR feature for editing.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2\. Detailed Review for Easy HDR
 
@@ -247,28 +263,40 @@ With that in mind, we recommend [Wondershare Filmora 11](https://tools.techidail
 
 ![easy hdr alternative load video](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Run [Wondershare Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your Mac/Win computer and start a new project. After creating a project, click Import Media to upload the video to edit and move it to the storyboard.
 
 ##### Step2Add a blending mode effect
 
 ![easy hdr alternative add white sample color](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 Next, select the video and choose White as the color overlay. To do that, open the Sample color options and move the While color on the top timeline.
 
 ![easy hdr alternative add exclusion blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After that, it's time to change the Blending Mode of the color overlay. To do that, right-click the color track and choose Edit Properties. Then tap Composition and then select Exclusion on the Blending Mode drop-down menu.
 
 ##### Step3Apply the B&W Film color effect
 
 ![easy hdr alternative add bw film effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Now tap the Effect tab and search for the B&W Film effect. This film effect should be free to use whether using a paid or free account. After downloading it, add the effect overlay to the video track and export the video.
 
 ##### Step4Import the uploaded video
@@ -276,7 +304,16 @@ Now tap the Effect tab and search for the B&W Film effect. This film effect shou
 ![easy hdr alternative set overlay blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 After creating the video, import it on Filmora 11 and delete the white color overlay and W&B Film effects. Now add the imported video on the first track, then search and apply a Square Blur effect. Also, change the Blending Mode of the footage to Overlay. Meanwhile, click the Effect tab and adjust the Size slider accordingly. For example, you can choose 10.
 
@@ -284,6 +321,12 @@ After creating the video, import it on Filmora 11 and delete the white color ove
 
 Don't stop there. Open the Effects tab and add the Lomo effect to your video. Also, search and add the Luma Sharp effect. Remember that you can retouch these effects accordingly under the Effect tab. And lastly, export the new HDR video. That's it!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Words
 
 There you have it. Easy HDR is arguably the most-beginner friendly program to edit your photos on desktops. Although it doesn't feature much, the available editing features should be enough to help you create incredible HDR images. And don't forget to use Wondershare Filmora 11 to apply a cool HDR effect to your footage. Give it a try!

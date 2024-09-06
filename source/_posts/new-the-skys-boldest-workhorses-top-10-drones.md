@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Sky's Boldest Workhorses - Top 10 Drones\""
-date: 2024-08-31T22:39:13.267Z
-updated: 2024-09-01T22:39:13.267Z
+date: 2024-09-05T00:46:13.755Z
+updated: 2024-09-06T00:46:13.755Z
 tags: 
   - screen-recording
   - ai video
@@ -90,6 +90,12 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -97,7 +103,10 @@ The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with th
 ![vulcan uav airlift](https://images.wondershare.com/filmora/article-images/vulcan-uav-airlift.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The Airlift series is one of Vulcan's heaviest lifting drones to date. With the ability to lift and move a payload of about 30 kg, this drone has a tough, and durable frame that allows it to display such extraordinary strength and grace. Its central core is made of transparent tubes which allow users to easily check in on the power systems, while also making sure that all vitals are protected, which makes the Vulcan UAV Airlift the ideal machine for working in rugged environments.
 
@@ -106,7 +115,10 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
@@ -115,7 +127,10 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
@@ -131,20 +146,23 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Liza Brown
 
