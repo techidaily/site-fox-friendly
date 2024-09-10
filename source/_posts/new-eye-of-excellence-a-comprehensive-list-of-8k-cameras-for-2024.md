@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Eye of Excellence  A Comprehensive List of 8K Cameras for 2024\""
-date: 2024-07-11T23:25:02.347Z
-updated: 2024-07-12T23:25:02.347Z
+date: 2024-09-09T12:27:56.494Z
+updated: 2024-09-10T12:27:56.494Z
 tags: 
   - screen-recording
   - ai video
@@ -16,6 +16,12 @@ keywords: "HighResCameras2023,Eye8KCamListing,SuperHD8KCamera,Excellent8kQuality
 thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b818d2405502179fc7ce1c3d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Eye of Excellence: A Comprehensive List of 8K Cameras
 
 # Best 8K Cameras in 2024
@@ -32,6 +38,12 @@ The industry-leading camera manufacturers like RED, Sharp or Ikegami have alread
 
 You may also like: [11 Best Bridge Cameras \[Ultimate Review\]](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is an 8K Camera?
 
 The [resolution](https://tools.techidaily.com/wondershare/filmora/download/) determines the maximum quality of pictures a video camera can capture. Each frame an 8K camera records can either have 7680 or 8192 pixels on the longer side of the frame and between 2160 and 8192 pixels on the shorter side of the frame depending on the video’s [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/). Commonly an 8K video with the standard 16:9 aspect ratio has 33.9 million pixels or a resolution of 7680x4320 pixels.
@@ -64,12 +76,30 @@ The rumors that Canon is working on its first 8K camera surfaced in early 2019, 
 
 ![Canon EOS 5DS R DSLR Camera](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: Cannon
 
 This camera should be capable of recording **8K footage at 60 fps**, as well as 4K footage at 120 fps, but whether or not this will turn out to be true still remains to be seen. However, a number of Canon’s models are already equipped with **50MP** sensors that can capture still images in resolutions that go as high as **8712 x 5813** or record videos in 4K resolution at 60fps.
 
 Models like [EOS 5DS](https://www.usa.canon.com/internet/portal/us/home/products/details/cameras/eos-dslr-and-mirrorless-cameras/dslr/eos-5ds) or [EOS R](https://www.amazon.com/Canon-Mirrorless-Digital-Camera-Body/dp/B07H484HLT), are powerful enough to enable you to take still images at resolutions that resemble those provided by 8K cameras. However, the exact date when Canon is going to unveil their first 8K camera is still not known, but if any of the rumors are true it could easily happen that we are going to see the Canon’s first 8K camera in 2020.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Nikon
 
 Even though Nikon is one of the leading camera manufacturers in the world, there are still no 8K Nikon cameras. After Apple’s WWDC event information surfaced that Nikon is developing a new 8K model, but this information has been dismissed as false soon after the event.
@@ -84,6 +114,12 @@ This Nikon’s camera has also 7fps continuous shooting mode as well as the capa
 
 The camera is compatible with G, E, and D AF Nikkor lenses as well as DX and AI-P lenses, which provides you with enough versatility to shoot virtually any scene you want. Whether or not Nikon is going to add 8K cameras to their assortment of products is not yet clear, and it may be a while until one of the largest camera manufacturers in the industry releases its first 8K camera.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Sharp
 
 A few years ago, Sharp introduced 8C-B60A, the world’s first 8K camcorder and a few years later there are only a few cameras that have the features that can be compared to those you can find on the 8C-B60A camcorder.
@@ -94,24 +130,48 @@ A few years ago, Sharp introduced 8C-B60A, the world’s first 8K camcorder and 
 
 It features two **AUDIO IN XLR type 3 pins** and one **MIC IN XLR type 5 pin**. The camcorder doesn’t have batteries and it is powered through a **130W 13V DC output AC/DC adapter XLR 4-pin**. The Sharp’s 8C-B60A 8K camcorder is undoubtedly one of the best 8K cameras you can buy in 2024, despite the hefty price tag.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Sony
 
 Professional cinematographers don’t need an introduction to Sony’s cameras, as the Japanese camera manufacturer has been at the forefront of the digital camera market for decades. Their [F65 CineAlta](https://pro.sony/ue%5FUS/products/digital-cinema-cameras/f65#SATD501220TheF65Cinealta-f65) was released in 2016, but it is still one of the best 8K cameras you can buy in 2024\. This speaks volumes about the F65’s capabilities, much like the fact that professional cinematographers have nothing but praise for this Sony’s camera model.
 
 ![Sony F65 CineAlta 8K Camera](https://images.wondershare.com/filmora/article-images/sony-f65-cineAlta-8k-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: Sony
 
 The **1-chip 20MP Super 35mm type** **24.7mm X 13.1mm** **CMOS sensor** enables you to capture videos in 8K, 4K or 2K resolutions. The camera’s **PL lens mount** is standard for all film cameras, which means that you won’t have too much trouble finding the lens you can use with F65 CineAlta.
 
 The camera has **14 stops of exposure latitude**, so if you are shooting RAW video files F65 will utilize the **S-Log3/S-Gamut3 gamma curve** to ensure accurate color depiction. In addition, this 8K camera can capture **275,000,000,000,000 color variations** even while you are shooting in full resolution at 60fps. Unsurprisingly, F65 CineAlta costs more than $60.000, but it is still a great investment for all professional filmmakers in need of a camera that can deliver great performances regardless of the available light.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Ikegami
 
 Ikegami is a well-known manufacturer of professional broadcast cameras, so it comes as no surprise that the first handheld 8K UHD Television Camera System was produced by this Japanese television equipment manufacturer. Their [SHK-810 8K Super Hi-Vision Camera System](https://www.ikegami.com/archives/menu1/shk-810) features a **Super 35mm 33 million-pixel CMOS Sensor** as well as **4,000 TV lines** which enables the camera to capture highly-detailed images.
 
 ![ikegami 8K Super Hi-Vision Camera System](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: ikegami
 
 This broadcast camera has **a PL lens mount with a back-focus adjusting mechanism** that helps the camera operator to keep the image sharp even while recording rapidly moving figures and objects. The SHK-810’s output signal features are equally impressive since you can choose between **SHV Dual Green SDI Interface, 4K SMPTE 424M (3G-SDI) Level B and HD SMPTE 292M** options.
@@ -168,3 +228,47 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-timing-analysis-of-a-20mb-film/"><u>[New] 2024 Approved Timing Analysis of a 20MB Film</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-transforming-virtual-worlds-enhancing-spark-ar-with-custom-luts/"><u>[New] 2024 Approved Transforming Virtual Worlds Enhancing Spark AR with Custom LUTs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-advanced-tips-for-crafting-vhs-images-on-computers/"><u>[New] Advanced Tips for Crafting VHS Images on Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-capture-life-in-all-directions-11-excellence-in-multi-angle-cameras-for-2024/"><u>[New] Capture Life in All Directions #11 Excellence in Multi-Angle Cameras for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-cost-effective-stratosphere-storage-for-large-archives-for-2024/"><u>[New] Cost-Effective Stratosphere Storage for Large Archives for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elevating-engagement-tutorial-that-gains-momentum-fast-for-2024/"><u>[New] Elevating Engagement Tutorial That Gains Momentum Fast for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-breaking-down-youtube-promotion-costs/"><u>[New] In 2024, Breaking Down Youtube Promotion Costs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-dynamic-portraits-techniques-for-effective-motion-blur-using-picsart/"><u>[New] In 2024, Dynamic Portraits Techniques for Effective Motion Blur Using Picsart</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-step-by-step-locating-your-next-social-video-fb-2023/"><u>[New] In 2024, Step-by-Step Locating Your Next Social Video (FB 2023)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-iphone-filmmaking-for-full-sphere-effects/"><u>[New] Master iPhone Filmmaking for Full Sphere Effects</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pixlr-essentials-10-pro-tips-to-transform-your-images-for-2024/"><u>[New] Pixlr Essentials 10 Pro Tips to Transform Your Images for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-spinning-stories-rotate-videos-to-captivate-your-instagram-community/"><u>[New] Spinning Stories Rotate Videos to Captivate Your Instagram Community</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-5-easy-steps-for-altering-game-voices-in-pubg/"><u>[Updated] 2024 Approved The 5 Easy Steps for Altering Game Voices in PUBG</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-constructive-steps-to-personalized-google-vr-headset/"><u>[Updated] Constructive Steps to Personalized Google VR Headset</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-elevate-your-unboxing-game-to-next-level/"><u>[Updated] Elevate Your Unboxing Game to Next Level</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-hottest-online-hubs-for-metallic-3d-type-graphics/"><u>[Updated] Hottest Online Hubs for Metallic 3D Type Graphics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-write-a-hit-podcast-script-10plus-examples-revealed/"><u>[Updated] How to Write a Hit Podcast Script (10+ Examples Revealed)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-essential-hacks-for-the-elusive-iphone-x-users/"><u>[Updated] In 2024, Essential Hacks for the Elusive iPhone X Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-tutorial-to-elevate-your-slow-motion-videos/"><u>[Updated] In 2024, Step-by-Step Tutorial to Elevate Your Slow Motion Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-6-best-4k-full-frame-camera/"><u>[Updated] In 2024, Top 6 Best 4K Full Frame Camera</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-navigating-through-top-ps2-games-on-android-devices-a-compre-written-in-english-for-2024/"><u>[Updated] Navigating Through Top PS2 Games on Android Devices - A Compre Written in English for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-image-sharing-blueprint-for-youtube-enthusiasts-for-2024/"><u>[Updated] The Ultimate Image Sharing Blueprint for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-camera-brands-for-future-musical-video-production-for-2024/"><u>[Updated] Top Camera Brands for Future Musical Video Production for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-best-no-pressure-pc-games-guide/"><u>2024 Approved Best No-Pressure PC Games Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/comprehensive-guide-to-leveraging-adobe-cloud-for-enhanced-data-management/"><u>Comprehensive Guide to Leveraging Adobe Cloud for Enhanced Data Management</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/fine-tuning-windows-photos-app-incorporate-filters-and-sync-music-streaming/"><u>Fine-Tuning Windows Photos App Incorporate Filters & Sync Music Streaming</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-x90s-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo X90S Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-mixed-reality-blending-physical-and-virtual-worlds/"><u>In 2024, Mixed Reality Blending Physical and Virtual Worlds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-strategy-guide-to-digital-video-enhancement/"><u>In 2024, The Ultimate Strategy Guide to Digital Video Enhancement</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-whats-the-difference-between-360-video-and-vr-video/"><u>In 2024, What's the Difference Between 360° Video and VR Video?</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolved-opengl-error-nvidias-quick-remedy-found/"><u>Resolved: OpenGL Error - Nvidia's Quick Remedy Found</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/s-best-free-audio-editors-for-m4a-files/"><u>S Best Free Audio Editors for M4A Files</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-to-ensure-precise-cpu-usage-readings-from-task-manager/"><u>Strategies to Ensure Precise CPU Usage Readings From Task Manager</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamlining-your-video-editing-with-device-filters-for-2024/"><u>Streamlining Your Video Editing with Device Filters for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/stumped-by-hiding-ios-notifications-heres-a-guide-to-fix-it-in-7-steps/"><u>Stumped by Hiding iOS Notifications? Here's a Guide to Fix It in 7 Steps</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-5-affordable-gaming-mice-and-keyboards-99plus-for-2024/"><u>Top 5 Affordable Gaming Mice & Keyboards $99+ for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ultimate-srt-insights-essential-facts-unveiled-for-2024/"><u>Ultimate SRT Insights Essential Facts Unveiled for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-video-editing-made-simple-microsoft-video-editor-for-windows-10-8-and-7-users/"><u>Updated In 2024, Video Editing Made Simple Microsoft Video Editor for Windows 10, 8, and 7 Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/vr-todays-core-technologies/"><u>VR Today's Core Technologies</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-infinix-note-30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Infinix Note 30 Pro | Dr.fone</u></a></li>
+</ul></div>

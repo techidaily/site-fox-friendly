@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Proiphone Techniques  Capturing Perfect Close-Up and Macro Shots\""
-date: 2024-09-05T00:59:33.760Z
-updated: 2024-09-06T00:59:33.760Z
+date: 2024-09-09T12:31:59.434Z
+updated: 2024-09-10T12:31:59.434Z
 tags: 
   - screen-recording
   - ai video
@@ -16,6 +16,12 @@ keywords: "\"Pro iPhone Close Ups,Pro iPhone Macro Photos,Close Up Pro IPhone,Pr
 thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a50d24fd1a27318344d95b256.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Proiphone Techniques: Capturing Perfect Close-Up and Macro Shots
 
 # iPhone Macro and Close-up Photography Tips
@@ -30,6 +36,12 @@ With busy lives and hectic schedules, it can be easy to miss the small but impor
 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image source: Impressive Magazine
 
 Macro and close-up photography is a great way to start appreciating the little things in life, and you don't need a fancy camera to get involved either. Armed with nothing more than your standard iPhone, you can start enjoying the fun of macro photography today. Here's what you need to know.
@@ -38,6 +50,12 @@ You May Also Like: [How to Take Underwater Photos with your iPhone 7](https://to
 
 You May Also Like: [Resizing a Photo without Losing Quality](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Section 1. What is close-up and macro photography?
 
 Close-up photography and macro photography are all about photographing things in a way that makes them appear larger than they are in real life. It lets us look in detail at the things around us and can be an exciting and dramatic way to shoot images. But is there a difference between close up and macro in photography terms?
@@ -69,6 +87,12 @@ With any photo, focus is crucial to an awesome result. But when you're creating 
 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image source: PicMonkey
 
 If you're not ready to go fully manual, you could try using the iPhone's locking feature to lock the focus into place and avoid the photo being ruined by a little wobble on your part. To use this, simply tap and hold the screen at the part of the image you want to be in focus, and you'll see AE/EF Lock appear at the bottom. This means both focus and lighting are fixed until you tap elsewhere on the screen to release it.
@@ -111,6 +135,12 @@ iPhone macro photography is all about looking at the world in a different way. T
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image source: Flickr
 
 Look for interesting colors and play with the light. Let the sunshine through the leaves of the plant or find a puddle and play with reflections. Line yourself up with a cityscape or countryside landscape, then place the subject dangling in the foreground. Have fun with angles and discover new ways of looking at your surroundings.
@@ -137,6 +167,12 @@ Explore, experiment, and practice, and you'll soon find your own style and be th
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -198,10 +234,3 @@ Follow @Ollie Mattison
 <li><a href="https://tech-recovery.techidaily.com/understanding-metas-revolutionary-approach-to-artifice-intellect/"><u>Understanding Meta's Revolutionary Approach to Artifice Intellect</u></a></li>
 <li><a href="https://fox-friendly.techidaily.com/vanguard-visions-ultimate-laptop-choices-for-uhd-content-creators-for-2024/"><u>Vanguard Visions  Ultimate Laptop Choices for UHD Content Creators for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
