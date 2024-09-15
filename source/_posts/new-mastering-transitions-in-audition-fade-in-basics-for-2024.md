@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Transitions in Audition  Fade-In Basics for 2024\""
-date: 2024-07-11T23:21:17.595Z
-updated: 2024-07-12T23:21:17.595Z
+date: 2024-09-13T18:30:22.972Z
+updated: 2024-09-15T18:41:17.270Z
 tags: 
   - screen-recording
   - ai video
@@ -78,9 +78,23 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -100,6 +114,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -110,6 +131,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs
 
@@ -155,6 +183,17 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-10-powerful-igtv-video-tips-for-amplified-brand-impact/"><u>[New] 10 Powerful IGTV Video Tips for Amplified Brand Impact</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-pinnacle-eight-video-recording-apps/"><u>[New] Pinnacle Eight Video Recording Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-elevating-content-sharing-link-instagram-and-tiktok/"><u>[Updated] Elevating Content Sharing Link Instagram & TikTok</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unravel-the-mysteries-of-morphvox-the-ultimate-guide-to-voice-modification/"><u>[Updated] In 2024, Unravel the Mysteries of MorphVOX The Ultimate Guide to Voice Modification</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-channel-your-inner-metaverse-wit/"><u>2024 Approved How to Channel Your Inner Metaverse Wit</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/quantum-hdr-simplified-a-photographers-guide-for-2024/"><u>Quantum HDR Simplified A Photographer's Guide for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-10-funny-apple-device-prank-ideas-for-your-buddies/"><u>Top 10 Funny Apple Device Prank Ideas for Your Buddies</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/turn-social-media-audio-into-mp3/"><u>Turn Social Media Audio Into MP3</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlocking-virality-mastering-the-art-of-influential-content-for-2024/"><u>Unlocking Virality Mastering the Art of Influential Content for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/voice-to-text-an-all-inclusive-guide-to-googles-document-feature/"><u>Voice to Text An All-Inclusive Guide to Google's Document Feature</u></a></li>
+</ul></div>
 
