@@ -1,7 +1,7 @@
 ---
 title: "[New] Lowering Volume Steps in Logic Pro Audio Editing"
-date: 2024-09-14T16:47:36.198Z
-updated: 2024-09-15T19:44:54.293Z
+date: 2024-09-13T20:11:50.038Z
+updated: 2024-09-20T16:43:37.845Z
 tags: 
   - screen-recording
   - ai video
@@ -101,13 +101,6 @@ You must first download and install this application on your computer before you
 
 ![install filmora and import audio](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Then, you must import your files, which is easy with Filmora since you just need to do it once from your device as seen below. To import your music and video files, use the Import button from the software's main screen as shown below:
 
 ##### Step2 Launch the Audio Editor in Filmora
@@ -115,6 +108,19 @@ Then, you must import your files, which is easy with Filmora since you just need
 You must drag the media files into the program's timeline after importing them into Filmora. You may modify your media files using every tool in the timeline. To utilize Filmora's audio editor, just right-click on the specific audio file and choose "Edit Audio" from the list:
 
 ![launch audio editor in filmora](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3 Use the Audio Fade-in/Fade-out
 
@@ -124,6 +130,13 @@ To achieve this, focus on the audio file that you want to change in the timeline
 
 ![use audio fade out](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Export Your Fade Out Video
 
 In the final touch, if you are content with the way your voice has evolved, now may be the ideal time to maintain it or even record it. There is support for all widely used video and audio formats, including MP3\. Click "Export" and choose the appropriate file format from the Local menu as shown below to do this. The parameters as indicated below allow you to alter the ultimate location of the altered audio file:
@@ -131,6 +144,13 @@ In the final touch, if you are content with the way your voice has evolved, now 
 ## Conclusion
 
 Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, if you want the Logic Pro experience on Windows and Mac as well, you have [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as an alternate choice. Everything in the suite, including various effects and composition tools, is included. In conclusion, Filmora is highly feature-rich and enables you to carry out a range of activities, such as crossfading, composition, recording, editing, mixing, and posting to social media sites. Therefore, Filmora is your best option if you want to completely experience a DAW on Windows and Mac.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1\. Ways to Fade Audio with Logic Pro X
 
@@ -153,16 +173,16 @@ Step3 Create an automation curve on the produced fade using the Curve section if
 ![automation curve logic pro](https://images.wondershare.com/filmora/article-images/2022/07/automation-curve-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Employ the Fade-Out Tool
@@ -196,23 +216,10 @@ Step3 Additionally, you will always have the option to change the level, which i
 ![edit music logic pro](https://images.wondershare.com/filmora/article-images/2022/07/edit-music-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Logic Pro X Alternative to Fade Audio
@@ -240,13 +247,6 @@ Then, you must import your files, which is easy with Filmora since you just need
 You must drag the media files into the program's timeline after importing them into Filmora. You may modify your media files using every tool in the timeline. To utilize Filmora's audio editor, just right-click on the specific audio file and choose "Edit Audio" from the list:
 
 ![launch audio editor in filmora](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step3 Use the Audio Fade-in/Fade-out
 
@@ -288,18 +288,18 @@ Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/s-screening-youtube-footage-illegal/"><u>[New] Is Screening YouTube Footage Illegal?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-maximizing-xbox-broadcast-transitioning-to-fb-live/"><u>[New] Maximizing Xbox Broadcast Transitioning to FB Live</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-comprehensive-guide-to-capturing-perfect-instagram-covers/"><u>[New] The Comprehensive Guide to Capturing Perfect Instagram Covers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-innovative-solutions-exceeding-standard-fbx-recorders/"><u>[Updated] Innovative Solutions Exceeding Standard FBX Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-next-gen-thrills-with-intova-x-action-tech/"><u>[Updated] Next-Gen Thrills with Intova X Action Tech</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-art-of-introducing-your-podcast/"><u>[Updated] The Art of Introducing Your Podcast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-lifelong-benefits-of-multilingual-mastery/"><u>5 Lifelong Benefits of Multilingual Mastery</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-elevating-your-online-presence-with-advanced-zoom-filters/"><u>In 2024, Elevating Your Online Presence with Advanced Zoom Filters</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 8 Plus</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-pixel-8-pro-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Pixel 8 Pro</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-recorder-devices-for-livestreaming-pros-on-youtube-for-2024/"><u>Prime Recorder Devices for Livestreaming Pros on YouTube for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/rapid-execution-instant-clearance-of-signature-bg/"><u>Rapid Execution Instant Clearance of Signature Bg</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-shopping-smart-with-drones-what-you-need-to-think-about-first/"><u>[New] 2024 Approved Shopping Smart with Drones What You Need to Think About First</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-portrait-to-landscape-the-ultimate-guide-to-instagram-video-spins/"><u>[New] In 2024, From Portrait to Landscape The Ultimate Guide to Instagram Video Spins</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-establishing-value-driven-partnerships-with-brand-sponsors-in-youtubesphere/"><u>[Updated] Establishing Value-Driven Partnerships with Brand Sponsors in Youtubesphere</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-full-spectrum-analysis-unpacking-adobes-data-preservation-and-alternatives/"><u>[Updated] Full Spectrum Analysis Unpacking Adobe's Data Preservation and Alternatives</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-step-by-step-approach-to-crafting-3d-text-in-photoshop/"><u>[Updated] Step-by-Step Approach to Crafting 3D Text in Photoshop</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-a-comprehensible-list-of-mac-snippers-ranked/"><u>2024 Approved A Comprehensible List of Mac Snippers Ranked</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-iphone-15-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on iPhone 15</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-pinterest-video-extraction-top-5-free-tools-ranked/"><u>In 2024, Pinterest Video Extraction Top 5 Free Tools Ranked</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-14-pro-max-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 14 Pro Max Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/power2go-u/"><u>Power2Go操作マニュアル: U盤書き込み・コピー手法の実施</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/solutions-for-resolving-chatgpt-overwhelmed-issue-in-windows/"><u>Solutions for Resolving 'ChatGPT Overwhelmed' Issue in Windows</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ultimate-mac-video-frames-catalog-max-156-chars-for-2024/"><u>Ultimate Mac Video Frames Catalog (Max 156 Chars) for 2024</u></a></li>
 </ul></div>
 

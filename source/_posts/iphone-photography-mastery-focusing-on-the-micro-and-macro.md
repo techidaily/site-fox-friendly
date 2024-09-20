@@ -1,7 +1,7 @@
 ---
 title: "\"IPhone Photography Mastery  Focusing on the Micro & Macro\""
-date: 2024-07-11T23:12:36.173Z
-updated: 2024-07-12T23:12:36.173Z
+date: 2024-09-18T18:50:36.375Z
+updated: 2024-09-20T17:34:08.335Z
 tags: 
   - screen-recording
   - ai video
@@ -162,6 +162,28 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-demystifying-igtv-a-compreayers-guide-to-social-media-for-2024/"><u>[New] Demystifying IGTV A Compreayer's Guide to Social Media for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-art-of-close-up-meetings-in-ms-teams-for-2024/"><u>[New] The Art of Close-Up Meetings in MS Teams for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-pulse-finder-your-free-online-music-buddy/"><u>[New] The Pulse Finder – Your Free, Online Music Buddy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-closer-look-techniques-for-effective-collaboration-on-ms-teams-for-2024/"><u>[Updated] Closer Look Techniques for Effective Collaboration on MS Teams for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ghostly-movie-editing-hacks-for-2024/"><u>[Updated] Ghostly Movie Editing Hacks for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-lava-yuva-2-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Lava Yuva 2 Pro</u></a></li>
+<li><a href="https://win11.techidaily.com/beginners-battle-guide-to-winning-in-diablo/"><u>Beginner's Battle Guide to Winning in Diablo</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/essential-action-cam-recommendations-for-winter-sports-for-2024/"><u>Essential Action Cam Recommendations for Winter Sports for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-motorola-g24-power-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Motorola G24 Power Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-samsung-galaxy-s23-ultra-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Samsung Galaxy S23 Ultra and Browser | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-vanguard-devices-frontline-computing-titans/"><u>In 2024, Vanguard Devices Frontline Computing Titans</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/rage-raid-and-rebel-without-a-gta-tale-for-2024/"><u>Rage, Raid and Rebel Without a GTA Tale for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-impressive-world-of-the-sony-xbr49x900f-an-ultra-hd-4k-television-review/"><u>The Impressive World of the Sony XBR49X900F - An Ultra HD 4K Television Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ultimate-ranking-of-smartphone-vr-headsets/"><u>The Ultimate Ranking of Smartphone VR Headsets</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unlocking Secrets  The Battle of Biometric Systems in Phones\""
-date: 2024-07-11T23:20:15.694Z
-updated: 2024-07-12T23:20:15.694Z
+date: 2024-09-14T21:13:54.763Z
+updated: 2024-09-20T19:32:01.537Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/0817e17832f9eb6eaafa089134585eb7da7e6eb52
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -74,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/0817e17832f9eb6eaafa089134585eb7da7e6eb52
  The Face ID by Apple in its iPhone X also makes itself proficient enough to detect the modifications in the appearances such as growing of beard or if a lady has applied makeup. Or if you have shaved your beard fully, the device takes a confirmation with the help of a passcode. What’s more, you don’t have to worry if you are wearing scarf or shades, cap, hat and even contact lenses, Face ID will work properly with the accessories too.
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
@@ -108,6 +122,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-chart-topping-stock-photos-and-their-narratives/"><u>[New] Chart-Topping Stock Photos and Their Narratives</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-hitting-the-high-notes-in-instagram-photography/"><u>[New] In 2024, Hitting the High Notes in Instagram Photography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-srt-production-via-xml-ssa-and-ttml-conversions/"><u>[New] In 2024, SRT Production via XML, SSA & TTML Conversions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-virtual-realms-the-finest-vr-accessories-unveiled/"><u>[New] In 2024, Virtual Realms The Finest VR Accessories Unveiled</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-revamp-your-workflow-with-top-watermarkers/"><u>[New] Revamp Your Workflow with Top Watermarkers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-15-youtube-recording-software-for-gamers-for-2024/"><u>[New] Top 15 YouTube Recording Software for Gamers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-a-complete-guide-about-video-resolution-for-beginners/"><u>[Updated] In 2024, A Complete Guide About Video Resolution for Beginners</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-2023-edition-of-effortless-instagram-filter-usage-unveiled/"><u>[Updated] In 2024, The 2023 Edition of Effortless Instagram Filter Usage Unveiled</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-best-ranked-affordable-video-players-and-streaming-services-pc-and-mobile/"><u>2024 Approved Best-Ranked Affordable Video Players and Streaming Services (PC & Mobile)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mastering-the-art-of-retrieving-tweets-as-gifs/"><u>2024 Approved Mastering the Art of Retrieving Tweets as GIFs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-make-facebook-collage-instantly-for-2024/"><u>How to Make Facebook Collage Instantly for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/navigate-the-digital-world-prime-twitters-converters-for-2024/"><u>Navigate the Digital World Prime Twitters Converters for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/steps-to-tackle-non-functioning-asus-cam/"><u>Steps to Tackle Non-Functioning Asus Cam</u></a></li>
+</ul></div>
 

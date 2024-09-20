@@ -1,7 +1,7 @@
 ---
 title: "\"Expertise in Easel Alterations - Color Command\""
-date: 2024-07-11T23:18:28.875Z
-updated: 2024-07-12T23:18:28.875Z
+date: 2024-09-15T22:10:36.463Z
+updated: 2024-09-20T21:24:36.800Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ Now do the tuning by navigating to the layer mask and also select the layers. Af
 
 ![use sliders to black or white](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Tip 3: Add Color to White Object
 
 If you want to add color to your black or white shirt, you can do it by “Hue and Saturation Adjustment Layer.” On this layer, tap on “Colorize” and choose the color you want to add. Another technique is to create a “Fill Adjustment Layer” and then change the blending mode into “Multiple.” Now, click on the “Color Picker,” and you can pick and choose your preferred color. If you want to add a dark color rather than a subtle color, change the mode to “Screen.”
@@ -76,6 +83,20 @@ Afterward, create a group in which add layers, mask, and adjustment layers to ch
 
 ![change hue for changing color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Tip 6: Use Blend IF
 
 If you want to change the color of leaves on a tree, you can use the “Blend IF” option of Adobe Photoshop to precisely do the changes. Start with duplicating the existing layer and then hiding the second layer. Double click on the layer to open the menu and then use “Blend IF” sliders. This option works when you drag the sliders to black points, and it automatically hides the dark pixels of your photo.
@@ -92,6 +113,19 @@ It helps the user create transparency across the layer. After hiding the layer a
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
 If you don’t have an offline tool like Adobe Photoshop, you can use an online photo color editor to replace the colors quickly. In this part, we will suggest [BeFunky](https://www.befunky.com/) photo color editor change the photo colors efficiently.
@@ -103,6 +137,13 @@ To change the color, navigate to this tool and upload the images. Then, head to 
 To increase or decrease the intensity of your color, use the “Tolerance” option, and drag it accordingly. If you want to change the hue of the source color, click on the box next to “Target Color.” If you have accidentally applied any color on some part, you can head to erase tab and can remove the alterations from the brush.
 
 ![choose target color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,6 +171,20 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-hotspots-for-revolutionary-vr-cinema/"><u>[New] Hotspots for Revolutionary VR Cinema</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-leading-vr-accessories-the-top-10-countdown/"><u>[New] Leading VR Accessories The Top 10 Countdown</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-bring-to-life-the-dance-of-light-on-faces-employing-motion-blur-effects-in-picsart/"><u>[Updated] 2024 Approved Bring to Life the Dance of Light on Faces Employing Motion Blur Effects in Picsart</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-editors-archive-curating-timeless-vhs-effects-for-the-digital-age/"><u>[Updated] 2024 Approved The Editor's Archive Curating Timeless VHS Effects for the Digital Age</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-bridging-worlds-unveiling-the-best-31-platforms-for-cross-language-video-conversion/"><u>[Updated] Bridging Worlds Unveiling the Best 31 Platforms for Cross-Language Video Conversion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-grasping-the-full-potential-of-animoji-on-iphone-x/"><u>[Updated] In 2024, Grasping the Full Potential of Animoji on iPhone X</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-art-of-keeping-your-audience-attentive-and-committed-top-6-methods-revealed/"><u>2024 Approved The Art of Keeping Your Audience Attentive & Committed Top 6 Methods Revealed</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-infinix-note-30-vip-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Infinix Note 30 VIP? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Poco X5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/innovative-techniques-to-elevate-your-gopro-work-for-2024/"><u>Innovative Techniques to Elevate Your GoPro Work for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-s-top-10-streaming-video-services-free-ones-available/"><u>New In 2024, S Top 10 Streaming Video Services Free Ones Available</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/visualize-freely-premium-no-cost-screen-capture-tools-for-2024/"><u>Visualize Freely Premium No-Cost Screen Capture Tools for 2024</u></a></li>
+</ul></div>
 

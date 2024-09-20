@@ -1,7 +1,7 @@
 ---
 title: "Excellent Typography Trick Sets for 2024"
-date: 2024-07-11T23:13:18.107Z
-updated: 2024-07-12T23:13:18.107Z
+date: 2024-09-19T20:13:30.579Z
+updated: 2024-09-20T20:29:59.943Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
@@ -51,6 +58,19 @@ If you want to add texts and titles in your video that looks like the games mean
 In this pack, you will find unique text effects, and you can animate text with keyframe. You can animate numbers as well as characters, and it is mostly used to animate numbers to show counting. You can change different parameters of the animations and effects as per your preference. Furthermore, you can use it as a timer on your video to countdown. There are different styles available to apply to your texts and numbers.
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Text Library
 
@@ -69,6 +89,20 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -102,6 +136,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[New] 2024 Approved Best 10 YouTube Volume Boosters for Windows, MacOS, Android and iPhone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-elevating-visuals-with-hdr-excellence-in-photoshop/"><u>[New] 2024 Approved Elevating Visuals with HDR Excellence in Photoshop</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-engaging-conversations-with-your-youtube-audience/"><u>[New] Engaging Conversations with Your YouTube Audience</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-spectacular-free-image-editors-the-new-era/"><u>[New] In 2024, Spectacular Free Image Editors The New Era</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-higher-integrating-dji-drones-for-facebook-live/"><u>[Updated] Broadcasting Higher - Integrating DJI Drones for Facebook Live</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevate-your-social-standing-with-1000-followersmth/"><u>[Updated] In 2024, Elevate Your Social Standing with 1,000 Followers/Mth</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-the-art-of-customizing-your-youtube-channel-url/"><u>[Updated] In 2024, Mastering the Art of Customizing Your YouTube Channel URL</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-10-must-haves-action-cameras-unleashed-for-2024/"><u>[Updated] Top 10 Must-Haves Action Cameras Unleashed for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-13-mini-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone 13 mini Online</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/access-asus-realtek-speakersheadphones-drivers-for-free-today/"><u>Access ASUS Realtek Speakers/Headphones Drivers for Free Today!</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/five-no-cost-techniques-for-changing-avchd-videos-into-mp4-format-on-windows-11-systems/"><u>Five No-Cost Techniques for Changing AVCHD Videos Into MP4 Format on Windows 11 Systems</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/full-guide-to-apple-iphone-xs-icloud-bypass-by-drfone-ios/"><u>Full guide to Apple iPhone XS iCloud Bypass</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/your-views-iphones-looping-feature/"><u>Sync Your Views IPhone's Looping Feature</u></a></li>
+</ul></div>
 

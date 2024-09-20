@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Dive Into Sound Design  Focus on Audition's Fade In\""
-date: 2024-07-11T23:17:28.138Z
-updated: 2024-07-12T23:17:28.138Z
+date: 2024-09-17T22:18:25.536Z
+updated: 2024-09-20T19:34:42.142Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -100,6 +107,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -121,9 +135,23 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -155,6 +183,21 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-8-best-wedding-videos-on-youtube-and-vimeo/"><u>[New] In 2024, 8 Best Wedding Videos on YouTube and Vimeo</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-exploring-the-frontier-top-360-cameras-for-industry-pros-2023/"><u>[New] In 2024, Exploring the Frontier Top 360° Cameras for Industry Pros, 2023</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sci-fis-virtual-frontiers-top-10-metaverse-escapes/"><u>[New] Sci-Fi's Virtual Frontiers Top 10 Metaverse Escapes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-audio-harmony-seekers-perfecting-video-moods/"><u>[Updated] Audio Harmony Seekers Perfecting Video Moods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-newbie-to-pro-your-complete-guide-to-creator-studio/"><u>[Updated] From Newbie to Pro Your Complete Guide to Creator Studio</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fb-video-placement-upright-or-flat-angle/"><u>2024 Approved FB Video Placement - Upright or Flat Angle?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-olympic-snowscape-highlights-cross-style-22/"><u>2024 Approved Olympic Snowscape Highlights - Cross Style '22</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-three-key-strategies-for-acquiring-youtube-srt-files/"><u>2024 Approved Three Key Strategies for Acquiring YouTube SRT Files</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/budget-friendly-viewing-how-to-use-netflix-for-free-legally/"><u>Budget-Friendly Viewing: How To Use Netflix For Free Legally</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/guiding-steps-for-effective-gopro-time-lapse-capture/"><u>Guiding Steps for Effective GoPro Time-Lapse Capture</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/installing-acers-free-wi-fi-drivers-made-easy-get-started-now/"><u>Installing Acer's Free Wi-Fi Drivers Made Easy - Get Started Now!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/standout-soundstage-sagas-and-plots/"><u>Standout Soundstage Sagas and Plots</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/tapping-into-the-funny-side-with-photos-for-2024/"><u>Tapping Into the Funny Side with Photos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-seventh-line-up-of-all-weather-action-cams/"><u>The Seventh Line-Up of All-Weather Action Cams</u></a></li>
+</ul></div>
 

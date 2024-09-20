@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ghostly Movie Editing Hacks for 2024"
-date: 2024-09-11T21:31:33.645Z
-updated: 2024-09-15T16:15:33.404Z
+date: 2024-09-18T19:33:50.077Z
+updated: 2024-09-20T21:48:17.454Z
 tags: 
   - screen-recording
   - ai video
@@ -109,6 +109,13 @@ After creating a new project, there is an option to add media you can your the v
 
 ![add media to library on filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-media-to-library-on-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Drop the media to timeline
 
 Drag and drop your videos on the timeline to start the editing. Once you placed your videos on timelines put the video header at the front.
@@ -156,17 +163,10 @@ The camera will then capture the movement in slow motion, allowing you to see th
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why do we need a phantom slow-motion camera?
@@ -191,10 +191,10 @@ Once you have all of the necessary equipment, you will need to set up your camer
 Depending on the length of the video you want to create, you may need to take thousands of pictures. Once you have all of the pictures, you will need to use a time-lapse video editing software to put them all together.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to edit time-lapse video on a computer
@@ -227,13 +227,6 @@ You can easily install Filmora for free, after installing click on it three opti
 
 ![open filmora and create a new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2 Add some media to edit
 
 After creating a new project, there is an option to add media you can your the video which you want to edit.
@@ -246,24 +239,31 @@ Drag and drop your videos on the timeline to start the editing. Once you placed 
 
 ![drag media into timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/drag-media-into-timeline-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4 Add titles, effects, and transitions to your video
 
 Filmora provides several titles, effects, and transitions. You can add them according to your needs. If you want to make a time-lapse video then you can copy your video and paste it on the end of the first video, so that you can make a time-lapse video. But if you add the dissolve transition between them then your video will become so smooth.
 
 ![add title and effects to video filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-title-and-effects-to-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step5 Export to your desktop
 
 When you want to save your video or share it on social media just click on the export button. It will provide you with different features like you can export your video on a desktop or where ever you want. You can export it in HD form.
 
 ![export to your desktop](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -299,19 +299,17 @@ As filmmakers and video lovers, we have come up with some solid examples of time
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-quick-fix-tweeter-conversion-for-social-sharing/"><u>[New] 2024 Approved Quick-Fix Tweeter Conversion for Social Sharing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-vlcs-place-among-streaming-titans/"><u>[New] 2024 Approved VLC's Place Among Streaming Titans</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-top-10-text-manipulators-boosting-affects-craft-for-2024/"><u>[New] Top 10 Text Manipulators Boosting Affects Craft for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unzip-the-scripts-crafting-subtitles-from-compressed-files/"><u>[New] Unzip the Scripts Crafting Subtitles From Compressed Files</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-quick-guide-to-recording-presentations-using-webcam/"><u>[Updated] Quick Guide to Recording Presentations Using Webcam</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>2024 Approved Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-directory-30plus-zero-cost-online-tools-for-visual-effects/"><u>2024 Approved The Ultimate Directory 30+ Zero-Cost Online Tools for Visual Effects</u></a></li>
-<li><a href="https://win-blog.techidaily.com/boost-gaming-experience-overcoming-fps-drops-in-rainbow-six-extraction/"><u>Boost Gaming Experience: Overcoming FPS Drops in Rainbow Six Extraction</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/excellence-in-management-top-8-fb-planners-for-productivity-boost/"><u>Excellence in Management Top 8 FB Planners for Productivity Boost</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Xiaomi 14 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-revolutionize-your-social-media-experience-with-premier-tools/"><u>In 2024, Revolutionize Your Social Media Experience with Premier Tools</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/quickest-online-platforms-transforming-gif-into-video/"><u>Quickest Online Platforms Transforming GIF Into Video</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-apple-watch-why-it-wont-track-your-steps-and-solutions/"><u>Troubleshooting Apple Watch: Why It Won't Track Your Steps and Solutions</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Xiaomi Redmi A2? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-essential-guide-8-excellent-priceless-3d-video-experience/"><u>[New] Essential Guide 8 Excellent, Priceless 3D Video Experience</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-spring-recorder-rising-a-comprehensive-analysis/"><u>[New] Spring Recorder Rising A Comprehensive Analysis</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-from-silence-to-soundscape-embedding-mp3s-in-presentations-for-2024/"><u>[Updated] From Silence to Soundscape Embedding MP3s in Presentations for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/10-top-inspirational-movies-for-personal-power-boosts-for-2024/"><u>10 Top Inspirational Movies for Personal Power Boosts for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elevate-your-farming-game-to-immortal-status-with-these-7-14-mods/"><u>Elevate Your Farming Game to Immortal Status with These #7-14 Mods</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-amateurs-to-pros-transformative-steps-in-gopro-timelapses/"><u>From Amateurs to Pros Transformative Steps in GoPro Timelapses</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-honor-90-lite-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Honor 90 Lite Location | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/peak-palette-manager-suite-for-2024/"><u>Peak Palette Manager Suite for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-aurora-hdr-experience-is-it-transformative-in-2024/"><u>The Aurora HDR Experience Is It Transformative, In 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-photographers-companion-to-master-color-correction-top-11-for-2024/"><u>The Photographer's Companion to Master Color Correction (Top 11) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-civi-3-disney-100th-anniversary-edition-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Civi 3 Disney 100th Anniversary Edition Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-7-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From iPhone 7?</u></a></li>
 </ul></div>
 

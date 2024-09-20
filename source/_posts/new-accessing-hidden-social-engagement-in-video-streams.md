@@ -1,7 +1,7 @@
 ---
 title: "[New] Accessing Hidden Social Engagement in Video Streams"
-date: 2024-07-11T23:16:47.863Z
-updated: 2024-07-12T23:16:47.863Z
+date: 2024-09-16T19:19:28.654Z
+updated: 2024-09-20T22:07:02.759Z
 tags: 
   - screen-recording
   - ai video
@@ -163,6 +163,13 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to See Liked Comments on YouTube?
 
 YouTube is a service that is available for free, and it may be a terrific place for teenagers to find interest. Many young people use YouTube to watch comedy shows, how-to videos, recipes, hacks, and music videos. Teenagers also use the video-sharing platform to subscribe to other YouTubers and famous personalities and to follow their favorite vloggers (video bloggers).
@@ -189,6 +196,13 @@ Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
@@ -210,6 +224,13 @@ Now you will see the videos you liked or disliked and also the comments you like
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
@@ -245,6 +266,13 @@ Because understanding how to comment is only one aspect of the issue; very impor
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Did you know what a Highlighted comment is?
 
 A highlighted comment on YouTube aims to draw the content creator's attention with an automated feature.
@@ -254,6 +282,13 @@ When you click over to the comments area after receiving a notification about a 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
 Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -279,6 +314,17 @@ Additionally, video creators can manually highlight commenters to mark them for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-constructing-your-own-high-definition-pc-for-immersive-video-creation/"><u>[New] 2024 Approved Constructing Your Own High-Definition PC for Immersive Video Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-metaverse-insight-discovering-6-realistic-examples-for-2024/"><u>[New] Metaverse Insight Discovering 6 Realistic Examples for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-editessence-system/"><u>2024 Approved EditEssence System</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-screencast-o-matic-review-everything-you-need-to-know/"><u>2024 Approved Screencast-O-Matic Review Everything You Need To Know</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/complete-guide-successfully-installing-the-epson-xp-830-printer-driver/"><u>Complete Guide: Successfully Installing the Epson XP-830 Printer Driver</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-convert-avi-to-gif-on-windows-and-mac-with-filmora/"><u>How to Convert AVI to GIF on Windows and Mac with Filmora</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-motorola-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Motorola Photos An Easy Method Explained.</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-superior-selection-ultimate-cloud-storage-picks/"><u>In 2024, Superior Selection Ultimate Cloud Storage Picks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-resource-for-fresh-d-link-driver-downloads-and-upgrades-on-windows-systems/"><u>The Ultimate Resource for Fresh D-Link Driver Downloads and Upgrades on Windows Systems</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/vloggers-paradise-14-best-video-editing-software-for-hot-platforms/"><u>Vloggers Paradise 14 Best Video Editing Software for Hot Platforms</u></a></li>
+</ul></div>
 

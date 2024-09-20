@@ -1,7 +1,7 @@
 ---
 title: "Creating SubRip (SRT) From Encrypted Archives for 2024"
-date: 2024-07-11T23:20:07.877Z
-updated: 2024-07-12T23:20:07.877Z
+date: 2024-09-17T16:56:07.803Z
+updated: 2024-09-20T21:46:33.260Z
 tags: 
   - screen-recording
   - ai video
@@ -92,6 +92,13 @@ Step2 Hold down the ZIP file and select ‘Quick Look’ from the pop-up list > 
 
 ![select quick look](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now, locate the SRT file and use the Share icon at the bottom left corner of your screen to save it to your device. You can open the SRT file afterward!
 
 ![save srt file](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-7.jpg)
@@ -123,6 +130,13 @@ Step2 Use the ‘Import’ button to upload fbe SRT file on your computer or jus
 
 ![use import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced Edit’.
 
 ![select advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-2.jpg)
@@ -130,6 +144,13 @@ Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced 
 Step4 Edit the SRT file according to your requirements. You can edit time.code, change subtitles, and do lots more.
 
 ![edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 After you've completed the editing process, right-click on the ‘SRT’ file from the timeline. Then, choose ‘Export Subtitle File’ from the pop-up list and save it the SRT file to a preferred location on your computer.
 
@@ -197,6 +218,13 @@ Step3 Tap on the ZIP file to preview its content. Then tap ‘Extract’ to extr
 
 ![tap extract to extract srt files](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Finally, tap on ‘Done’ to complete the process.
 
 **For iPhone**
@@ -244,6 +272,13 @@ Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced 
 
 ![select advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Edit the SRT file according to your requirements. You can edit time.code, change subtitles, and do lots more.
 
 ![edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-3.jpg)
@@ -280,6 +315,18 @@ The article above has covered everything about converting zip to srt with or wit
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-gifs-to-videos-in-a-snap-top-online-platforms-for-content-upgraders/"><u>[New] From GIFs to Videos in a Snap Top Online Platforms for Content Upgraders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-navigating-through-ffxp-your-step-by-step-handbook/"><u>[New] In 2024, Navigating Through FFXP Your Step-by-Step Handbook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-optimizing-headlines-with-effective-slug-lines/"><u>[New] Optimizing Headlines with Effective Slug Lines</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-playbook-for-procuring-partners-on-youtube-for-2024/"><u>[New] The Ultimate Playbook for Procuring Partners on YouTube for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-closer-views-using-videoleap-software/"><u>[Updated] In 2024, Closer Views Using Videoleap Software</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-jokesterjuxtaposer/"><u>[Updated] JokesterJuxtaposer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-take-control-a-compreeved-guide-to-iphoneipad-screen-recordings-on-youtube/"><u>[Updated] Take Control A Compreeved Guide to iPhone/iPad Screen Recordings on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-sound-savvy-with-facebook-downloader/"><u>2023 Sound Savvy with Facebook Downloader</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-picscanner-tricks-uncomplicated-approaches-to-image-anonymity/"><u>2024 Approved PicScanner Tricks Uncomplicated Approaches to Image Anonymity</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-k70-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi K70 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-leading-phones-best-gopro-videos-editing-tools/"><u>In 2024, Leading Phones' Best GoPro Videos Editing Tools</u></a></li>
+</ul></div>
 

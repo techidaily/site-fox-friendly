@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Finding the Z-Axis in Your Text Art for 2024\""
-date: 2024-07-11T23:16:51.135Z
-updated: 2024-07-12T23:16:51.135Z
+date: 2024-09-18T19:55:41.850Z
+updated: 2024-09-20T20:38:51.627Z
 tags: 
   - screen-recording
   - ai video
@@ -86,13 +86,40 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -144,6 +171,14 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-perfecting-date-placement-on-visual-memories/"><u>[New] 2024 Approved Perfecting Date Placement on Visual Memories</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-awesome-free-webcam-games-for-computer-for-2024/"><u>[New] Awesome Free Webcam Games for Computer for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-best-free-and-paid-drawing-apps-for-windows/"><u>[Updated] Best Free and Paid Drawing Apps for Windows</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-buyers-best-guide-to-virtual-reality-cameras/"><u>2024 Approved Buyer's Best Guide to Virtual Reality Cameras</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-can-i-play-mov-files-on-huawei-p60-by-aiseesoft-video-converter-play-mov-on-android/"><u>How can I play .mov files on Huawei P60 ?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-a-dive-into-the-best-filmora-edits-for-enthusiasts/"><u>In 2024, A Dive Into the Best Filmora Edits for Enthusiasts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/your-essential-guide-to-watching-live-sports-for-free-online-top-picks/"><u>Your Essential Guide to Watching Live Sports for Free Online - Top Picks</u></a></li>
+</ul></div>
 

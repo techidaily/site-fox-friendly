@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Winter Wonderland in Beijing, Olympic Year 2022\""
-date: 2024-07-11T23:18:04.939Z
-updated: 2024-07-12T23:18:04.939Z
+date: 2024-09-17T21:38:19.442Z
+updated: 2024-09-20T21:40:35.450Z
 tags: 
   - screen-recording
   - ai video
@@ -40,11 +40,25 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -62,6 +76,13 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
@@ -77,6 +98,13 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 21-year-old Chloe Kim became back-to-back Olympic champion by dominating in the halfpipe. The American confirmed a gold medal on the first run itself. Her runs had 1080, a switch 900, and a switch backside of 540\. It further added another 1080\. She dominated the Snowboarding Women's Halfpipe Final with 94 points. Spain's Queralkt Castellet won silver and the bronze went to Sena Tomita of Japan.
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
@@ -102,6 +130,13 @@ Doping scandals have become a part of the Olympics and this year is no different
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
 
@@ -121,6 +156,17 @@ However, due to some miscommunication, she was allowed to be a participant in th
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-conversion-wizardry-zip-to-subrip-transformation/"><u>[New] Conversion Wizardry ZIP to SubRip Transformation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-eliminating-oculus-sickness-key-tactics/"><u>[New] In 2024, Eliminating Oculus Sickness Key Tactics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-exploring-alternatives-to-wirecast/"><u>[New] In 2024, Exploring Alternatives to Wirecast</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-guide-for-transforming-fragments-into-lasting-memories/"><u>[New] The Ultimate Guide for Transforming Fragments Into Lasting Memories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-mobile-vr-experiences-the-leading-10-headsets-for-2024/"><u>[New] Top Mobile VR Experiences - The Leading 10 Headsets for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streaming-your-way-to-animated-gifs-from-youtube-videos/"><u>[Updated] Streaming Your Way to Animated GIFs From YouTube Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/dji-writes-gaming-history-air-versus-spark-in-the-spotlight-for-2024/"><u>DJI’ Writes Gaming History Air Versus Spark in the Spotlight for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/simple-routines-for-saving-instagram-stories-efficiently/"><u>Simple Routines for Saving Instagram Stories Efficiently</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-12-pro-drfone-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 12 Pro | Dr.fone</u></a></li>
+</ul></div>
 

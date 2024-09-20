@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Infuse Kinetic Smear Into Photos in Photoshop for 2024"
-date: 2024-07-11T23:13:56.106Z
-updated: 2024-07-12T23:13:56.106Z
+date: 2024-09-19T18:23:38.499Z
+updated: 2024-09-20T17:28:18.770Z
 tags: 
   - screen-recording
   - ai video
@@ -96,6 +96,13 @@ Navigate to the "Effects" section and locate the "Background Blur" option. After
 
 ![access the background blurs](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 4 Adjust the Parameters
 
 Now play your clip to see the results on your screen. You can adjust its parameters by proceeding to the "Transitions" tab. Here, select the "Dissolve" option. By applying this transition effect, you can quickly make your clip look smooth. For more modifications, you can also adjust the phase increment and zoom rate.
@@ -132,11 +139,31 @@ After importing the picture, drag it to the timeline. Now play the clip on the t
 
 ![split the added clip](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 3 Go to the Effects Tab
 
 Navigate to the "Effects" section and locate the "Background Blur" option. Afterward, you would be able to see tons of blur effects. Next, choose your favorite blur effect from the options and apply it to the specific part of your clip on the timeline.
 
 ![access the background blurs](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-10.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 4 Adjust the Parameters
 
@@ -144,11 +171,25 @@ Now play your clip to see the results on your screen. You can adjust its paramet
 
 ![choose the dissolve transition](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 5 Export the Blurred Photo File
 
 Once you are done with editing, access the "Export" setting of Filmora. Choose your preferred resolution and output file format from the given options to conclude.
 
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -176,6 +217,19 @@ Do you want to add an artistic look to your photos? One of the great ways to enh
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-elite-expeditions-and-epic-quests-the-ultimate-gaming-journeys-top-ten/"><u>[New] 2024 Approved Elite Expeditions & Epic Quests – The Ultimate Gaming Journey's Top Ten</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elevate-your-gaming-experience-with-smart-use-of-xbox-zoom/"><u>[New] Elevate Your Gaming Experience with Smart Use of Xbox Zoom</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-podcasting-prowess-crafting-a-trendsetting-showcase/"><u>[New] In 2024, Podcasting Prowess Crafting a Trendsetting Showcase</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pinterest-vid-extraction-made-easy-the-best-tools-ranked-for-2024/"><u>[New] Pinterest Vid Extraction Made Easy The Best Tools Ranked for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-top-non-udemy-online-learning-platforms-for-self-improvement/"><u>[New] Top Non-Udemy Online Learning Platforms for Self-Improvement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb-for-2024/"><u>[Updated] Elevating Video Quality Incorporating BB and LC Elements in FB for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-journey-into-soundscapes-apples-ipodcast-playback-on-iphone/"><u>[Updated] Journey Into Soundscapes Apple's iPodcast Playback on iPhone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/error-message-deciphered-correcting-camera-failure-codes-0xa00f4244-on-your-windows-desktop/"><u>Error Message Deciphered: Correcting Camera Failure Codes 0xA00F4244 on Your Window's Desktop</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/flashback-flair-top-80s-video-tricks-for-a-contemporary-edge-for-2024/"><u>Flashback Flair Top 80S Video Tricks for a Contemporary Edge for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-realme-narzo-n55-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Realme Narzo N55</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-vivo-s17-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Vivo S17 Pro FRP Bypass</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-nord-n30-se-by-fonelab-android-recover-music/"><u>The way to get back lost music from Nord N30 SE</u></a></li>
+</ul></div>
 

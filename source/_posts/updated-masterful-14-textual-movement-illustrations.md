@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Masterful 14 Textual Movement Illustrations"
-date: 2024-07-11T23:13:06.189Z
-updated: 2024-07-12T23:13:06.189Z
+date: 2024-09-19T18:57:34.114Z
+updated: 2024-09-20T20:01:49.601Z
 tags: 
   - screen-recording
   - ai video
@@ -116,11 +116,38 @@ There are different variations of neon light animation that cool super cool. You
 
 ![neon light animation](https://images.wondershare.com/filmora/article-images/2022/09/neon-light-animation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. In and Out of Focus Text Effect
 
 Instead of bringing the entire sentence into focus, you can use a square box to run over the sentence and bring the focus on the words depending on the position of the square box. The animation is highly effective in getting the viewers to read the sentence and get the message.
 
 ![in and out focus text effect](https://images.wondershare.com/filmora/article-images/2022/09/in-and-out-focus-text-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How to Make a Text Animation Video
 
@@ -137,6 +164,13 @@ Step1 Download and install Wondershare Filmora on your computer. Click on New Pr
 Step2 if you do not have any background video, you can select from stock background by going to Stock Media> Pixabay> Video and drag and drop by animated background onto the timeline.
 
 ![drop animation background timeline filmora](https://images.wondershare.com/filmora/article-images/2022/09/drop-animation-background-timeline-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Go to Titles and you will get to see all the different categories of text animation templates from the left panel. Search for “animation” and you will get all the stunning text animation templates. Drag and drop any of them onto the timeline above the background layer.
 
@@ -209,6 +243,13 @@ Generally, in a slide out text animation, the text comes out of a border and the
 The stomp effect is quite eye-catching due to its dynamic nature. In this animation, the words come out from another word till the entire sentence is displayed. For example, you have a sentence of four words to display. So, you should show the first word and the second word will come out of the first word and the sequence will continue. If you have two words, you can show them coming out of one another from the middle.
 
 ![the stomp animation](https://images.wondershare.com/filmora/article-images/2022/09/the-stomp-animation.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. The Curtain Animation
 
@@ -290,6 +331,21 @@ We have discussed all the common type of text animations that are used to create
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-full-screen-preview-tutorials/"><u>[New] In 2024, Step-by-Step Full Screen Preview Tutorials</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-unparalleled-excitement-top-10-adventure-classics/"><u>[New] In 2024, Unparalleled Excitement Top 10 Adventure Classics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-tiktok-to-instagram-stardom-replicating-popular-reel-techniques/"><u>[Updated] From TikTok to Instagram Stardom Replicating Popular Reel Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-broadcast-battlegrounds-where-does-streaming-technology-stand-strongest/"><u>[Updated] In 2024, Broadcast Battlegrounds Where Does Streaming Technology Stand Strongest?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-navigating-video-data-in-high-capacity-drives-64128gb/"><u>[Updated] In 2024, Navigating Video Data in High-Capacity Drives (64/128GB)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-innovative-vocal-alteration-apps-beyond-echo-magic-for-2024/"><u>[Updated] Innovative Vocal Alteration Apps Beyond Echo Magic for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-beginners-guide-to-use-lunapic-photo-editor/"><u>A Beginner's Guide to Use Lunapic Photo Editor</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-nokia-c110-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Nokia C110 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-vivo-s17e-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Vivo S17e</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhance-your-gopro-videos-time-lapse-guide/"><u>Enhance Your GoPro Videos Time-Lapse Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-linksys-ea9500-the-smartest-and-strongest-wireless-router-on-the-market/"><u>In-Depth Analysis of the Linksys EA9500: The Smartest and Strongest Wireless Router on the Market</u></a></li>
+<li><a href="https://review-topics.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-itel-a05s-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723003297564-troubleshooting-guide-stability-issues-in-fia-world-rally-championship-sega-pc-version-no-more-crashes/"><u>Troubleshooting Guide: Stability Issues in FIA World Rally Championship Sega PC Version - No More Crashes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726028425913-photoshop/"><u>プロの仕事進めていく中で、Photoshop上の手順を記録する方法</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Bridging Photography and Cinematography  Creating Fusion Videos Using Pixiz\""
-date: 2024-07-11T23:16:25.117Z
-updated: 2024-07-12T23:16:25.117Z
+date: 2024-09-15T16:15:01.581Z
+updated: 2024-09-20T19:35:37.092Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ The powerful video editing program Filmora is offered by Wondershare. It offers 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you make photo videos using Filmora?
 
 Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from official website and click the setup wait till it install.
@@ -98,6 +105,13 @@ Step5**Click** on the **Title** option in the top right and select the **title t
 
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
@@ -105,6 +119,13 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
@@ -138,6 +159,13 @@ Step3**Import** photos by **clicking** (import media) and then drag and drop the
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
 ![option to make the photo fit](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-8.jpg)
@@ -165,6 +193,13 @@ Step9To make your slideshow more appealing, you can also add transitions or effe
 Step10After finishing all the editing, you can export your creation to any format you want.
 
 ![export creation to any format](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -194,6 +229,23 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-pcmac-to-the-feed-how-to-efficiently-upload-videos-to-instagram/"><u>[New] 2024 Approved From PC/Mac to the Feed How to Efficiently Upload Videos to Instagram</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-androidiphones-best-free-imagery-modification-apps-ranked/"><u>[New] Android/iPhone's Best FREE Imagery Modification Apps Ranked</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-conversion-wizardry-zip-to-subrip-transformation/"><u>[New] Conversion Wizardry ZIP to SubRip Transformation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-enhance-collaboration-with-these-zoom-tools/"><u>[New] Enhance Collaboration with These Zoom Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ensuring-compatibility-with-macos-big-sur-release-for-2024/"><u>[New] Ensuring Compatibility with MacOS Big Sur Release for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ringtone-repository-prime-picks-for-downloadable-calls-for-2024/"><u>[New] Ringtone Repository Prime Picks for Downloadable Calls for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-mobile-vr-experiences-the-leading-10-headsets-for-2024/"><u>[New] Top Mobile VR Experiences - The Leading 10 Headsets for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-top-10-premium-free-iosandroid-live-video-platforms/"><u>[Updated] In 2024, Explore Top 10 Premium-Free iOS/Android Live Video Platforms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-pioneers-guide-to-vr-terminology/"><u>[Updated] In 2024, The Pioneer's Guide to VR Terminology</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-transform-your-win11-sessions-with-advanced-zoom-skills-for-2024/"><u>[Updated] Transform Your Win11 Sessions with Advanced Zoom Skills for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-huawei-nova-y91-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Huawei Nova Y91</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/dive-into-dynamic-footage-the-review-of-polaroid-cubeplus-for-2024/"><u>Dive Into Dynamic Footage The Review of Polaroid Cube+ for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ensuring-child-safety-5-methods-to-use-chatgpt-responsibly/"><u>Ensuring Child Safety: 5 Methods to Use ChatGPT Responsibly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ensuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings/"><u>In 2024, Ensuring Correct Ad Revenue A Comprehensive Guide to YT Channel Earnings</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-vivo-t2-pro-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Vivo T2 Pro 5G Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-potential-best-gaming-content-to-elevate-your-channel-for-2024/"><u>Unleash Potential Best Gaming Content to Elevate Your Channel for 2024</u></a></li>
+</ul></div>
 

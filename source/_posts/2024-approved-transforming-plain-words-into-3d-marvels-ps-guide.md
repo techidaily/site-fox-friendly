@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Transforming Plain Words Into 3D Marvels  PS Guide\""
-date: 2024-07-11T23:16:33.920Z
-updated: 2024-07-12T23:16:33.920Z
+date: 2024-09-17T16:34:33.420Z
+updated: 2024-09-20T21:36:11.999Z
 tags: 
   - screen-recording
   - ai video
@@ -120,13 +120,40 @@ Step2 Import a background video or image by going to **My Media** and selecting 
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
 
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
 
@@ -156,6 +183,22 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-game-recorder-mastery-top-5-techniques-for-windows-11/"><u>[New] 2024 Approved Game Recorder Mastery Top 5 Techniques for Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-an-in-depth-guide-to-periscope-recording-procedures-for-2024/"><u>[New] An In-Depth Guide to Periscope Recording Procedures for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-guides-to-unearthing-elite-cinematography/"><u>[New] In 2024, Guides to Unearthing Elite Cinematography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-superheroes-clash-black-vs-silver/"><u>[New] In 2024, Superheroes Clash BLACK vs SILVER</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-guide-to-lightroom-for-hdr-image-creation/"><u>[New] In 2024, The Ultimate Guide to Lightroom for HDR Image Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-movavi-video-pro-review-release-for-2024/"><u>[New] Movavi Video Pro Review Release for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-innovative-angles-shooting-vertical-smartphone-panos/"><u>[Updated] 2024 Approved Innovative Angles Shooting Vertical Smartphone Panos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-secure-recording-methods-for-sensitive-whatsapp-discussions/"><u>[Updated] 2024 Approved Secure Recording Methods for Sensitive WhatsApp Discussions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-explore-costless-methods-for-superior-photo-quality-for-2024/"><u>[Updated] Explore Costless Methods for Superior Photo Quality for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>[Updated] YouTube Subscriber Awards The Play Button Awards for Creators</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/evolutionary-tools-redefining-the-art-of-game-capture-beyond-fbx-for-2024/"><u>Evolutionary Tools Redefining the Art of Game Capture Beyond FBX for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-step-by-step-setting-up-unique-youtube-shorts-thumbnails/"><u>In 2024, Step-by-Step Setting Up Unique YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-video-production-with-powerdirector-24/"><u>Mastering Video Production with PowerDirector '24</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-ultra-hd-gaming-displays-for-computers-featuring-144hz-refresh-rates-and-curve-technology/"><u>Top-Rated Ultra HD Gaming Displays for Computers - Featuring 144Hz Refresh Rates & Curve Technology</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ultimate-guide-to-top-6-creative-mojave-dwellings/"><u>Ultimate Guide to Top 6 Creative Mojave Dwellings</u></a></li>
+</ul></div>
 

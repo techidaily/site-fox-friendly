@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Frostbite Fame  Highlights of Cold Climates Games\""
-date: 2024-07-11T23:11:33.365Z
-updated: 2024-07-12T23:11:33.365Z
+date: 2024-09-19T18:03:24.438Z
+updated: 2024-09-20T18:39:28.733Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
@@ -70,6 +77,19 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
@@ -86,7 +106,27 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
@@ -95,6 +135,13 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
@@ -121,6 +168,18 @@ However, due to some miscommunication, she was allowed to be a participant in th
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-essential-8-choices-of-tripods-for-4k-cinematography/"><u>[New] Essential 8 Choices of Tripods for 4K Cinematography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-videos-to-audible-pleasures-online-mp3-creation-secrets-for-2024/"><u>[New] FB Videos to Audible Pleasures Online MP3 Creation Secrets for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-essential-hashtags-propel-your-posts-to-the-top-for-2024/"><u>[Updated] Essential #Hashtags Propel Your Posts to the Top for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-metaverse-vs-multiverse-what-are-the-differences-complete-guide-for-2024/"><u>[Updated] Metaverse Vs. Multiverse What Are the Differences [Complete Guide] for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-hack-the-art-world-essential-free-3d-psd-files/"><u>2024 Approved Hack the Art World Essential Free 3D PSD Files</u></a></li>
+<li><a href="https://review-topics.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-honor-x50i-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Honor X50i by Name | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discovering-prime-sources-and-techniques-for-cutting-tamil-ringtones/"><u>Discovering Prime Sources & Techniques for Cutting Tamil Ringtones</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/effective-strategies-for-removing-backgrounds-in-images/"><u>Effective Strategies for Removing Backgrounds in Images</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-hidden-narrators-of-fb-nuggets/"><u>In 2024, Hidden Narrators of FB Nuggets</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-how-to-fade-out-audio-in-logic-pro/"><u>In 2024, How To Fade Out Audio In Logic Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/understanding-light-settings-in-youtube-video-editing-for-2024/"><u>Understanding Light Settings in YouTube Video Editing for 2024</u></a></li>
+</ul></div>
 
