@@ -1,7 +1,7 @@
 ---
 title: "Key Tactics for Testimonial Videos for 2024"
-date: 2024-09-17T20:46:29.266Z
-updated: 2024-09-20T18:23:10.167Z
+date: 2024-09-25T19:09:58.009Z
+updated: 2024-09-26T21:35:52.128Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
@@ -48,6 +55,13 @@ It may seem like a daunting task, but there are several ways you can go about de
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Use the word “I”.
 * Use the word “we”.
@@ -60,10 +74,16 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
@@ -73,10 +93,10 @@ When asking someone for their thoughts on a topic or issue, there's always going
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lighting, Sound, and Video Quality Matter
@@ -95,16 +115,22 @@ When you're listening to your customers, don't just take notes on what they say.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Beware of Skeptics and Negative Nellies
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
@@ -142,5 +168,24 @@ If you're looking to boost your sales with testimonial videos, then you need to 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-background-excision-tool-affinity-photo/"><u>[New] 2024 Approved Background Excision Tool Affinity Photo</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-11-windows-11-secrets-unveiled/"><u>[New] 2024 Approved Top 11 Windows 11 Secrets Unveiled</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-bring-out-the-magic-leading-frames-for-your-images-for-2024/"><u>[New] Bring Out the Magic Leading Frames for Your Images for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-macos-11-big-sur-a-complete-hardware-overview/"><u>[New] In 2024, MacOS 11 Big Sur A Complete Hardware Overview</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-your-contents-presence-perfecting-youtube-thumbnails-size/"><u>[Updated] 2024 Approved Elevating Your Content's Presence Perfecting YouTube Thumbnails Size</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hashtag-mastery-pathway-to-6-figure-youtube-impact/"><u>[Updated] 2024 Approved Hashtag Mastery Pathway to 6-Figure Youtube Impact</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-step-by-step-ios-download-episodes-like-a-pro/"><u>[Updated] 2024 Approved Step-by-Step iOS Download Episodes Like a Pro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pixel-power-play-best-speedy-game-applications/"><u>[Updated] In 2024, Pixel Power Play Best Speedy Game Applications</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-from-animated-art-to-fun-factors-transforming-gifs-into-stickers-anywhere/"><u>2024 Approved From Animated Art to Fun Factors Transforming GIFs Into Stickers Anywhere</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-vivo-y100t-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Vivo Y100t via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-calm-in-chaos-how-to-reduce-shake-on-action-cam-videos/"><u>In 2024, Calm in Chaos How to Reduce Shake on Action Cam Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-a05s-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy A05s Phone that is Locked?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/intelligent-driving-assistant-arrives-mercedes-benz-adds-voice-controlled-chatgpt-to-enhance-in-car-experience/"><u>Intelligent Driving Assistant Arrives: Mercedes-Benz Adds Voice-Controlled ChatGPT to Enhance In-Car Experience</u></a></li>
+<li><a href="https://win-able.techidaily.com/maximize-gaming-speed-expert-advice-on-overcoming-low-fps-challenges-in-valheim/"><u>Maximize Gaming Speed: Expert Advice on Overcoming LOW FPS Challenges in Valheim</u></a></li>
+<li><a href="https://extra-information.techidaily.com/setting-and-changing-personalized-iphone-tones/"><u>Setting & Changing Personalized iPhone Tones</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-8-strategies-to-achieve-viral-success-on-youtube/"><u>Top 8 Strategies to Achieve Viral Success on YouTube</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-truth-about-bingchatgpt-crypto-tokens-spotting-scams-effectively/"><u>Unveiling the Truth About BingChatGPT Crypto Tokens – Spotting Scams Effectively</u></a></li>
+</ul></div>
 
