@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Invisible Hand  Mastering Windows 11'S Media Imports\""
-date: 2024-09-14T20:33:30.823Z
-updated: 2024-09-20T19:00:11.117Z
+date: 2024-09-28T06:02:42.581Z
+updated: 2024-10-01T20:23:38.253Z
 tags: 
   - screen-recording
   - ai video
@@ -40,27 +40,35 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 
 ## Part 1: Import Photos and Video from a Phone
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
@@ -68,6 +76,19 @@ Your phone will have settings regarding file transfers when it is connected to a
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 4: Import
 
@@ -89,13 +110,6 @@ Within the app, it is easy to see your photos and videos as they are organized b
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Troubleshooting the Phone to PC Connection
 
 There are instances where you may have some problems connecting your phone to the computer, even if you have the USB cable connected on both ends.
@@ -115,17 +129,10 @@ Connect the camera to your phone and then follow the above steps to import your 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -157,5 +164,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-digital-artistry-crafting-distorted-textual-elements/"><u>[New] 2024 Approved Digital Artistry Crafting Distorted Textual Elements</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-leading-online-convertor-audio-to-written-text/"><u>[New] 2024 Approved Leading Online Convertor Audio to Written Text</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-constructing-your-own-high-definition-pc-for-immersive-video-creation/"><u>[New] In 2024, Constructing Your Own High-Definition PC for Immersive Video Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-synthesize-shots-the-photo-montage-methodology/"><u>[New] In 2024, Synthesize Shots The Photo Montage Methodology</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/remier-producer-a-choreography-of-colors-and-tones/"><u>[New] Premier Producer A Choreography of Colors & Tones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-finest-chromebook-pencil-stores-you-need-to-know-about-for-2024/"><u>[New] The Finest Chromebook Pencil Stores You Need to Know About for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-power-of-srt-in-broadcasting/"><u>[Updated] 2024 Approved Unveiling the Power of SRT in Broadcasting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-bitevideo-innovator-for-2024/"><u>[Updated] BiteVideo Innovator for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-streamline-your-obs-outputs/"><u>[Updated] In 2024, Streamline Your OBS Outputs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-beginners-guide-to-straightforward-hdr-techniques-for-2024/"><u>[Updated] The Beginner's Guide to Straightforward HDR Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-guide-to-facebook-livestreaming-via-wirecast-for-2024/"><u>[Updated] The Ultimate Guide to Facebook Livestreaming via Wirecast for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-complete-guide-to-creating-a-vr-ready-environment/"><u>2024 Approved The Complete Guide to Creating a VR-Ready Environment</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-revel-in-pubgs-simplified-voice-transformation-methods/"><u>In 2024, Revel in PUBG's Simplified Voice Transformation Methods</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-tecno-camon-20-pro-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Tecno Camon 20 Pro 5G</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/income-patterns-in-the-podcast-industry-for-2024/"><u>Income Patterns in the Podcast Industry for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/listeners-lexicon-selecting-solid-offline-recording-tools-for-2024/"><u>Listeners' Lexicon Selecting Solid Offline Recording Tools for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-art-of-chromatic-enhancement/"><u>The Art of Chromatic Enhancement</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-note-12-4g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi Note 12 4G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+</ul></div>
 

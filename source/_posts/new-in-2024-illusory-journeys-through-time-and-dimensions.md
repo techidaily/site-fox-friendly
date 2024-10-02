@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Illusory Journeys Through Time and Dimensions"
-date: 2024-09-24T01:12:51.170Z
-updated: 2024-09-26T17:46:44.652Z
+date: 2024-09-27T21:23:29.266Z
+updated: 2024-10-01T22:51:36.632Z
 tags: 
   - screen-recording
   - ai video
@@ -35,13 +35,6 @@ However, in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. Filming Prerequisites for Time Travelling Effects
 
 To create shots, we have to do two processing rounds. In the first round, we will film a shot for daytime activity. While in the next round, we will shoot a video for nighttime activity. Get straight into the filming mode and create according to your script.
@@ -55,13 +48,6 @@ Catch us at the below tips to make your video shots more skilled! First, you nee
 You can also use a light that is 5,600 kelvins, which indicates blue light. We can easily change the light from its remote, as shown below.
 
 ![blue light lighting setup](https://images.wondershare.com/filmora/article-images/2023/04/blue-light-lighting-setup.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you don't have an asset to get the lighting set up, then don't worry; we have another option.
 
@@ -111,6 +97,13 @@ In this round, the subject should start from the right to left and perform stepp
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ### #3 cross line between two rounds
@@ -130,13 +123,6 @@ You can also create a marking by using anything in yours. We are using the midli
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ![cross line between two rounds](https://images.wondershare.com/filmora/article-images/2023/04/cross-line-between-two-rounds.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
 
@@ -241,6 +227,13 @@ To show the energy pack between two time-travel clips, you have to add the effec
 **Note:** After dropping the effect, ensure that it starts simultaneously when the nighttime clip appears on the screen.
 
 ![after adding the elemental energy effect](https://images.wondershare.com/filmora/article-images/2023/04/after-adding-the-elemental-energy-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Resize the effect according to the clip for a better look.
 
@@ -328,13 +321,6 @@ It is a very important step that you don't have to change the camera position du
 
 ![camera alignment](https://images.wondershare.com/filmora/article-images/2023/04/camera-alignment.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After setting all equipment, now it's time to allow the character to perform in front of the camera.
 
 **Character position**
@@ -342,13 +328,6 @@ After setting all equipment, now it's time to allow the character to perform in 
 For the first round, the subject has to do acting for the daytime script. Let the character do their performance according to the screenplay.
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #1 night-time lighting setup
 
@@ -369,6 +348,13 @@ In this round, the subject should start from the right to left and perform stepp
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### #3 cross line between two rounds
 
@@ -411,6 +397,13 @@ Find the best clips you have shotted for each dimension. Then follow the below s
 
 ![daytime clip on the bottom video track](https://images.wondershare.com/filmora/article-images/2023/04/daytime-clip-on-the-bottom-video-track.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After importing the daytime clip to the timeline, now it's time to add marks for better editing.
 
 ##### Step3Marks on the daytime clip
@@ -429,6 +422,13 @@ The marking of the clips will give better trimming points. For this, mark the ex
 After marking the daytime clip, drag and drop the clip of the second round (i.e., nighttime clip) in the second video track.
 
 ![nighttime clip in the second video track](https://images.wondershare.com/filmora/article-images/2023/04/nighttime-clip-in-the-second-video-track.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step5Mark the nightime clip
 
@@ -471,22 +471,15 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 ![change the shape mask settings](https://images.wondershare.com/filmora/article-images/2023/04/change-the-shape-mask-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
 
@@ -520,13 +513,6 @@ To apply the chromatic effect after the power pack effect, follow the below step
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** Change the settings of the effects as needed from the top left setting panel on filmora.
 
 ##### Step11Apply the laser effects
@@ -543,6 +529,13 @@ To get the thrilling look, you have to apply the laser effect between the two cl
 * Reposition and adjust it according to the requirements if needed.
 * Extend the laser effect to the end of the scene.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Final Results
 
 Congratulations! You have all done with the time travel teleportation effects and get a bombing video. Check out the results below!
@@ -550,6 +543,13 @@ Congratulations! You have all done with the time travel teleportation effects an
 ![final results of time travel teleportation effects](https://images.wondershare.com/filmora/article-images/2023/04/final-results-of-time-travel-teleportation-effects.gif)
 
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -585,18 +585,21 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-maximizing-4k-imaging-top-lens-choices/"><u>[New] 2024 Approved Maximizing 4K Imaging Top Lens Choices</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-premium-5-professional-drones-buyers-guide/"><u>[New] Premium 5 Professional Drones - Buyers Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-expert-insights-efficiently-attaching-subtitles-to-mp4s/"><u>[Updated] 2024 Approved Expert Insights Efficiently Attaching Subtitles to MP4s</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-leading-edge-headsets-for-drone-vr-use-for-2024/"><u>[Updated] Leading Edge Headsets for Drone VR Use for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-ultimate-action-camera-selection-under-100-for-2024/"><u>[Updated] Ultimate Action Camera Selection Under $100 for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-effective-methods-for-iso-file-conversion-onto-dvd-using-windows-1/"><u>6 Effective Methods for ISO File Conversion Onto DVD Using Windows 1</u></a></li>
-<li><a href="https://win11.techidaily.com/frame-perfecting-eliminating-lags-with-these-9-windows-strategies/"><u>Frame Perfecting: Eliminating Lags with These 9 Windows Strategies</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-poco-x6-pro-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Poco X6 Pro Devices | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-sketch-mastery-on-mac-the-freest-software-lineup/"><u>In 2024, Sketch Mastery on Mac The Freest Software Lineup</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/investigating-whether-sns-hdr-offers-superior-ux-for-2024/"><u>Investigating Whether SNS HDR Offers Superior UX for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/prime-video-broadcast-software-choice-for-2024/"><u>Prime Video Broadcast Software Choice for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/top-rated-desktop-video-recorders-for-pcmac/"><u>Top-Rated Desktop Video Recorders for PC/Mac</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-11-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-5-highest-rated-vr-gear-for-uavs/"><u>[New] 2024 Approved 5 Highest-Rated VR Gear for UAVs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unlocking-full-potential-with-iphone-hdr/"><u>[New] 2024 Approved Unlocking Full Potential with iPhone HDR</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-visual-geniuses-cache-unbeatable-afx-samples-at-zero-price/"><u>[New] 2024 Approved Visual Geniuses' Cache Unbeatable AFX Samples at Zero Price</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-streamline-recorder-quality-test/"><u>[New] In 2024, StreamLine Recorder Quality Test</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlocking-content-creation-free-tools-for-downloading-vids-online/"><u>[New] Unlocking Content Creation Free Tools for Downloading Vids Online</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-streamline-screen-recording-processes-during-facetime/"><u>[Updated] 2024 Approved Streamline Screen-Recording Processes During FaceTime</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-3d-lut-design-techniques/"><u>[Updated] 2024 Approved Unveiling 3D LUT Design Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-discovering-androids-and-ioss-best-rated-wedding-clock-apps/"><u>[Updated] Discovering Android's and iOS's Best-Rated Wedding Clock Apps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-innovative-methods-for-mac-screenshot-format-change-for-2024/"><u>[Updated] Innovative Methods for Mac Screenshot Format Change for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-saving-the-best-from-fb-in-high-definition-for-2024/"><u>[Updated] Saving the Best From FB in High Definition for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-path-to-podcast-success-through-seo-excellence-for-2024/"><u>[Updated] The Ultimate Path to Podcast Success Through SEO Excellence for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-plus-revolutionizing-the-way-you-learn-a-new-language/"><u>ChatGPT Plus: Revolutionizing the Way You Learn a New Language</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-lava-blaze-2-pro-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Lava Blaze 2 Pro in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotlight-on-sea-tech-a-critical-look-at-their-external-blu-ray-writing-device-performance/"><u>Spotlight on Sea Tech: A Critical Look at Their External Blu-Ray Writing Device Performance</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unraveling-kinemasters-gs-mastery-for-pro-video-editors-for-2024/"><u>Unraveling KineMaster’s GS Mastery for Pro Video Editors for 2024</u></a></li>
 </ul></div>
 

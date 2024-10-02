@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Popular Photos  The Backstory for 2024\""
-date: 2024-09-20T00:22:07.704Z
-updated: 2024-09-26T21:34:20.080Z
+date: 2024-09-26T04:27:01.282Z
+updated: 2024-10-01T20:50:13.577Z
 tags: 
   - screen-recording
   - ai video
@@ -48,25 +48,11 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
@@ -86,17 +72,31 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
@@ -110,6 +110,13 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -119,6 +126,13 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
 
@@ -140,10 +154,10 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part5: FAQs
@@ -154,29 +168,9 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -214,20 +208,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-crafting-and-downloading-personalized-insta-ringtones/"><u>[New] 2024 Approved Crafting & Downloading Personalized Insta Ringtones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-select-12-premium-camcorders-equipped-with-global-positioning-systems/"><u>[New] 2024 Approved Select 12 Premium Camcorders Equipped With Global Positioning Systems</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-navigating-live-stream-providers-with-10-top-insights/"><u>[New] Navigating Live Stream Providers with 10 Top Insights</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-snaptweet-transporter-swiftly-grab-social-media-vids-for-2024/"><u>[New] SnapTweet Transporter Swiftly Grab Social Media Vids for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-x100-pro-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo X100 Pro</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-motorola-edge-2023-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Motorola Edge 2023 Phone | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-uploading-expansive-content-on-youtube-like-a-pro/"><u>In 2024, Uploading Expansive Content on YouTube Like a Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-xsplit-digest-in-depth-splits-reviews/"><u>In 2024, XSplit Digest In-Depth Splits Reviews</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/ion-air-pro-3-visionary-revolutionizing-action-video-for-2024/"><u>ION Air Pro 3 Visionary - Revolutionizing Action Video for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/live-from-the-cloud-effective-dji-drone-broadcasting-tips-for-2024/"><u>Live From the Cloud Effective DJI Drone Broadcasting Tips for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-updating-your-dell-camera-drivers-properly/"><u>Step-by-Step Guide: Updating Your Dell Camera Drivers Properly</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/superior-approaches-turning-visual-content-into-music-files-for-2024/"><u>Superior Approaches Turning Visual Content Into Music Files for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-smart-way-to-save-youtube-sections/"><u>The Smart Way to Save YouTube Sections</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-infinix-note-30-5g-frp-by-drfone-android/"><u>The Updated Method to Bypass Infinix Note 30 5G FRP</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/uniting-music-and-media-with-precision-using-youtube-video-editor-for-2024/"><u>Uniting Music & Media with Precision Using YouTube Video Editor for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-all-facets-of-adobes-storage-system-and-its-equivalents-in-the-market/"><u>[New] 2024 Approved All Facets of Adobe's Storage System & Its Equivalents in the Market</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-perfect-picture-creation-discover-these-top-5-android-editors/"><u>[New] 2024 Approved Perfect Picture Creation Discover These Top 5 Android Editors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-elevate-storytelling-modifying-video-speed-on-instagram/"><u>[New] In 2024, Elevate Storytelling Modifying Video Speed on Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unlocked-treasures-art-without-intellectual-property-restrictions/"><u>[New] In 2024, Unlocked Treasures Art Without Intellectual Property Restrictions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-chromium-connection-pixel-phone-rhythms-for-2024/"><u>[New] The Chromium Connection Pixel Phone Rhythms for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-turbo-charged-triumphs-short-track-22-for-2024/"><u>[New] Turbo-Charged Triumphs Short Track, '22 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiling-the-concealed-cause-for-non-video-alerts-on-fb-for-2024/"><u>[New] Unveiling the Concealed Cause for Non-Video Alerts on FB for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-video-mastery-without-relying-on-xsplit/"><u>[New] Video Mastery Without Relying on Xsplit</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-guide-to-incredible-gopro-timelapse-cinematography-mastery/"><u>[Updated] 2024 Approved Guide to Incredible GoPro Timelapse Cinematography Mastery</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-top-strategies-for-efficient-mobizen-screencasting/"><u>[Updated] 2024 Approved Top Strategies for Efficient Mobizen Screencasting</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-itunes-media-three-recording-techniques-for-2024/"><u>[Updated] Capturing iTunes Media Three Recording Techniques for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-camera-buying-made-easy-for-film-novices/"><u>[Updated] In 2024, Camera Buying Made Easy for Film Novices</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-cross-network-laughter-whos-tops-today/"><u>[Updated] In 2024, Cross-Network Laughter Who's Tops Today?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-master-the-art-of-freezing-out-the-backdrop-in-your-design/"><u>[Updated] In 2024, Master the Art of Freezing Out the Backdrop in Your Design</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-social-media-tweeting-videos-to-facebook-for-2024/"><u>[Updated] Mastering Social Media Tweeting Videos to Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-audience-analysis-the-art-of-finding-your-market/"><u>2024 Approved Youtube Audience Analysis The Art of Finding Your Market</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-identifying-top-8-linux-tools-for-immediate-screenshots/"><u>In 2024, Identifying Top 8 Linux Tools for Immediate Screenshots</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petcube-cam-review/"><u>Petcube Cam Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-apple-iphone-12-mini-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile Apple iPhone 12 mini Before the Plan Expires</u></a></li>
 </ul></div>
 

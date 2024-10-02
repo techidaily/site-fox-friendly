@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Breaking Down  Why Syma X5C Is Top-Notch for New Dronists\""
-date: 2024-09-16T16:15:56.855Z
-updated: 2024-09-20T17:55:58.317Z
+date: 2024-09-30T19:04:29.943Z
+updated: 2024-10-01T16:12:58.687Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/6befd60c173a5cd8b8d9dfcf598dea7f7e1558ad2
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -96,13 +103,34 @@ thumbnail: https://thmb.techidaily.com/6befd60c173a5cd8b8d9dfcf598dea7f7e1558ad2
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -133,12 +161,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-syncopating-success-key-points-to-music-short-videos-on-youtube/"><u>[New] 2024 Approved Syncopating Success Key Points to Music Short Videos on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-audioarchive-compiler-download-playback-and-test/"><u>[New] In 2024, AudioArchive Compiler Download, Playback & Test</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-a-compre-written-in-the-stars-how-to-choose-an-ideal-podcast-title/"><u>[Updated] 2024 Approved A Compre Written in the Stars How to Choose an Ideal Podcast Title</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-diving-into-3d-worlds-iphones-approach-to-vr-viewing/"><u>[Updated] Diving Into 3D Worlds IPhone's Approach to VR Viewing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-seamless-speech-to-text-translation-in-microsoft-office-suite-word/"><u>[Updated] In 2024, Seamless Speech-to-Text Translation in Microsoft Office Suite (Word)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-understanding-key-aspects-of-gif-animation/"><u>[Updated] In 2024, Understanding Key Aspects of GIF Animation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-odins-revenge-ragnarok-coming-soon/"><u>[Updated] Odin's Revenge Ragnarök - Coming Soon</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-art-of-audience-appreciation-fostering-viewer-relationships-for-2024/"><u>[Updated] The Art of Audience Appreciation Fostering Viewer Relationships for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-capture-and-storage-managing-snapshots-like-a-pro-for-2024/"><u>[Updated] The Art of Capture and Storage Managing Snapshots Like a Pro for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-shorts-vs-tiktok-which-one-is-better/"><u>2024 Approved YouTube Shorts Vs. TikTok Which One Is Better?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/dealing-with-iphones-and-mtp-driver-woes-master-these-troubleshooting-tips/"><u>Dealing With iPhones and MTP Driver Woes? Master These Troubleshooting Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-down-virtual-realitys-mechanics/"><u>In 2024, Breaking Down Virtual Reality's Mechanics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-unleash-creativity-customizing-call-alert-sounds-on-iphone/"><u>In 2024, Unleash Creativity Customizing Call Alert Sounds on iPhone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movavim4bwavmp3/"><u>Movaviで手っ取り早く無料のオンラインM4BからWAVまたはMP3への変換</u></a></li>
+</ul></div>
 

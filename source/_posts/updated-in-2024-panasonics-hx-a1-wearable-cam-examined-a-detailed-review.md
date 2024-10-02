@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Panasonic’s HX-A1 Wearable Cam Examined - A Detailed Review\""
-date: 2024-09-23T20:37:09.346Z
-updated: 2024-09-27T02:04:15.050Z
+date: 2024-09-29T21:44:15.049Z
+updated: 2024-10-01T21:23:52.914Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/20c69587162d153f03eefa64dab5fb5356740a9d4
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specification
@@ -76,10 +76,16 @@ thumbnail: https://thmb.techidaily.com/20c69587162d153f03eefa64dab5fb5356740a9d4
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -119,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/20c69587162d153f03eefa64dab5fb5356740a9d4
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -147,13 +160,6 @@ thumbnail: https://thmb.techidaily.com/20c69587162d153f03eefa64dab5fb5356740a9d4
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
@@ -163,10 +169,16 @@ thumbnail: https://thmb.techidaily.com/20c69587162d153f03eefa64dab5fb5356740a9d4
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -194,16 +206,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-convert-twitter-vids-into-aacmp4-files-for-2024/"><u>[New] Convert Twitter Vids Into AAC/MP4 Files for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-evolving-from-static-snapshots-to-moving-visuals-for-2024/"><u>[Updated] Evolving From Static Snapshots to Moving Visuals for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-is-it-possible-to-quick-review-on-windows-heres-how/"><u>[Updated] Is It Possible to Quick Review on Windows? Here’s How</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-ranking-the-premier-online-church-service-providers-for-2024/"><u>[Updated] Ranking the Premier Online Church Service Providers for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-instagram-mavens-guide-to-spectaculous-unboxing-reels/"><u>2024 Approved The Instagram Maven's Guide to Spectaculous Unboxing Reels</u></a></li>
-<li><a href="https://win-able.techidaily.com/effortless-methods-to-correct-errors-in-microsoft-word-winwordexe/"><u>Effortless Methods to Correct Errors in Microsoft Word (WINWORD.EXE)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/elevate-your-flying-11-best-add-ons-for-the-phantom-4/"><u>Elevate Your Flying 11 Best Add-Ons for the Phantom 4</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/evaluating-the-performance-of-the-stylish-aukey-usb-nhub-is-it-worth-your-investment/"><u>Evaluating the Performance of the Stylish Aukey USB nHub: Is It Worth Your Investment?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/macsnap-gallery-builder-for-2024/"><u>MacSnap Gallery Builder for 2024</u></a></li>
-<li><a href="https://techidaily.com/repair-corrupt-pdf-files-on-my-mac-using-tool-stellar-by-stellar-guide/"><u>Repair corrupt PDF files on my Mac using tool | Stellar</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tips-for-effective-youtube-end-screen-usage-for-2024/"><u>Tips for Effective YouTube End Screen Usage for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-a-beginners-guide-to-use-lunapic-photo-editor-for-2024/"><u>[New] A Beginner's Guide to Use Lunapic Photo Editor for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mastering-elegant-mosaic-imagery-fusions/"><u>[New] Mastering Elegant Mosaic Imagery Fusions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlock-pubgs-hidden-voice-tweaks-quickly/"><u>[New] Unlock PUBG's Hidden Voice Tweaks Quickly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-make-reels-on-instagram-like-a-ninja/"><u>[Updated] In 2024, How to Make Reels on Instagram Like a Ninja</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-infiltrating-hidden-user-communications-on-yt-platforms/"><u>[Updated] Infiltrating Hidden User Communications on YT Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-secrets-to-standout-final-scenes-on-yt-platforms-for-2024/"><u>[Updated] Secrets to Standout Final Scenes on YT Platforms for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhancing-clarity-for-tiny-treasures-in-minecraft/"><u>Enhancing Clarity for Tiny Treasures in Minecraft</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722904111702-how-can-you-know-if-theyve-checked-your-messages-uncover-the-secrets/"><u>How Can You Know If They've Checked Your Messages? Uncover the Secrets</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-nokia-c12-plus-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Nokia C12 Plus to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-inspire-listenership-with-a-great-soundbite-teaser/"><u>How to Inspire Listenership with a Great Soundbite Teaser</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ideal-sites-to-discover-3d-golden-tinted-typography/"><u>Ideal Sites to Discover 3D Golden Tinted Typography</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-academic-allies-premier-educators-on-youtube/"><u>In 2024, Academic Allies Premier Educators on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-top-10-most-affordable-cloud-vendors-listed/"><u>In 2024, Top 10 Most Affordable Cloud Vendors Listed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-xs-action-cam-the-polaroid-100-i-unveiled/"><u>In 2024, XS Action Cam The Polaroid 100 I Unveiled</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-role-of-chatgpt-in-simplifying-web-design-for-developers/"><u>The Role of ChatGPT in Simplifying Web Design for Developers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-channel-mastery-with-studio-power-ups-for-2024/"><u>Unlocking Channel Mastery with Studio Power-Ups for 2024</u></a></li>
 </ul></div>
 

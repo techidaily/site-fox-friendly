@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Methods for Capturing Audio in Audacity\""
-date: 2024-09-17T16:40:37.296Z
-updated: 2024-09-20T19:33:47.764Z
+date: 2024-09-27T17:29:19.477Z
+updated: 2024-10-01T16:56:50.002Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,18 +113,17 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-creating-impressive-google-collage-with-minimal-haste/"><u>[New] Creating Impressive Google Collage with Minimal Haste</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-gopro-hero5-black-vs-yi-4k-action-camera-which-is-better/"><u>[New] GoPro Hero5 Black Vs. Yi 4K Action Camera Which Is Better?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-compilation-of-samsungs-picture-editing-capabilities/"><u>[New] The Ultimate Compilation of Samsung's Picture Editing Capabilities</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-hacks-to-dodge-digital-lessons-at-home/"><u>[Updated] 2024 Approved Hacks to Dodge Digital Lessons at Home</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-photoshops-stabilization-an-essential-tool-or-overrated-feature/"><u>[Updated] In 2024, Photoshop's Stabilization An Essential Tool or Overrated Feature?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-mpeg-video-assembly-top-rated-programs/"><u>In 2024, Free MPEG Video Assembly Top Rated Programs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/secure-your-account-a-comprehensive-tutorial-for-resetting-your-facebook-password/"><u>Secure Your Account: A Comprehensive Tutorial for Resetting Your Facebook Password</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-essential-6-steps-for-recording-your-favorite-movies-from-netflix-on-macos-for-2024/"><u>The Essential 6 Steps for Recording Your Favorite Movies From Netflix on macOS for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/windows-11-driver-update-tutorial-keeping-your-hardware-compatible-and-efficient/"><u>Windows 11 Driver Update Tutorial: Keeping Your Hardware Compatible & Efficient</u></a></li>
+</ul></div>
 

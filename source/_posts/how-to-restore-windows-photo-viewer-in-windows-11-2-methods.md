@@ -1,7 +1,7 @@
 ---
 title: "How to Restore Windows Photo Viewer in Windows 11 (2 Methods)"
-date: 2024-09-16T20:47:26.886Z
-updated: 2024-09-20T21:25:45.016Z
+date: 2024-09-28T06:28:37.304Z
+updated: 2024-10-01T16:43:02.809Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,19 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -73,6 +86,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -88,16 +108,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -105,14 +125,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -137,5 +163,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-detailed-review-of-vsco-editing-techniques-and-tools/"><u>[New] In 2024, Detailed Review of VSCO Editing Techniques and Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premier-ringtone-makers-for-iphone-users/"><u>[New] Premier Ringtone Makers for iPhone Users</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-simple-screen-recorder-for-windows-11/"><u>[New] Simple Screen Recorder for Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastery-of-image-warping-made-simple/"><u>[Updated] 2024 Approved Mastery of Image Warping Made Simple</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-smilesketcher-generate-memes-with-a-click/"><u>[Updated] In 2024, SmileSketcher Generate Memes with a Click</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-yet-high-quality-expert-review-of-the-hisense-50h8f-4k-tv/"><u>Budget-Friendly Yet High-Quality: Expert Review of the Hisense 50H8F 4K TV</u></a></li>
+<li><a href="https://win-special.techidaily.com/conversione-gratuita-da-mpeg-a-flac-tramite-linnovativo-sito-web-di-movavi-esegui-ora/"><u>Conversione Gratuita Da MPEG a FLAC Tramite L'innovativo Sito Web Di Movavi - Esegui Ora!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/fading-techniques-for-aural-balance-for-2024/"><u>Fading Techniques for Aural Balance for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-grid-gurus-the-leading-photo-organizers-reviewed/"><u>In 2024, Grid Gurus - The Leading Photo Organizers Reviewed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/retrieve-your-overlooked-email-information-with-these-simple-steps/"><u>Retrieve Your Overlooked Email Information with These Simple Steps</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/m4aflac-movavi/"><u>オンラインでも簡単! M4AからFLACに自由に変換可能 - Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Master the Art of Video Crafting  Integrating StoryRemix with Windows 11 Photos for 2024\""
-date: 2024-09-16T20:57:26.851Z
-updated: 2024-09-20T16:12:07.194Z
+date: 2024-09-27T07:07:46.333Z
+updated: 2024-10-02T06:17:54.500Z
 tags: 
   - screen-recording
   - ai video
@@ -73,6 +73,20 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -101,6 +115,13 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -110,17 +131,10 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Adding custom text
@@ -131,19 +145,26 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
 2. Preview the changes and click ‘Done’.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Trimming video clips
 
@@ -186,26 +207,13 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -230,5 +238,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-6-video-styles-for-maximum-viewer-engagement/"><u>[New] 2024 Approved 6 Video Styles for Maximum Viewer Engagement</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-assessing-the-financial-impact-of-music-videos/"><u>[New] In 2024, Assessing the Financial Impact of Music Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlocking-obs-potential-strategies-involving-lut-filters-for-2024/"><u>[New] Unlocking OBS Potential Strategies Involving LUT Filters for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-audio-amplification-adding-tracks-to-premiere-projects-with-ease-for-2024/"><u>[Updated] Audio Amplification Adding Tracks to Premiere Projects with Ease for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-first-impressions-intova-x-in-the-spotlight/"><u>[Updated] First Impressions Intova X in the Spotlight</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigate-the-1080p-landscape-for-better-fb-broadcasts/"><u>[Updated] In 2024, Navigate the 1080P Landscape for Better FB Broadcasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unearthing-the-potential-in-magixs-image-sorter/"><u>[Updated] In 2024, Unearthing the Potential in MAGIX's Image Sorter</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-motorola-moto-g34-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Motorola Moto G34 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/charting-the-course-for-unmatched-cloud-storage-for-2024/"><u>Charting the Course for Unmatched Cloud Storage for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/filmography-foundation-answer-hub-for-2024/"><u>Filmography Foundation Answer Hub for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/from-still-to-story-the-art-of-adding-text-to-photos-os-style/"><u>From Still to Story The Art of Adding Text to Photos, OS Style</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-make-every-meme-shine-on-9gag/"><u>How to Make Every Meme Shine on 9GAG</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-frozen-frontier-showcasing-2022s-olympic-peaks-and-precision-riders/"><u>In 2024, Frozen Frontier Showcasing 2022'S Olympic Peaks and Precision Riders</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovate-your-visual-narrative-the-10-best-text-upgrades/"><u>Innovate Your Visual Narrative - The 10 Best Text Upgrades</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimal-aspect-ratios-for-video-production-for-2024/"><u>Optimal Aspect Ratios for Video Production for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ranking-the-ultimate-10-free-online-subtitle-makers-srt/"><u>Ranking the Ultimate 10 Free Online Subtitle Makers (Srt)</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-future-is-now-a-deep-dive-into-lian-li-hydroshift-lcd-360s-casing-innovations/"><u>The Future Is Now: A Deep Dive Into Lian Li Hydroshift LCD 360S Casing Innovations</u></a></li>
+</ul></div>
 

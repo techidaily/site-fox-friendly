@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pioneers of Haptic Technology Unveiled\""
-date: 2024-09-26T01:07:32.340Z
-updated: 2024-09-26T23:20:18.692Z
+date: 2024-09-28T19:13:24.773Z
+updated: 2024-10-01T16:17:50.754Z
 tags: 
   - screen-recording
   - ai video
@@ -80,11 +80,25 @@ Also known as Markerless Hand Tracking, this type of Hand Tracking allows users 
 
 Right now, markerless Hand Tracking is still in its early stages, with a few limitations. However, as this technology continues to develop, we will likely see more and more applications for it in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Using Python, OpenCV, And MediaPipe To Create A Hand Tracking
 
 Above we have learned what is Hand Tracking and the two types of it. Now let’s see how we can create a hand tracking with two Python Libraries - OpenCV and MediaPipe.
 
 Before we go further about them, let us learn about Python quickly. Python is a versatile language used for a wide range of tasks, including image processing and computer vision. We will use Python and two Python Libraries: OpenCV and MediaPipe, to create a Hand Tracking module.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What is OpenCV
 
@@ -101,13 +115,6 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Guidance With Steps
 
 Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
@@ -118,15 +125,22 @@ Click the **“New Project”** option and select **“Create”** on the next W
 
 ![install and launch the pycharm app on your pc](https://images.wondershare.com/filmora/article-images/2022/07/install-and-launch-the-pycharm-app-on-your-pc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now, to install **MediaPipe**, copy and paste the following command:
@@ -144,10 +158,10 @@ First, import the OpenCV and MediaPipe to use their dependencies. Once done, cre
 ![importing the libraries](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step2 Capturing And Processing An Image Input
@@ -163,19 +177,6 @@ The image is converted to RGB from BGR because MediaPipe works with this type of
 Now, create a class for tracking and for the hands function to work, key in the basic parameters. Next, provide all the initialization required. This includes the basic parameters and MediaPipe initializations. Put _“self”_ before each object to provide access to its attributes and methods.
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
@@ -206,6 +207,13 @@ To execute the main method, copy and paste the following code lines:
 ##### Step8 Result
 
 The module and output of the program will be the same, and when they are complete without any errors, you will get your output, i.e., the module will track and identify your hand movements without any glitches.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Use Filmora to demonstarte your Hand Tracking skill
 
@@ -276,6 +284,19 @@ Above we have learned what is Hand Tracking and the two types of it. Now let’s
 
 Before we go further about them, let us learn about Python quickly. Python is a versatile language used for a wide range of tasks, including image processing and computer vision. We will use Python and two Python Libraries: OpenCV and MediaPipe, to create a Hand Tracking module.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What is OpenCV
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
@@ -291,13 +312,6 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Guidance With Steps
 
 Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
@@ -307,13 +321,6 @@ Before starting to create Hand Tracking, you need to install the [Pycharm IDE](h
 Click the **“New Project”** option and select **“Create”** on the next Window. Open the **Terminal** to install the two libraries.
 
 ![install and launch the pycharm app on your pc](https://images.wondershare.com/filmora/article-images/2022/07/install-and-launch-the-pycharm-app-on-your-pc.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
@@ -347,6 +354,13 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
 ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
@@ -358,13 +372,6 @@ Afterward, use the above code to create a method for using specifically to ident
 To create a method for finding the x and y coordinates of the z21 hand points and a list that you will use to keep the values of these, write the code below:
 
 ![locate x and y coordinate of hand point](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In this method, use the code that you used to find the ID and hand landmark of each hand point. Moreover, put the code you will use to circle the hand point.
 
@@ -379,13 +386,6 @@ Now, write the below dummy code to showcase what the module can do, i.e., identi
 To execute the main method, copy and paste the following code lines:
 
 ![main method execution](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step8 Result
 
@@ -433,22 +433,20 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-innovating-color-grading-with-new-lut-techniques/"><u>[New] 2024 Approved Innovating Color Grading with New LUT Techniques</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-ultimate-guide-to-navigating-steam-with-switch-pro/"><u>[New] 2024 Approved The Ultimate Guide to Navigating Steam with Switch Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-secrets-to-skyrocketing-your-subscriber-count/"><u>[New] Secrets to Skyrocketing Your Subscriber Count</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-illuminate-canon-cameras-combining-freebies-and-paid-lut-sets/"><u>[Updated] Illuminate Canon Cameras Combining Freebies and Paid LUT Sets</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-enhancing-your-aerial-journey-top-10-drone-extras-and-parts/"><u>[Updated] In 2024, Enhancing Your Aerial Journey Top 10 Drone Extras and Parts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-surfers-choice-ultimate-cam-tech-review-2023/"><u>[Updated] In 2024, Surfer’s Choice Ultimate Cam Tech Review 2023</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-seamless-system-sharing-quick-and-effective-techniques-for-transferring-files-for-2024/"><u>[Updated] Seamless System Sharing Quick and Effective Techniques for Transferring Files for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-is-there-a-cash-incentive-in-critique-videos/"><u>2024 Approved Is There a Cash Incentive in Critique Videos?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-shots-no-hassle-leading-smartphone-tripods/"><u>2024 Approved Perfect Shots, No Hassle Leading Smartphone Tripods</u></a></li>
-<li><a href="https://win-able.techidaily.com/game-fixed-wrath-of-the-rightenous-no-longer-plagued-by-continuous-crashes-patch-details-inside/"><u>Game Fixed! 'Wrath of the Rightenous' No Longer Plagued by Continuous Crashes – Patch Details Inside</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-delete-comments-from-youtube-with-minimal-hassle/"><u>In 2024, How to Delete Comments From YouTube with Minimal Hassle</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-ideal-complementary-behaviors-with-audio-tales-playing/"><u>In 2024, Ideal Complementary Behaviors with Audio Tales Playing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/interacting-with-a-blended-world-the-essence-of-mixed-reality-for-2024/"><u>Interacting with a Blended World The Essence of Mixed Reality for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-top-16-avi-video-cutters-trimcut-avi-videos-windows-mac-android-for-2024/"><u>New Top 16 AVI Video Cutters Trim/Cut AVI Videos Windows, MAC, Android for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-office-space-with-modern-chic-designs-flexispots-theodore-standing-desk-revealed/"><u>Revolutionize Your Office Space with Modern Chic Designs - Flexispot's Theodore Standing Desk Revealed!</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-mavericks-video-editing-essentials-a-step-by-step-guide-for-2024/"><u>Updated Mavericks Video Editing Essentials A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/vocal-volumes-the-most-emotional-songs-for-engagement-for-2024/"><u>Vocal Volumes The Most Emotional Songs for Engagement for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elite-screenplay-editing-solutions-for-apps/"><u>[New] Elite Screenplay Editing Solutions for Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-an-insiders-look-at-toolwizs-photo-editing-features/"><u>[New] In 2024, An Insider’s Look at Toolwiz's Photo Editing Features</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-list-of-different-video-camera-types/"><u>[New] List of Different Video Camera Types</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cinema-in-your-palm-three-cost-effective-techniques-to-blend-beats-and-videos-on-iphone/"><u>[Updated] 2024 Approved Cinema in Your Palm – Three Cost-Effective Techniques to Blend Beats and Videos on iPhone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-how-to-secretly-share-moments-with-instagram-live/"><u>[Updated] In 2024, How to Secretly Share Moments with Instagram Live</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-the-insiders-guide-to-dynamic-and-engaging-tiktok-edits/"><u>[Updated] In 2024, The Insider's Guide to Dynamic and Engaging TikTok Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-mobile-magic-transform-your-snaps-at-zero-cost-for-2024/"><u>[Updated] Mobile Magic Transform Your Snaps at Zero Cost for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-revealing-hidden-aspects-in-minecraft-for-2024/"><u>[Updated] Revealing Hidden Aspects in Minecraft for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/achieving-a-million-on-the-map-a-strategic-view-to-sub-guide/"><u>Achieving a Million on the Map A Strategic View-to-Sub Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/adoption-trends-for-arvr-shopping/"><u>Adoption Trends for AR/VR Shopping</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/focus-on-the-frame-master-logitech-cam-edits-for-2024/"><u>Focus on the Frame Master Logitech Cam Edits for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-excel-2007-workbook-by-stellar-guide/"><u>How to Repair Corrupt Excel 2007 Workbook?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-copyright-free-gaming-scores-the-10-leading-sources/"><u>In 2024, Copyright-Free Gaming Scores – The 10 Leading Sources</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-expert-iphone-photography-using-hdr/"><u>In 2024, Expert iPhone Photography Using HDR</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-libero-conversione-da-mp4-a-webm-usando-il-servizio-di-movavi/"><u>Online Libero Conversione Da MP4 a WebM Usando Il Servizio Di Movavi</u></a></li>
 </ul></div>
 

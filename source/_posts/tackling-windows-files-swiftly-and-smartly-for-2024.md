@@ -1,7 +1,7 @@
 ---
 title: "Tackling Windows Files Swiftly and Smartly for 2024"
-date: 2024-09-22T03:26:39.856Z
-updated: 2024-09-26T17:28:41.644Z
+date: 2024-09-26T19:13:29.721Z
+updated: 2024-10-01T22:46:32.322Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,16 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
@@ -62,26 +68,32 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
@@ -89,10 +101,16 @@ Step4 After a successful installation, find the file you want to preview and sel
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
@@ -151,20 +169,24 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exploring-advanced-techniques-in-video-thumbnail-creation/"><u>[New] 2024 Approved Exploring Advanced Techniques in Video Thumbnail Creation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-greatest-of-all-time-reddits-favorite-threads/"><u>[New] In 2024, Greatest of All Time Reddit's Favorite Threads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-skys-bounty-the-ultimate-guide-to-drone-video-editing/"><u>[New] In 2024, Sky's Bounty The Ultimate Guide to Drone Video Editing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-television-transformation-via-social-media-platforms-like-fb-live/"><u>[New] Television Transformation via Social Media Platforms Like FB Live</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-art-of-eluding-home-school-video-content/"><u>[New] The Art of Eluding Home School Video Content</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-time-lapse-photography-on-samsung-phones/"><u>[Updated] 2024 Approved Mastering Time-Lapse Photography on Samsung Phones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-capture-perfection-iphone-camera-skills-guide/"><u>[Updated] In 2024, Capture Perfection IPhone Camera Skills Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-instant-thumbnails-for-fortnite-gameplay/"><u>[Updated] In 2024, Instant Thumbnails for Fortnite Gameplay</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-premier-tactics-capturing-high-quality-sporting-live-events-for-2024/"><u>[Updated] Premier Tactics Capturing High-Quality Sporting Live Events for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-tips-personalizing-your-next-movie-or-show-selection/"><u>ChatGPT Tips: Personalizing Your Next Movie or Show Selection</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-oppo-find-x6-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Oppo Find X6</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/mastering-closer-video-in-google-meet-sessions/"><u>Mastering Closer Video in Google Meet Sessions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/sparkle-in-the-spotlight-personalized-logos-made-easy-and-free/"><u>Sparkle in the Spotlight Personalized Logos Made Easy & Free</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-evolutionary-leap-with-macos-11-big-sur-what-you-need/"><u>[New] 2024 Approved Evolutionary Leap with macOS 11 Big Sur – What You Need</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-bring-out-the-magic-leading-frames-for-your-images-for-2024/"><u>[New] Bring Out the Magic Leading Frames for Your Images for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-from-unwrapped-to-personalized-perfection-10-leading-shopping-platforms-for-2024/"><u>[New] From Unwrapped to Personalized Perfection 10 Leading Shopping Platforms for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-easy-plot-development-basics/"><u>[Updated] 2024 Approved Easy Plot Development Basics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ignite-your-screenplay-essential-wins11-apps-and-games/"><u>[Updated] 2024 Approved Ignite Your Screenplay Essential Wins11 Apps & Games</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-boosting-views-on-tiktok-the-years-most-influential-font-generator/"><u>[Updated] In 2024, Boosting Views on TikTok The Year's Most Influential Font Generator</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-the-top-free-screen-recorders-ranked-list/"><u>[Updated] In 2024, Explore the Top Free Screen Recorders Ranked List</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-total-exploration-the-dji-phantom-4-experience-reviewed/"><u>[Updated] Total Exploration The DJI Phantom 4 Experience Reviewed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-capturing-consciousness-proven-techniques-for-documenting-virtual-play/"><u>2024 Approved Capturing Consciousness Proven Techniques for Documenting Virtual Play</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-realme-v30t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-10-online-photo-editing-tools-to-unblur-photos/"><u>In 2024, 10 Online Photo Editing Tools to Unblur Photos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-14-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 14 After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-enhancing-yi-4k-mastery-top-camera-extras/"><u>In 2024, Enhancing YI 4K Mastery Top Camera Extras</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>In 2024, Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-solved-how-to-transfer-from-apple-iphone-14-pro-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Solved How To Transfer From Apple iPhone 14 Pro to iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-musings-video-characters-and-sounds/"><u>Micro Musings Video Characters & Sounds</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/premier-low-carbon-screen-recording-solutions/"><u>Premier Low-Carbon Screen Recording Solutions</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-v30-lite-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo V30 Lite 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toshiba-bluetooth-driver-download-improve-connectivity-instantly/"><u>Toshiba Bluetooth Driver Download - Improve Connectivity Instantly</u></a></li>
 </ul></div>
 

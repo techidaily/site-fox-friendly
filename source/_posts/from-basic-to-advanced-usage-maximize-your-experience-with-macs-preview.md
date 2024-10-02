@@ -1,7 +1,7 @@
 ---
 title: "\"From Basic to Advanced Usage  Maximize Your Experience with Mac's Preview\""
-date: 2024-09-13T17:40:21.256Z
-updated: 2024-09-20T17:55:09.847Z
+date: 2024-09-25T22:29:17.641Z
+updated: 2024-10-02T01:28:42.358Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -54,6 +61,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -85,6 +99,13 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -114,10 +135,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -164,13 +185,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -205,13 +219,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -235,5 +242,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-these-top-5-iphone-friendly-podcast-services-for-2024/"><u>[New] Discover These Top 5 iPhone-Friendly Podcast Services for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-elevating-film-colors-using-luts-methods/"><u>[New] In 2024, Elevating Film Colors Using Luts Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-visual-storytelling-key-shot-techniques-for-beginners-for-2024/"><u>[New] Mastering Visual Storytelling Key Shot Techniques for Beginners for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-formulating-a-thrilling-film-outtakes-package/"><u>[Updated] 2024 Approved Formulating a Thrilling Film Outtakes Package</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-jumpstart-your-photo-editing-essential-pixlr-wisdoms/"><u>[Updated] 2024 Approved Jumpstart Your Photo Editing Essential Pixlr Wisdoms</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-capture-and-save-your-next-google-meet-with-iphoneandroid/"><u>[Updated] Capture & Save Your Next Google Meet with iPhone/Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-enhance-user-experience-top-free-speech-to-text-apps-for-mac-revealed-for-2024/"><u>[Updated] Enhance User Experience Top Free Speech-to-Text Apps for Mac Revealed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/explaining-watermarks-securing-online-media/"><u>Explaining Watermarks Securing Online Media</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/guide-to-free-music-for-mindfulness-and-serenity-for-2024/"><u>Guide to Free Music for Mindfulness & Serenity for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-90-gt-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Honor 90 GT Phone without PIN</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-motorola-moto-g13-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-streamline-your-windows-10-experience-crash-free-photos-viewing/"><u>In 2024, Streamline Your Windows 10 Experience Crash-Free Photos Viewing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/revolutionize-zoom-videos-with-key-conversion-methods/"><u>Revolutionize Zoom Videos with Key Conversion Methods</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-enigma-of-inaccessible-facebook-marketplace-possible-explanations-for-non-users/"><u>The Enigma of Inaccessible Facebook Marketplace: Possible Explanations for Non-Users</u></a></li>
+<li><a href="https://win11.techidaily.com/transform-your-music-collection-convert-doobie-brothers-dvds-to-high-quality-mp4mp3-files/"><u>Transform Your Music Collection: Convert Doobie Brothers' DVDs to High-Quality MP4/MP3 Files</u></a></li>
+<li><a href="https://techidaily.com/unlocking-amazon-how-to-easily-set-up-and-use-passkeys-for-login/"><u>Unlocking Amazon: How to Easily Set Up and Use Passkeys for Login</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-nubia-red-magic-8s-pro-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+</ul></div>
 
