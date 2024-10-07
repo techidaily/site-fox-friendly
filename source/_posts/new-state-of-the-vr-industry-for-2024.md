@@ -1,7 +1,7 @@
 ---
 title: "[New] State of the VR Industry for 2024"
-date: 2024-09-29T17:59:22.494Z
-updated: 2024-10-01T22:45:22.909Z
+date: 2024-10-06T03:42:39.367Z
+updated: 2024-10-07T02:41:43.274Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/7886b93aef2a0639ec1e094763681d9231c505608
  )
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/7886b93aef2a0639ec1e094763681d9231c505608
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/7886b93aef2a0639ec1e094763681d9231c505608
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
@@ -77,24 +77,24 @@ thumbnail: https://thmb.techidaily.com/7886b93aef2a0639ec1e094763681d9231c505608
 
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -121,20 +121,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-game-on-with-the-samsung-ue590-a-freesync-dream-tv-review/"><u>[Updated] Game On with the Samsung UE590 A FreeSync Dream TV Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-best-value-in-small-drone-options/"><u>2024 Approved Best Value in Small Drone Options</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-magix-visual-compendium-an-examination/"><u>2024 Approved MAGIX Visual Compendium An Examination</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-melody-to-video-quick-sound-import-tricks/"><u>2024 Approved Melody to Video Quick Sound Import Tricks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-scrutinizing-hdr-performance-in-luminance-tech/"><u>2024 Approved Scrutinizing HDR Performance in Luminance Tech</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-seamless-sound-dimming-guide-in-premiere-pro/"><u>2024 Approved Seamless Sound Dimming Guide in Premiere Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-single-frame-solo-shot-extracting-visual-elements-from-windows-10-videos/"><u>2024 Approved Single Frame, Solo Shot Extracting Visual Elements From Windows 10 Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-tips-for-a-smooth-transition-into-vr-worlds/"><u>2024 Approved Tips for a Smooth Transition Into VR Worlds</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-resolve-crashing-problems-with-madden-nfl-20-on-your-windows-computer/"><u>How to Resolve Crashing Problems with Madden NFL 20 on Your Windows Computer</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-performance-hiccups-keeping-pc-fall-guys-running-smoothly/"><u>Resolving Performance Hiccups: Keeping [PC] Fall Guys Running Smoothly</u></a></li>
-<li><a href="https://windows11.techidaily.com/securing-winrar-data-transfers-addressing-checksum-mistakes/"><u>Securing WinRAR Data Transfers: Addressing Checksum Mistakes</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/solving-the-xlivedll-file-absence-a-comprehensive-guide/"><u>Solving the 'Xlive.dll' File Absence: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-all-rounder-panasonic-fz80s-review/"><u>The All-Rounder: Panasonic FZ80's Review</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-top-tips-for-embedding-and-posting-correct-subtitles-on-twitter-instagram/"><u>[New] 2024 Approved Top Tips for Embedding and Posting Correct Subtitles on Twitter, Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-breaking-down-advanced-photographic-modes-for-enhanced-results-for-2024/"><u>[New] Breaking Down Advanced Photographic Modes for Enhanced Results for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-frosty-flourishes-at-the-winter-games/"><u>[New] Frosty Flourishes at the Winter Games</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-behind-the-scenes-the-magic-of-quantum-hdr/"><u>[New] In 2024, Behind the Scenes The Magic of Quantum HDR</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-finding-premium-photo-quality-without-charges/"><u>[New] In 2024, Finding Premium Photo Quality Without Charges</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-optimal-vision-with-the-best-4k-monitors-1-10/"><u>[Updated] 2024 Approved Optimal Vision with the Best 4K Monitors, #1-10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-safely-obtain-vlc-player-at-no-charge-on-macos/"><u>[Updated] How to Safely Obtain VLC Player at No Charge on MacOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unparalleled-camera-tech-s-filmmaking-for-2024/"><u>[Updated] Unparalleled Camera Tech 'S Filmmaking for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-harvest-happiness-best-agricultural-titles-to-play-with-friends/"><u>2024 Approved Harvest Happiness Best Agricultural Titles to Play With Friends</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bright-innovation-spk10-037s-versatility-revealed/"><u>Bright Innovation: SPK10-037's Versatility Revealed</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-code-vein-stuttering-and-lock-ups-tips-and-tricks/"><u>Fixing Code Vein Stuttering and Lock-Ups - Tips & Tricks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/futures-palette-the-best-sci-fi-films-crafting-virtual-worlds-for-2024/"><u>Future's Palette The Best Sci-Fi Films Crafting Virtual Worlds for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-realme-10t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-capturing-action-in-hd-with-ultimate-sj-cam-s6-review/"><u>In 2024, Capturing Action in HD with Ultimate SJ-CAM S6 Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-what-phone-is-compatible-with-gear-vr/"><u>In 2024, What Phone Is Compatible With Gear VR?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-your-ultimate-guide-to-erasing-backgrounds-in-picsart/"><u>In 2024, Your Ultimate Guide to Erasing Backgrounds in Picsart</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-resolving-the-vr-game-crashes-on-your-windows-pc/"><u>Troubleshooting Guide: Resolving the VR Game Crashes on Your Windows PC</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-techniques-for-continuous-play-on-pc-dealing-with-fall-guys/"><u>Troubleshooting Techniques for Continuous Play on PC - Dealing with 'Fall Guys'</u></a></li>
 </ul></div>
 

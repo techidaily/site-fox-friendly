@@ -1,7 +1,7 @@
 ---
 title: "\"Excellence in Detail  A Curated List of 8K Cameras for 2024\""
-date: 2024-09-10T18:36:27.051Z
-updated: 2024-09-15T20:41:40.920Z
+date: 2024-10-03T20:15:06.069Z
+updated: 2024-10-07T13:42:21.887Z
 tags: 
   - screen-recording
   - ai video
@@ -69,13 +69,6 @@ The rumors that Canon is working on its first 8K camera surfaced in early 2019, 
 
 ![Canon EOS 5DS R DSLR Camera ](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: Cannon
 
 This camera should be capable of recording **8K footage at 60 fps**, as well as 4K footage at 120 fps, but whether or not this will turn out to be true still remains to be seen. However, a number of Canon’s models are already equipped with **50MP** sensors that can capture still images in resolutions that go as high as **8712 x 5813** or record videos in 4K resolution at 60fps.
@@ -96,19 +89,6 @@ This Nikon’s camera has also 7fps continuous shooting mode as well as the capa
 
 The camera is compatible with G, E, and D AF Nikkor lenses as well as DX and AI-P lenses, which provides you with enough versatility to shoot virtually any scene you want. Whether or not Nikon is going to add 8K cameras to their assortment of products is not yet clear, and it may be a while until one of the largest camera manufacturers in the industry releases its first 8K camera.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Sharp
 
 A few years ago, Sharp introduced 8C-B60A, the world’s first 8K camcorder and a few years later there are only a few cameras that have the features that can be compared to those you can find on the 8C-B60A camcorder.
@@ -125,25 +105,11 @@ Professional cinematographers don’t need an introduction to Sony’s cameras, 
 
 ![Sony F65 CineAlta 8K Camera ](https://images.wondershare.com/filmora/article-images/sony-f65-cineAlta-8k-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: Sony
 
 The **1-chip 20MP Super 35mm type** **24.7mm X 13.1mm** **CMOS sensor** enables you to capture videos in 8K, 4K or 2K resolutions. The camera’s **PL lens mount** is standard for all film cameras, which means that you won’t have too much trouble finding the lens you can use with F65 CineAlta.
 
 The camera has **14 stops of exposure latitude**, so if you are shooting RAW video files F65 will utilize the **S-Log3/S-Gamut3 gamma curve** to ensure accurate color depiction. In addition, this 8K camera can capture **275,000,000,000,000 color variations** even while you are shooting in full resolution at 60fps. Unsurprisingly, F65 CineAlta costs more than $60.000, but it is still a great investment for all professional filmmakers in need of a camera that can deliver great performances regardless of the available light.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Ikegami
 
@@ -151,11 +117,31 @@ Ikegami is a well-known manufacturer of professional broadcast cameras, so it co
 
 ![ikegami 8K Super Hi-Vision Camera System ](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image resource: ikegami
 
 This broadcast camera has **a PL lens mount with a back-focus adjusting mechanism** that helps the camera operator to keep the image sharp even while recording rapidly moving figures and objects. The SHK-810’s output signal features are equally impressive since you can choose between **SHV Dual Green SDI Interface, 4K SMPTE 424M (3G-SDI) Level B and HD SMPTE 292M** options.
 
 In addition, you can choose between **2-channel x 4K and 4-channel HD** return signals or opt for **Tri-Level Sync** or **VBS** external sync signals. However, SHK-810 is bulky and heavy, as it weighs 9kg or 19.6 lbs without a viewfinder which makes it difficult to use without a tripod during events that last for several hours. Moreover, the camera is aimed at large television networks rather than filmmakers and cinematographers, and at the moment Ikegami doesn’t offer any 8K camera models that are designed for filmmaking purposes.
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Red
 
@@ -164,10 +150,10 @@ The list of TV shows and movies shot on RED cameras is seemingly endless and it 
 ![Red DSMC2 BRAIN](https://images.wondershare.com/filmora/article-images/red-dsmc2-brain-monstro-8k-w.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: red
@@ -178,6 +164,13 @@ The body of an 8K Red camera can cost between **$24,000 and $50,000** which make
 
 Still don't know to choose which? Whatch this!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What Gear Do Creators Actually Use | Vidcon 2023 | Sony vs Canon
 
 **Conclusion**
@@ -187,6 +180,19 @@ Still don't know to choose which? Whatch this!
 In addition, Canon and Nikon only offer 50 MP cameras that can capture still images that have the same amount of pixels as 8K videos, but there are no indications that these manufacturers are going to release new models that can record 8K videos. Which 8K camera are you planning to get in 2024? Leave a comment and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -211,5 +217,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-how-to-download-and-convert-youtube-twittersongs-videos-to-mp3-for-2024/"><u>[New] How to Download and Convert YouTube Twittersongs (Videos) to MP3 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-horizon-harmony-best-online-spots-for-high-res-sky-views-for-2024/"><u>[Updated] Horizon Harmony Best Online Spots for High-Res Sky Views for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-producing-quality-social-media-film/"><u>[Updated] In 2024, The Ultimate Guide to Producing Quality Social Media Film</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-quick-and-simple-ipad-conversion-turn-jpgpng-into-pdf-for-2024/"><u>[Updated] Quick and Simple iPad Conversion Turn JPG/PNG Into PDF for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-oneplus-8t-impressive-speed-overshadowed-by-patchy-photography/"><u>Analyzing the OnePlus 8T: Impressive Speed Overshadowed by Patchy Photography</u></a></li>
+<li><a href="https://win-answers.techidaily.com/apex-legends-performance-optimization-6-easy-ways-to-increase-fps-instantly/"><u>Apex Legends Performance Optimization: 6 Easy Ways to Increase FPS Instantly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/canvas-mastery-top-10-editing-strategies-unveiled/"><u>Canvas Mastery Top 10 Editing Strategies Unveiled</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-issues-how-to-make-civilization-vi-functional-on-windows-11/"><u>Fixing Issues: How to Make Civilization VI Functional on Windows 11</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-nubia-red-magic-8s-proplus-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Nubia Red Magic 8S Pro+? Try These Fixes</u></a></li>
+<li><a href="https://win-able.techidaily.com/improved-playability-comprehensive-guide-to-addressing-stutter-and-boosting-fps-in-rdr2/"><u>Improved Playability: Comprehensive Guide to Addressing Stutter and Boosting FPS in RDR2</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-how-to-make-macbook-pro-video-tutorials-easy/"><u>In 2024, How to Make Macbook Pro Video Tutorials Easy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/jestjunction-tap-into-the-world-of-meme-magic-for-2024/"><u>JestJunction Tap Into the World of Meme Magic for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tamamen-uygulanabilirken-en-az-sevgi-gormuyorlugu-arastirma-yaptiklarin-11-ts-mp4-donusturme-tarziyenin-ve-sistemleri/"><u>Tamamen Uygulanabilirken En Az Sevgi Görmüyorluğu Araştırma Yaptıkların 11 TS MP4 Dönüştürme Tarziyenin Ve Sistemleri</u></a></li>
+</ul></div>
 

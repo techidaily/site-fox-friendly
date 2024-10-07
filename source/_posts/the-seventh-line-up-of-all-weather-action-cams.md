@@ -1,7 +1,7 @@
 ---
 title: "\"The Seventh Line-Up of All-Weather Action Cams\""
-date: 2024-09-16T19:47:23.144Z
-updated: 2024-09-20T21:32:19.649Z
+date: 2024-10-06T14:04:50.571Z
+updated: 2024-10-07T04:10:55.244Z
 tags: 
   - screen-recording
   - ai video
@@ -77,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/d3b76096f4c9dcaff472cd20aa342807816191e8d
 
  Although this device appears like an old video game controller but it’s slim, compact and lightweight design can assist you on long and tough tours. This device is designed to handle all weather conditions and you can take it under water up 26 feet depth. It comes with 16MP advanced CMOS sensor whereas maximum video resolution is 720p. People love to enjoy its numerous shooting modes and advanced control features.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comparison Table
 
 | Product                      | Price   | Nation | Waterproof          | Battery | Display  | Weight | shockproof | freezeproof     | Video resolution |
@@ -90,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/d3b76096f4c9dcaff472cd20aa342807816191e8d
 | Panasonic LUMIX DMC TS30     | $179.99 | JP     | 8m without housing  | 680mah  | 2.7" LCD | 144g   | 1.5m       | \-10°C          | 720p/30fps       |
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -114,12 +128,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/op-8-endorsed-methods-for-video-marketing-success/"><u>[New] Top 8 Endorsed Methods for Video Marketing Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-livestream-leaders-guide-elevating-pre-recorded-videos-on-social-media/"><u>[Updated] 2024 Approved Livestream Leaders' Guide Elevating Pre-Recorded Videos on Social Media</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-pricing-strategies-for-youtube-video-promotions/"><u>[Updated] 2024 Approved Pricing Strategies for YouTube Video Promotions</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-prime-methods-for-archiving-youtube-real-time-broadcasts/"><u>[Updated] 2024 Approved Prime Methods for Archiving YouTube Real-Time Broadcasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-exclusive-websites-for-ultimate-vector-clarity-for-2024/"><u>[Updated] Exclusive Websites for Ultimate Vector Clarity for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-depth-giroptic-360-angle-reviews-for-2024/"><u>[Updated] In-Depth Giroptic 360-Angle Reviews for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/beyond-the-bubble-leading-android-and-ios-video-sharing-apps/"><u>Beyond the Bubble Leading Android and iOS Video Sharing Apps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-14-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 14 Plus Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-enhancing-visual-quality-in-ar-the-role-of-luts/"><u>In 2024, Enhancing Visual Quality in AR The Role of LUTs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/inside-metaverse-how-to-build-memes-that-pop-online/"><u>Inside Metaverse How to Build Memes That Pop Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-lava-storm-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Lava Storm 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-karaoke-parties-with-singing-machines-plug-and-play-sml385btbk-a-colorful-user-friendly-review/"><u>Revolutionize Your Karaoke Parties with Singing Machine's Plug & Play SML385BTBK - A Colorful, User-Friendly Review!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-the-missing-oleaut32dll-error-on-your-pc/"><u>Troubleshooting the Missing oleAut32.dll Error on Your PC</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlock-fb-success-with-professional-360-video-tips/"><u>Unlock FB Success with Professional 360 Video Tips</u></a></li>
+</ul></div>
 

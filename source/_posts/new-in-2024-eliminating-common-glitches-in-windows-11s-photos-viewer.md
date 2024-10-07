@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Eliminating Common Glitches in Windows 11'S Photos Viewer"
-date: 2024-09-12T19:42:19.902Z
-updated: 2024-09-15T20:37:53.590Z
+date: 2024-10-03T02:01:59.866Z
+updated: 2024-10-07T00:31:49.963Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
@@ -72,7 +79,27 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -95,13 +122,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -113,13 +133,6 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -127,6 +140,13 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -151,5 +171,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-navigating-the-complexities-of-spotifys-ad-ecosystem/"><u>[New] 2024 Approved Navigating the Complexities of Spotify's Ad Ecosystem</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-dell-p2715q-explained-the-4k-vision-experience-decoded-for-2024/"><u>[New] Dell P2715Q Explained The 4K Vision Experience Decoded for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pinnacle-article-hook-maker-for-2024/"><u>[New] Pinnacle Article Hook Maker for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-precision-techniques-for-efficient-keying-processes/"><u>[New] Precision Techniques for Efficient Keying Processes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-redefining-cinematic-exploration-via-vr/"><u>[Updated] 2024 Approved Redefining Cinematic Exploration via VR</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-accelerated-image-editing-your-path-to-masterful-windows-photo-work/"><u>[Updated] In 2024, Accelerated Image Editing Your Path to Masterful Windows Photo Work</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-essential-skills-for-capturing-soundless-videography/"><u>[Updated] In 2024, Essential Skills for Capturing Soundless Videography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-expert-filigree-alterations/"><u>[Updated] In 2024, Expert Filigree Alterations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-memetic-flesh-eater-artist/"><u>[Updated] In 2024, Memetic Flesh Eater Artist</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-revealing-the-12-paths-fixing-non-appearing-fb-video-posts-now-for-2024/"><u>[Updated] Revealing The 12 Paths Fixing Non-Appearing FB Video Posts, Now for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-cutting-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>2024 Approved Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/explore-the-latest-in-pc-components-with-toms-hardware-insights/"><u>Explore the Latest in PC Components with Tom's Hardware Insights</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-far-cry-6-how-to-fix-pc-game-failure-on-launch/"><u>Troubleshooting Far Cry 6: How to Fix PC Game Failure on Launch</u></a></li>
+</ul></div>
 

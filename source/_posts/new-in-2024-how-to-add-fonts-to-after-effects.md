@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Add Fonts to After Effects?"
-date: 2024-09-30T17:21:34.020Z
-updated: 2024-10-02T05:24:51.877Z
+date: 2024-09-30T10:13:38.436Z
+updated: 2024-10-07T12:35:36.785Z
 tags: 
   - screen-recording
   - ai video
@@ -66,6 +66,13 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -82,19 +89,19 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -106,22 +113,15 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -132,10 +132,10 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,24 +166,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-discovering-income-monetization-through-youtube-sponsored-videos/"><u>[Updated] Discovering Income Monetization Through YouTube Sponsored Videos?</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-charm-with-cost-free-visual-aids/"><u>[Updated] In 2024, Channel Charm with Cost-Free Visual Aids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-seamless-transitions-the-top-6-mac-apps-to-cut-videos-in-big-sur/"><u>[Updated] Seamless Transitions The Top 6 Mac Apps to Cut Videos in Big Sur</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-6-ways-to-embed-facebook-live-on-a-website/"><u>2024 Approved 6 Ways to Embed Facebook Live on a Website</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-amplify-your-brands-message-top-terminology-secrets/"><u>2024 Approved Amplify Your Brand’s Message Top Terminology Secrets</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-complete-circular-camera-investigation/"><u>2024 Approved Complete Circular Camera Investigation</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-is-subforsub-effective-for-boosting-youtube-followers/"><u>2024 Approved Is Subforsub Effective for Boosting YouTube Followers?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-jokesonscreen-pro/"><u>2024 Approved JokesOnScreen Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-premium-portals-best-websites-to-secure-snapalert-beats/"><u>2024 Approved Premium Portals Best Websites to Secure SnapAlert Beats</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-prodigious-pcs-the-pinnacle-of-technology/"><u>2024 Approved Prodigious PCs - The Pinnacle of Technology</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-step-by-step-guide-double-effect-wonders-for-tiktoks/"><u>2024 Approved Step-by-Step Guide Double Effect Wonders for TikToks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-superior-selections-pro-webcam-stabilizers/"><u>2024 Approved Superior Selections Pro Webcam Stabilizers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unmissable-vr-storytelling-masterpieces/"><u>2024 Approved Unmissable VR Storytelling Masterpieces</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/acid-pro-overview-plus-best-software-match-ups/"><u>ACID Pro Overview + Best Software Match-Ups</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/corporate-language-milestones-achieve-and-excel/"><u>Corporate Language Milestones: Achieve and Excel</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-steps-to-successfully-download-and-setup-your-epson-xp-400-printer-driver/"><u>Easy Steps to Successfully Download and Setup Your Epson XP-400 Printer Driver</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-troubleshooting-tips-getting-saints-row-up-and-running-again-on-windows/"><u>Expert Troubleshooting Tips: Getting Saints Row Up and Running Again on Windows</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-convert-facebook-video-to-mp4-720p1080phd-online-and-free-in-2024/"><u>How to Convert Facebook Video to MP4 720P/1080p/HD Online and Free, In 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-seamless-integration-of-titles-on-videos-using-windows-photos/"><u>In 2024, Seamless Integration of Titles on Videos Using Windows Photos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-apex-pcs-the-summit-of-desktop-technology/"><u>[New] Apex PCs - The Summit of Desktop Technology</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-illuminating-interactions-mastering-animate-texts-in-stories/"><u>[New] Illuminating Interactions Mastering Animate Texts in Stories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-lg-flat-screen-revisited-the-2023-update-deep-dive-for-2024/"><u>[New] LG Flat-Screen Revisited The 2023 Update Deep Dive for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-path-to-pure-audio-pazera-free-tool-review/"><u>[New] The Path to Pure Audio Pazera Free Tool Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultimate-guide-to-free-premiere-pro-template-hacks/"><u>[New] The Ultimate Guide to Free Premiere Pro Template Hacks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-avoidance-of-windows-10-photos-application-hang-ups/"><u>[Updated] 2024 Approved Avoidance of Windows 10 Photos Application Hang-Ups</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-get-creative-a-comprehensive-guide-to-the-best-free-slideshow-patterns/"><u>[Updated] 2024 Approved Get Creative A Comprehensive Guide to the Best Free Slideshow Patterns</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>[Updated] How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-inside-out-the-true-significance-behind-snapchats-emojis-for-2024/"><u>[Updated] Inside Out The True Significance Behind Snapchat's Emojis for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-make-a-buzz-on-tiktok-thematic-templates-for-viral-video-creation/"><u>[Updated] Make a Buzz on TikTok Thematic Templates for Viral Video Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-picks-youtube-to-hd-mastering-quality-conversions-for-2024/"><u>[Updated] Top Picks YouTube to HD - Mastering Quality Conversions for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/stop-frustrating-lag-in-minecraft-a-comprehensive-fixing-manual/"><u>Stop Frustrating Lag in Minecraft: A Comprehensive Fixing Manual</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/why-are-my-photo-booth-videos-pausing-in-2024/"><u>Why Are My Photo Booth Videos Pausing, In 2024</u></a></li>
 </ul></div>
 

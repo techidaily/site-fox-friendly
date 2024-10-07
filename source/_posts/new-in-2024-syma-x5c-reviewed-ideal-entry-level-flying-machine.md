@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Syma X5C Reviewed  Ideal Entry-Level Flying Machine\""
-date: 2024-09-14T21:22:55.972Z
-updated: 2024-09-15T16:07:56.072Z
+date: 2024-10-05T00:10:12.410Z
+updated: 2024-10-07T13:23:35.314Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -96,13 +103,34 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -133,12 +161,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-10-top-ai-tools-to-invent-unique-podcast-names-online-for-2024/"><u>[New] 10 Top AI Tools to Invent Unique Podcast Names Online for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-discount-hunting-for-chinese-made-vr-devices/"><u>[New] 2024 Approved Discount Hunting for Chinese-Made VR Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-tips-and-hacks-for-using-instagram-filters-effectively/"><u>[New] 2024 Approved Tips & Hacks for Using Instagram Filters Effectively</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-guide-to-mastering-windows-media-player-for-cd-management/"><u>[New] In 2024, Step-by-Step Guide to Mastering Windows Media Player for CD Management</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-synchronize-and-schedule-seamless-entry-into-any-zoom-session-from-android/"><u>[Updated] 2024 Approved Synchronize and Schedule Seamless Entry Into Any Zoom Session From Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-ultimate-blueprint-for-sourcing-top-tier-instagram-ringtones-and-crafting-standout-alarms/"><u>[Updated] 2024 Approved The Ultimate Blueprint for Sourcing Top-Tier Instagram Ringtones and Crafting Standout Alarms</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-enhance-playstation-2-gaming-the-ultimate-guide-to-android-emulation-tools-for-2024/"><u>[Updated] Enhance PlayStation 2 Gaming The Ultimate Guide to Android Emulation Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-awaken-the-warrior-within-with-these-10-films/"><u>[Updated] In 2024, Awaken the Warrior Within with These 10 Films</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transforming-recording-into-stunning-podcast-edits/"><u>[Updated] In 2024, Transforming Recording Into Stunning Podcast Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-oculus-illness-prevention-guide/"><u>[Updated] Oculus Illness Prevention Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oneplus-ace-2-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-realme-gt-neo-5-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Realme GT Neo 5 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-captivating-content-for-the-first-moments-in-audios/"><u>Crafting Captivating Content for the First Moments in Audios</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/enhance-tiktok-velocity-with-these-hacks-for-2024/"><u>Enhance TikTok Velocity with These Hacks for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/liftoff-to-high-end-imagery-on-a-budget-for-2024/"><u>Liftoff to High-End Imagery on a Budget for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-motorola-razr-40-ultra-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Motorola Razr 40 Ultra Phone Now with These Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/timing-your-instagram-posts-for-optimal-results-for-2024/"><u>Timing Your Instagram Posts for Optimal Results for 2024</u></a></li>
+</ul></div>
 

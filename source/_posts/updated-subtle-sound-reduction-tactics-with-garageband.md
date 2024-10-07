@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Subtle Sound Reduction Tactics with Garageband"
-date: 2024-09-25T00:54:41.401Z
-updated: 2024-10-01T23:18:24.190Z
+date: 2024-09-29T18:28:54.128Z
+updated: 2024-10-07T03:10:39.900Z
 tags: 
   - screen-recording
   - ai video
@@ -63,13 +63,6 @@ Step3 Scroll down to the fade-out option and turn it.
 
 ![fade audio garageband iphone](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-garageband-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Hit the done icon.
 
 The fade-out option doesn't offer you much set of control. It usually works as a master track and includes the fade-out effect over all the track channels. You won't be able to edit the fade-out; in simple words, it will automatically select a point where the feature will start working, and it will also control the speed and intensity of the volume drop. It is one of the best features for fading short tracks as it won't lose much audio.
@@ -103,10 +96,16 @@ After the drag and drop procedure, double click on the file and direct yourself 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step3 Save the video
@@ -116,10 +115,10 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -146,6 +145,13 @@ After the drag and drop procedure, double click on the file and direct yourself 
 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Save the video
 
 Choose the create option to save the new file if you are done with the adjusting part. You can save your file in several formats such as MP3, MKV, WMV, AVI, etc. you can play the track on various devices like iPad, iPod, iPhone, Zune, etc.
@@ -153,10 +159,10 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -187,19 +193,19 @@ According to the survey, one of the most searched topics is **how to fade music 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-cinemas-craftsmanship-the-best-camera-tricks-and-techniques-24-edition/"><u>2024 Approved Cinema's Craftsmanship The Best Camera Tricks & Techniques - '24 Edition</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-from-idea-to-gif-your-ultimate-blueprint/"><u>2024 Approved From Idea to GIF Your Ultimate Blueprint</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-mastering-media-conversion-with-actionable-steps-from-xml/"><u>2024 Approved Mastering Media Conversion with Actionable Steps From XML</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-maximizing-memories-storing-digitalized-vintage-photographs/"><u>2024 Approved Maximizing Memories Storing Digitalized Vintage Photographs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-oral-notes-in-the-digital-era-an-indispentiary-guide/"><u>2024 Approved Oral Notes in the Digital Era An Indispentiary Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-photoshops-jiggle-minimizing-effective-or-overstated/"><u>2024 Approved Photoshop's Jiggle Minimizing - Effective or Overstated?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>2024 Approved Strengthen Your Content Identity Inserting Watermark/Logo in Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/ace-video-editing-with-kinemaster-skills-plus-10-leading-online-competitors/"><u>Ace Video Editing with KineMaster Skills + 10 Leading Online Competitors</u></a></li>
-<li><a href="https://discover-great.techidaily.com/best-free-apps-how-to-get-youtube-downloads-on-your-iphone-x/"><u>Best Free Apps: How to Get YouTube Downloads on Your iPhone X</u></a></li>
-<li><a href="https://os-tips.techidaily.com/delete-your-kik-conversations-forever-4-stealthy-techniques/"><u>Delete Your Kik Conversations Forever: 4 Stealthy Techniques</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-to-seamlessly-upload-youtube-videos-to-facebook-feed/"><u>How to Seamlessly Upload YouTube Videos to Facebook Feed</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a18-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Oppo A18 Phone without Google Account?</u></a></li>
-<li><a href="https://win-forum.techidaily.com/quick-guide-speeding-up-boot-process-on-windows-11-with-ease/"><u>Quick Guide: Speeding Up Boot Process on Windows 11 with Ease</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unexpected-angle-alterations-in-instagram-video-posts-for-2024/"><u>Unexpected Angle Alterations in Instagram Video Posts for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-conquering-chaos-muting-tactics-for-seamless-gmeet-participation/"><u>[New] 2024 Approved Conquering Chaos Muting Tactics for Seamless GMeet Participation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>[New] 2024 Approved Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-revolutionize-playtime-unveiling-win11s-latest-titles/"><u>[New] 2024 Approved Revolutionize Playtime Unveiling Win11's Latest Titles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-engaging-with-srt-soundfiles-on-pc-and-mac/"><u>[New] In 2024, Engaging with SRT Soundfiles on PC & Mac</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-skype-record-simplified-techniques-for-dual-os-recording/"><u>[New] In 2024, Skype Record Simplified Techniques for Dual OS Recording</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-turbo-charged-triumphs-short-track-22/"><u>[Updated] 2024 Approved Turbo-Charged Triumphs Short Track, '22</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-say-goodbye-to-watermarks-top-10-free-online-video-editing-software/"><u>2024 Approved Say Goodbye to Watermarks Top 10 Free Online Video Editing Software</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-unleashing-the-power-of-screen-capture-with-hp-notebooks/"><u>2024 Approved Unleashing the Power of Screen Capture with HP Notebooks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-apple-iphone-12-pro-maxipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from Apple iPhone 12 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-guide-on-how-to-remove-apple-id-from-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, Guide on How To Remove Apple ID From Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-poco-f5-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Poco F5 5G Phones with/without a PC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-ranking-the-leading-10-pixels-for-free-access/"><u>In 2024, Ranking the Leading 10 Pixels for Free Access</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/streamline-content-creation-leading-after-effects-plugins/"><u>Streamline Content Creation Leading After Effects Plugins</u></a></li>
+<li><a href="https://article-helps.techidaily.com/walking-into-tomorrow-the-premier-vr-treadmills-reviewed/"><u>Walking Into Tomorrow The Premier VR Treadmills Reviewed</u></a></li>
 </ul></div>
 

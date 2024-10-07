@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Troubleshooting Tips for Win 11'S Stubborn Photos App"
-date: 2024-09-11T18:07:15.844Z
-updated: 2024-09-15T18:56:37.286Z
+date: 2024-09-29T16:34:22.722Z
+updated: 2024-10-06T18:30:04.322Z
 tags: 
   - screen-recording
   - ai video
@@ -58,8 +58,22 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -72,13 +86,20 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -119,13 +140,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -151,5 +165,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-an-all-inclusive-examination-of-inshots-video-edits/"><u>[New] An All-Inclusive Examination of InShot's Video Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-these-popular-periscope-alternatives-on-smartphones/"><u>[New] Discover These Popular Periscope Alternatives on Smartphones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-dji-drone-techniques-for-effective-facebook-livestreams/"><u>[New] In 2024, DJI Drone Techniques for Effective Facebook Livestreams</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-mirthvid-quick-start-for-video-makers/"><u>[New] In 2024, MirthVid Quick Start for Video Makers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-discover-your-perfect-match-the-best-6-gopro-helmet-harnesses/"><u>[Updated] 2024 Approved Discover Your Perfect Match The Best 6 GoPro Helmet Harnesses</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-must-try-top-5-mac-streaming-applications/"><u>[Updated] 2024 Approved Must-Try Top 5 Mac Streaming Applications</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-create-gif-format-outros/"><u>[Updated] How To Create GIF Format Outros</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-11-pro-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/country-soundscapes-to-soothe-your-soul-tiktok-edition/"><u>Country Soundscapes to Soothe Your Soul (TikTok Edition)</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-inaccessible-remove-functionality-on-windows-11-os/"><u>Fixing Inaccessible Remove Functionality on Windows 11 OS</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-infinix-hot-30-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Infinix Hot 30 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-unalterable-tiktok-profile-url-integration-blueprint/"><u>The Unalterable TikTok Profile URL Integration Blueprint</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/top-10-best-introduction-editors-apps/"><u>Top 10 Best Introduction Editors (Apps)</u></a></li>
+</ul></div>
 

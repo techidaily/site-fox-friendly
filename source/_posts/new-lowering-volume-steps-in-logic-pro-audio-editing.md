@@ -1,7 +1,7 @@
 ---
 title: "[New] Lowering Volume Steps in Logic Pro Audio Editing"
-date: 2024-09-13T20:11:50.038Z
-updated: 2024-09-20T16:43:37.845Z
+date: 2024-10-04T10:34:18.737Z
+updated: 2024-10-07T11:10:12.158Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ Step1 Locate the section Region Inspector on the left top side of your screen af
 
 ![region inspector logic pro](https://images.wondershare.com/filmora/article-images/2022/07/region-inspector-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Enter the required value for your fade in the Fade Out section by clicking More and then finding it. If you're uncertain, experiment with various figures until you find the ideal one.
 
 ![fade out section logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-section-logic-pro.jpg)
@@ -79,9 +86,36 @@ Step2 To generate a seamless fade while dealing with audio, you must utilize the
 
 ![fade out funtions logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-funtions-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Additionally, you will always have the option to change the level, which is a terrific method to avoid having too much background noise in your music as shown here:
 
 ![edit music logic pro](https://images.wondershare.com/filmora/article-images/2022/07/edit-music-logic-pro.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Logic Pro X Alternative to Fade Audio
 
@@ -109,19 +143,6 @@ You must drag the media files into the program's timeline after importing them i
 
 ![launch audio editor in filmora](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Use the Audio Fade-in/Fade-out
 
 The first step in this process is to learn how to use Filmora to start fading in and out your audio recordings. The best aspect of Filmora is how simple it is to employ these techniques from the timeline.
@@ -130,13 +151,6 @@ To achieve this, focus on the audio file that you want to change in the timeline
 
 ![use audio fade out](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4 Export Your Fade Out Video
 
 In the final touch, if you are content with the way your voice has evolved, now may be the ideal time to maintain it or even record it. There is support for all widely used video and audio formats, including MP3\. Click "Export" and choose the appropriate file format from the Local menu as shown below to do this. The parameters as indicated below allow you to alter the ultimate location of the altered audio file:
@@ -144,13 +158,6 @@ In the final touch, if you are content with the way your voice has evolved, now 
 ## Conclusion
 
 Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, if you want the Logic Pro experience on Windows and Mac as well, you have [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as an alternate choice. Everything in the suite, including various effects and composition tools, is included. In conclusion, Filmora is highly feature-rich and enables you to carry out a range of activities, such as crossfading, composition, recording, editing, mixing, and posting to social media sites. Therefore, Filmora is your best option if you want to completely experience a DAW on Windows and Mac.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1\. Ways to Fade Audio with Logic Pro X
 
@@ -171,19 +178,6 @@ Step2 Enter the required value for your fade in the Fade Out section by clicking
 Step3 Create an automation curve on the produced fade using the Curve section if you'd like. For greater control, you may add a curve to your fading automation. To achieve this, choose the Automation Curve Tool by clicking on the Tool Selector at the top of the Arrangement View. Then, left-click and drag your automation point up or down between the points.
 
 ![automation curve logic pro](https://images.wondershare.com/filmora/article-images/2022/07/automation-curve-logic-pro.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Employ the Fade-Out Tool
 
@@ -211,15 +205,35 @@ Step2 To generate a seamless fade while dealing with audio, you must utilize the
 
 ![fade out funtions logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-funtions-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Additionally, you will always have the option to change the level, which is a terrific method to avoid having too much background noise in your music as shown here:
 
 ![edit music logic pro](https://images.wondershare.com/filmora/article-images/2022/07/edit-music-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Logic Pro X Alternative to Fade Audio
@@ -239,6 +253,19 @@ Regardless of the screen you are using, the scalable interface keeps your proces
 You must first download and install this application on your computer before you can use it to crossfade audios. By accessing the official links, start by obtaining the most current version of this software. It's now time to install it on your computer when you've completed that. Launch Filmora easily from your desktop or the search bar and launch it as follows to begin:
 
 ![install filmora and import audio](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then, you must import your files, which is easy with Filmora since you just need to do it once from your device as seen below. To import your music and video files, use the Import button from the software's main screen as shown below:
 
@@ -286,5 +313,26 @@ Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, i
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-deciphering-the-advantages-of-using-sns-hdr-over-others/"><u>[New] 2024 Approved Deciphering the Advantages of Using SNS HDR Over Others</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-innovative-techniques-for-unique-canon-timelapse-vids/"><u>[New] 2024 Approved Innovative Techniques for Unique Canon Timelapse Vids</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[New] Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-essential-gear-to-enhance-yi-4k-cinematography/"><u>[New] Essential Gear to Enhance YI 4K Cinematography</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-ranking-top-10-video-conferencing-apps-on-mobile-devices/"><u>[Updated] 2024 Approved The Ultimate Ranking Top 10 Video Conferencing Apps on Mobile Devices</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-affordable-4k-cameras-guide-(1k-top-picks/"><u>[Updated] In 2024, Affordable 4K Cameras Guide (<$1K) - Top Picks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-infographic-mind-numbing-youtube-factsfigures-and-statistics/"><u>[Updated] In 2024, Infographic - Mind Numbing YouTube Facts,Figures and Statistics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-pull-the-right-strings-increasing-likes-on-unboxed-tiktoks/"><u>[Updated] Pull the Right Strings Increasing Likes on Unboxed TikToks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-supercharge-your-yi-4k-videos-with-pro-gear/"><u>[Updated] Supercharge Your YI 4K Videos with Pro Gear</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-buzzwords-deconstructing-social-harms-reality/"><u>Beyond Buzzwords: Deconstructing Social Harm's Reality</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/converti-file-flash-swf-a-video-mp4-gratuitamente-su-internet-con-luso-di-movavi/"><u>Converti File Flash (SWF) a Video MP4 Gratuitamente Su Internet Con L'uso Di Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ive-channel-titling-techniques-for-growth/"><u>Creative Channel Titling Techniques for Growth</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-guide-to-disable-recommended-podcast-features-in-spotify/"><u>In 2024, Guide to Disable Recommended Podcast Features in Spotify</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/restoring-computer-audio-after-windows-11-update-simple-guide/"><u>Restoring Computer Audio After Windows 11 Update – Simple Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/superior-cams-for-animated-storytelling-for-2024/"><u>Superior Cams for Animated Storytelling for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722095147749-talk-like-never-before-on-android-discover-the-chatgpt-app/"><u>Talk Like Never Before on Android – Discover the ChatGPT App</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-cross-platform-content-sharing-convert-and-upload-with-these-tools/"><u>Unlock Cross-Platform Content Sharing Convert and Upload with These Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unlocking-the-potential-of-quantum-hdr-for-2024/"><u>Unlocking the Potential of Quantum HDR for 2024</u></a></li>
+</ul></div>
 
