@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Efficient Sound Capture on Windows 10, Part 1\""
-date: 2024-10-06T12:38:01.397Z
-updated: 2024-10-06T20:58:51.654Z
+date: 2024-10-05T17:02:39.564Z
+updated: 2024-10-13T08:09:34.215Z
 tags: 
   - screen-recording
   - ai video
@@ -59,9 +59,23 @@ Audacity is a completely free audio recording software for Windows 10\. Audacity
 
 ![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
 
 ![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Quick Sound Recorder Free
 
@@ -83,29 +97,9 @@ Step 1: Open Adobe Audition and go to File > New > Multi-track Session. A pop-up
 
 ![open adobe audition](https://images.wondershare.com/filmora/article-images/open-adobe-audition.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Click on R icon to arm all the tracks.
 
 ![click on r icon](https://images.wondershare.com/filmora/article-images/click-on-r-icon.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 3: and then click on Recording button on the Record panel to start recording.
 
@@ -134,10 +128,10 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -159,10 +153,16 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -180,10 +180,10 @@ Step 2: From Record menu, go to Record Voiceover option.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
@@ -205,10 +205,10 @@ Step 2: From Record menu, go to Record Voiceover option.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
@@ -243,22 +243,21 @@ We have how to record audio on Windows 10 using free as well as premium software
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-flash-video-insights-guide/"><u>[New] 2024 Approved Flash Video Insights Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-from-amateur-to-professional-iphone-filmmaking-8-key-tips/"><u>[New] From Amateur to Professional iPhone Filmmaking (8 Key Tips)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-pushing-the-boundaries-in-depth-review-of-benq-sw320s-4k-display/"><u>[New] In 2024, Pushing the Boundaries In-Depth Review of BenQ SW320's 4K Display</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ethical-way-to-grow-your-fan-base-effectively/"><u>[New] The Ethical Way to Grow Your Fan Base Effectively</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-capturing-stunning-hdr-portraits-step-by-step-instructions/"><u>[Updated] 2024 Approved Capturing Stunning HDR Portraits Step-by-Step Instructions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-become-a-gif-artist-basic-steps/"><u>[Updated] In 2024, Become a GIF Artist Basic Steps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-key-tips-for-sourcing-elite-filmmakers-for-2024/"><u>[Updated] Key Tips for Sourcing Elite Filmmakers for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-streamline-your-video-workflow-youtube-to-mpeg-essentials/"><u>[Updated] Streamline Your Video Workflow YouTube-to-MPEG Essentials</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-vs-claude-which-one-reigns-supreme-in-conversational-ai/"><u>ChatGPT Vs. Claude: Which One Reigns Supreme in Conversational AI?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/effective-spending-tips-for-youtubers/"><u>Effective Spending Tips for YouTubers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-funimate-pro-unboxed-your-essential-apk-guide/"><u>In 2024, Funimate Pro Unboxed Your Essential APK Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/leveraging-chatgpt-unpacking-the-top-6-employment-catalysts/"><u>Leveraging ChatGPT: Unpacking the Top 6 Employment Catalysts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/master-the-art-of-amassing-insta-fans-tips-and-techniques-inside/"><u>Master the Art of Amassing Insta Fans - Tips and Techniques Inside!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-finder-view-options-for-organized-file-management-on-your-computer/"><u>Mastering Finder View Options for Organized File Management on Your Computer</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/tips-for-efficiently-changing-fb-cover-image-for-2024/"><u>Tips for Efficiently Changing FB Cover Image for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/zen-vibes-top-copyright-free-melodies-for-meditation-for-2024/"><u>Zen Vibes - Top Copyright-Free Melodies for Meditation for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-corporate-crown-best-cloud-keepers/"><u>2024 Approved Corporate Crown Best Cloud Keepers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-journey-to-social-media-supremacy-top-9-secrets-to-becoming-an-instagram-star/"><u>2024 Approved Journey to Social Media Supremacy Top 9 Secrets to Becoming an Instagram Star</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-essentials-for-a-powerful-metaverse-experience-top-7/"><u>2024 Approved The Essentials for a Powerful Metaverse Experience (Top 7)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-tongue-treasures-selecting-superb-audio-to-text-applications/"><u>2024 Approved Tongue Treasures Selecting Superb Audio to Text Applications</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unbeatable-deals-on-top-quality-budget-friendly-asmr-mics/"><u>2024 Approved Unbeatable Deals on Top Quality, Budget-Friendly ASMR Mics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-understanding-av1-your-initial-compre-point/"><u>2024 Approved Understanding AV1 Your Initial Compre Point</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unified-tint-harmonizer/"><u>2024 Approved Unified Tint Harmonizer</u></a></li>
+<li><a href="https://win-latest.techidaily.com/comment-transferer-en-douce-voie-les-photographies-de-votre-mac-vers-une-disquette-externe-strategies-efficaces/"><u>Comment Transférer en Douce Voie Les Photographies De Votre Mac Vers Une Disquette Externe : Stratégies Efficaces</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-amd-graphics-drivers-on-windows-latest-versions/"><u>Download AMD Graphics Drivers on Windows: Latest Versions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-itel-a70-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-infinix-note-30-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Infinix Note 30 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-find-x6-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo Find X6</u></a></li>
+<li><a href="https://driver-download.techidaily.com/speedy-setup-comprehensive-guide-for-downloading-and-installing-epson-et-4550-drivers-for-windows-users/"><u>Speedy Setup: Comprehensive Guide for Downloading and Installing Epson ET-4550 Drivers for Windows Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/taking-flight-an-affordable-guide-to-the-syma-n107g-personal-radio-controlled-helicopter/"><u>Taking Flight: An Affordable Guide to the Syma N_107G Personal Radio-Controlled Helicopter</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-nokia-c110-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Nokia C110 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-visions-instructions-for-posting-songs-on-youtube-for-2024/"><u>Vocal Visions Instructions for Posting Songs on YouTube for 2024</u></a></li>
 </ul></div>
 

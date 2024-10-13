@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Illuminating Images  Techniques in Color Science\""
-date: 2024-10-05T09:17:44.270Z
-updated: 2024-10-06T21:39:50.954Z
+date: 2024-10-08T18:53:40.962Z
+updated: 2024-10-13T00:01:36.733Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Color grading and color correction are processes that happen throughout postprod
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why is Color Grading Important?
@@ -76,6 +76,19 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
@@ -105,10 +118,10 @@ Here, there are two options to select: The Color correction. It offers different
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step2Select the specific video portion
@@ -119,27 +132,20 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
 
@@ -231,24 +237,20 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-mastering-srt-file-playback-on-both-oses/"><u>[New] 2024 Approved Mastering SRT File Playback on Both OSes</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-best-aspect-ratios-to-enhance-video-quality/"><u>[New] Best Aspect Ratios to Enhance Video Quality</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-cinematic-dialogues-writing-the-movies-soul/"><u>[New] Cinematic Dialogues Writing the Movie's Soul</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/xploring-the-depths-of-asmr-audio-magic/"><u>[New] Exploring the Depths of ASMR Audio Magic</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-top-notch-avi-player-for-pcmobile-for-2024/"><u>[New] Top-Notch Avi Player for PC/Mobile for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unmatched-pixels-the-exclusive-advantages-of-hp-envy-27/"><u>[New] Unmatched Pixels The Exclusive Advantages of HP Envy 27</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-complete-cheat-sheet-mastering-googles-voice-transcription-tool/"><u>[Updated] 2024 Approved The Complete Cheat Sheet Mastering Google's Voice Transcription Tool</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-crafting-the-ideal-voice-memo-a-step-by-step-methodology-for-2024/"><u>[Updated] Crafting the Ideal Voice Memo A Step-by-Step Methodology for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-innovative-initiations-panzoids-best-ten/"><u>[Updated] Innovative Initiations Panzoid's Best Ten</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-racing-hearts-22-short-track-triumph-for-2024/"><u>[Updated] Racing Hearts '22 Short-Track Triumph for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-android-3d-player-showcase/"><u>[Updated] Ultimate Android 3D Player Showcase</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unmatched-8-visual-effects-for-smooth-live-videos/"><u>[Updated] Unmatched 8 Visual Effects for Smooth Live Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ative-approaches-to-live-broadcasting-on-youtube-with-wirecast/"><u>Innovative Approaches to Live Broadcasting on Youtube with WireCast</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/optimal-series-prime-webcam-support-accessories/"><u>Optimal Series Prime Webcam Support Accessories</u></a></li>
-<li><a href="https://os-tips.techidaily.com/recovering-accidentally-deleted-iphone-voicemail-easy-methods-explored/"><u>Recovering Accidentally Deleted iPhone Voicemail: Easy Methods Explored</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/tips-and-tricks-for-fixing-the-unable-to-initialize-directx-component-issue/"><u>Tips and Tricks for Fixing the Unable to Initialize DirectX Component Issue</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-tutorial-for-acquiring-digital-books-on-iphoneipad-with-apple-books/"><u>Ultimate Tutorial for Acquiring Digital Books on iPhone/iPad with Apple Books</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/what-drives-imovies-crop-functionality-in-2024/"><u>What Drives iMovie's Crop Functionality, In 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/win-back-fast-solve-star-wars-bf2-mouse-lags/"><u>Win Back Fast: Solve Star Wars BF2 Mouse Lags</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-dimming-decibels-softening-audio-in-computers/"><u>[New] 2024 Approved Dimming Decibels Softening Audio in Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-ultimate-checklist-for-video-praise-mastery/"><u>[New] 2024 Approved The Ultimate Checklist for Video Praise Mastery</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ultimate-list-of-steadicams-for-uav-videography-enthusiasts/"><u>[New] 2024 Approved Ultimate List of Steadicams for UAV Videography Enthusiasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-vida-reimagined-editing-revolution-unveiled/"><u>[New] 2024 Approved Vida Reimagined Editing Revolution Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fbstream-reaper-download-features/"><u>[New] FbStream Reaper - Download Features</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-10-steps-to-youtube-to-mpeg-conversion/"><u>2024 Approved Top 10 Steps to YouTube-to-MPEG Conversion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-understanding-video-length-and-content-strategy-in-youtube-shorts/"><u>2024 Approved Understanding Video Length and Content Strategy in YouTube Shorts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/aomei-backupper-vs-macrium-reflect-eine-vergleichende-analyse-der-beiden-fuhrenden-datensicherungsprogramme/"><u>AOMEI Backupper Vs. Macrium Reflect - Eine Vergleichende Analyse Der Beiden Führenden Datensicherungsprogramme</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723862828622-discover-cutting-edge-visuals-on-aocs-agon-pro-ag456uczd-a-45-uhd-oled-monitor-with-lightning-fast-response-time-and-ultimate-gaming-comfort/"><u>Discover Cutting-Edge Visuals on AOC's Agon Pro AG456UCZD, a 45 UHD OLED Monitor with Lightning-Fast Response Time and Ultimate Gaming Comfort!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-usb-c-windows-10-driver-for-seamless-connectivity/"><u>Get the Latest USB-C Windows 10 Driver for Seamless Connectivity</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/hyper-scape-pc-crash-woes-heres-how-you-can-make-it-run-smoothly-again/"><u>Hyper Scape PC Crash Woes? Here's How You Can Make It Run Smoothly Again</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pinnacle-10-tools-for-masterful-online-subtitle-edits-for-2024/"><u>Pinnacle 10 Tools for Masterful Online Subtitle Edits for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/race-through-the-olympics-top-sections-2022/"><u>Race Through the Olympics Top Sections, 2022</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-photographers-blueprint-for-stunning-hdr-portraits-for-2024/"><u>The Photographer's Blueprint for Stunning HDR Portraits for 2024</u></a></li>
 </ul></div>
 

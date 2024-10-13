@@ -1,7 +1,7 @@
 ---
 title: "\"One Man's Quest with 3D Tech  '3DR' Analysis\""
-date: 2024-09-11T20:46:21.940Z
-updated: 2024-09-15T17:29:07.315Z
+date: 2024-10-11T23:58:14.748Z
+updated: 2024-10-13T02:09:19.914Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -67,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -83,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -96,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -120,12 +148,16 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-dive-into-windows-10-new-apps-and-games-galore-for-2024/"><u>[New] Dive Into Windows 10 - New Apps & Games Galore for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-premium-action-recording-in-faceview-option/"><u>[New] In 2024, Premium Action Recording In-Faceview Option</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-seamlessly-capture-and-store-your-favorite-episodes-on-iphone/"><u>[New] In 2024, Seamlessly Capture and Store Your Favorite Episodes on iPhone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-swiftswirl-momentmirror-recording/"><u>[New] SwiftSwirl MomentMirror Recording</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-vids-in-verse-strategies-for-effective-twitter-video-downloads/"><u>[New] Vids in Verse Strategies for Effective Twitter Video Downloads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/download-delight-making-funimate-simple-to-use/"><u>Download Delight Making Funimate Simple to Use</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-installation-obtain-lexars-usb-driver-with-one-click/"><u>Effortless Installation: Obtain Lexar's USB Driver with One Click</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/innovative-cloud-storage-solutions-mematic-app/"><u>Innovative Cloud Storage Solutions Mematic App</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-ditch-sony-vegas-explore-the-best-video-editing-alternatives-for-windows/"><u>Updated 2024 Approved Ditch Sony Vegas Explore the Best Video Editing Alternatives for Windows</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, SRT Production via XML, SSA & TTML Conversions"
-date: 2024-09-14T18:13:16.766Z
-updated: 2024-09-15T16:51:25.681Z
+date: 2024-10-11T16:32:08.167Z
+updated: 2024-10-13T04:47:20.605Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ This subtitle format contains encoding, duration, and content of subtitles like 
 
 ![ttml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. TTML
 
 This is an XML-based format that has a somewhat complicated look with <> appearing in many places.
@@ -83,10 +90,10 @@ This format of subtitles lacks a timing section like in SRT.
 ![stl subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. VOB
@@ -119,19 +126,6 @@ If you are having trouble importing an SSA file on your media player, then just 
 Step1 Visit [VEED.IO Subtitle Editor](https://www.veed.io/subtitle-tools/edit) and click on the “Upload Your Subtitle File” to choose the SSA format subtitle from your device or drag and drop the subtitle here.
 
 ![select the srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Now select the “.srt” as the output format from the top left corner of the screen
 
@@ -251,6 +245,13 @@ Adding the SRT subtitle file to the video is not a problem if you are using the 
 
 But what may be the best software for it? Of course, it's [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Wondershare Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from Wondershare is an all-in-one video editor for Windows and macOS computers that can also handle subtitle files effortlessly. You can easily import SRT files and add them to your movies. Moreover, converting your voice to a subtitle or adding a manual subtitle to the video is also possible.
@@ -280,13 +281,6 @@ Step2 Now launch the software and click on the "New Project."
 Step3 After that, click on the "Import Media" or drag and drop the video as well as the SRT subtitle file here.
 
 ![convert stl to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 nce done, first drag the video file to the video tract below and then the SRT subtitle file.
 
@@ -326,14 +320,14 @@ Step7 Now, type the text you want to add as a subtitle, and change other setting
 
 ![hit the export button](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-25.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step8 Finally, when you are done, just hit the "Export" button to burn the subtitles on your video.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -362,6 +356,19 @@ It is a plain text file that is composed of three sections, Script Info, Styles,
 This subtitle format contains encoding, duration, and content of subtitles like this,
 
 ![ttml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. TTML
 
@@ -452,6 +459,19 @@ Step3 Once the file has been uploaded, hit the “Convert” option to convert t
 
 After TTML, it’s time to convert STL subtitles to SRT format.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Convert STL to SRT
 
 Made for broadcasting purposes, STL subtitles are a professional type of subtitles that use some special encodings. So most common video players can't support these files and you need to convert them into SRT files that are more of a universal type.
@@ -506,6 +526,13 @@ Step6 Now select the “SubRip Subtitle file(.srt)” from there and click “Ex
 
 ![upload vob file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-15.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Finally, the SRT version of your VOB file will be saved.
 
 Congratulations!
@@ -550,13 +577,6 @@ Step2 Now launch the software and click on the "New Project."
 
 ![download converted subtitles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 After that, click on the "Import Media" or drag and drop the video as well as the SRT subtitle file here.
 
 ![convert stl to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-12.jpg)
@@ -570,6 +590,13 @@ nce done, first drag the video file to the video tract below and then the SRT su
 Step5 Lastly, hit the "Export" button to save the video having subtitles.
 
 ![go to the titles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-27.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now on adding manual subtitles to your video.
 
@@ -629,5 +656,20 @@ If you still have questions in your mind, leave them in the comment section belo
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-affordable-cameras-where-to-buy-economical-gopros/"><u>[New] 2024 Approved Affordable Cameras Where to Buy Economical GoPros</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elevating-brand-visibility-a-10-step-roadmap-to-exceptional-smm-skills-for-2024/"><u>[New] Elevating Brand Visibility A 10-Step Roadmap to Exceptional SMM Skills for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ngaging-viewers-on-youtube-gaming-livestreams-for-2024/"><u>[New] Engaging Viewers on YouTube Gaming Livestreams for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-expert-tips-for-enhanced-kinemaster-frame-focus/"><u>[New] Expert Tips for Enhanced Kinemaster Frame Focus</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-extensive-review-the-360-degree-capture-of-samsung-for-2024/"><u>[New] Extensive Review The 360-Degree Capture of Samsung for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-ultimate-users-companion-for-durecorder/"><u>[New] In 2024, Ultimate User’s Companion for DuRecorder</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-no-pocket-money-needed-heres-a-free-solution-to-coffee-stains-in-images/"><u>[Updated] 2024 Approved No Pocket Money Needed? Here’s a FREE Solution to Coffee Stains in Images</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-create-unique-ringtone-from-social-media-music-tracks/"><u>[Updated] How To Create Unique Ringtone From Social Media Music Tracks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-innovate-in-note-taking-with-mematic-platform/"><u>[Updated] Innovate in Note-Taking with Mematic Platform</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-instantly-create-a-custom-youtube-feed-via-your-smartphone/"><u>2024 Approved Instantly Create a Custom YouTube Feed via Your Smartphone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/el-title-genius-ideas-for-your-video-hub-for-2024/"><u>Channel Title Genius Ideas for Your Video Hub for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhance-your-browsing-efficiency-a-complete-guide-to-pip-on-edge/"><u>Enhance Your Browsing Efficiency A Complete Guide to PIP on Edge</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-review-comprehensive-insights-on-latest-hardware/"><u>Tom's Tech Review: Comprehensive Insights on Latest Hardware</u></a></li>
+</ul></div>
 

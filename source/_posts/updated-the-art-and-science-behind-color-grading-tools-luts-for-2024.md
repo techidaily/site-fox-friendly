@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art and Science Behind Color Grading Tools (LUTs) for 2024"
-date: 2024-09-11T19:03:03.753Z
-updated: 2024-09-15T16:53:05.343Z
+date: 2024-10-08T06:40:39.858Z
+updated: 2024-10-12T16:04:21.217Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -63,6 +70,13 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -70,6 +84,13 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -85,13 +106,6 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -110,10 +124,10 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -154,5 +168,26 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-smartphone-accessories-for-making-videos/"><u>[New] 2024 Approved Smartphone Accessories for Making Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-5-preferred-sites-to-download-dynamic-and-versatile-text-effects-for-2024/"><u>[New] 5 Preferred Sites to Download Dynamic and Versatile Text Effects for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-engaging-storytelling-podcasts-with-applee-devices-for-2024/"><u>[New] Crafting Engaging Storytelling Podcasts with Apple'e Devices for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-niche-knowledge-on-selecting-premium-fpv-drone-propellers/"><u>[New] Niche Knowledge on Selecting Premium FPV Drone Propellers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cool-climates-with-a-warm-twist-selecting-video-bgs/"><u>[Updated] 2024 Approved Cool Climates with a Warm Twist Selecting Video Bg's</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-exploring-toolwiz-photosapp-in-depth-review-2023/"><u>[Updated] Exploring Toolwiz PhotosApp In-Depth Review, 2023</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-a-straightforward-approach-to-image-distortion/"><u>[Updated] In 2024, A Straightforward Approach to Image Distortion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-personalized-ringtone-crafting-from-tiktok-beats-to-cellphone-alerts-for-2024/"><u>[Updated] Personalized Ringtone Crafting From TikTok Beats to Cellphone Alerts for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-android-device-capture-free-simplify-your-tech-life/"><u>2024 Approved Android Device Capture - FREE! Simplify Your Tech Life</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-5-best-non-samsung-camera-picks-for-gear-enthusiasts/"><u>2024 Approved Unveiling 5 Best Non-Samsung Camera Picks for Gear Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cut-the-redundancy-a-step-by-step-to-adding-times-in-your-videos/"><u>Cut the Redundancy A Step-by-Step to Adding Times in Your Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/fuse-voice-recordings-with-ppt-content/"><u>Fuse Voice Recordings with PPT Content</u></a></li>
+<li><a href="https://fox-where.techidaily.com/guia-para-detener-la-sincronizacion-icloud-mac-escenarios-tipicos-y-soluciones-efectivas/"><u>Guía Para Detener La Sincronización iCloud-Mac: Escenarios Típicos Y Soluciones Efectivas</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nokia-130-music-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nokia 130 Music to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/peaceful-pixel-play-idling-worlds/"><u>Peaceful Pixel Play: Idling Worlds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-10-cheap-cameras-for-dynamic-shots-for-2024/"><u>Top 10 Cheap Cameras For Dynamic Shots for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-portable-audio-choices-decoded/"><u>Top Portable Audio Choices Decoded</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/tuning-in-smoothly-learning-to-adjust-audio-volumes-on-audacity/"><u>Tuning In Smoothly Learning to Adjust Audio Volumes on Audacity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/visual-storytelling-through-photomosaics-for-2024/"><u>Visual Storytelling Through Photomosaics for 2024</u></a></li>
+</ul></div>
 

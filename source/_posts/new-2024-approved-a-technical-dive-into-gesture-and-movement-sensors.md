@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Technical Dive Into Gesture and Movement Sensors\""
-date: 2024-09-13T20:45:22.732Z
-updated: 2024-09-15T20:48:09.963Z
+date: 2024-10-12T04:33:46.982Z
+updated: 2024-10-12T20:43:03.768Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,13 @@ With Hand Tracking, you can interact with the virtual world more naturally and i
 
 There are two main types of Hand Tracking: with interface and without interface:
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tracking With Interface
 
 With interface Hand Tracking, you need to use a device such as a glove or a controller to interact with the virtual world. This can be used in VR or AR applications. It is further divided into two systems:
@@ -75,6 +82,13 @@ Also known as Markerless Hand Tracking, this type of Hand Tracking allows users 
 
 Right now, markerless Hand Tracking is still in its early stages, with a few limitations. However, as this technology continues to develop, we will likely see more and more applications for it in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Using Python, OpenCV, And MediaPipe To Create A Hand Tracking
 
 Above we have learned what is Hand Tracking and the two types of it. Now let’s see how we can create a hand tracking with two Python Libraries - OpenCV and MediaPipe.
@@ -97,10 +111,17 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Guidance With Steps
@@ -137,19 +158,6 @@ Copy and paste the following line of code to take the image input from your PC w
 
 ![capturing and processing an image input](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The image is converted to RGB from BGR because MediaPipe works with this type of image. The RBG image is then processed to track the hand.
 
 ##### Step3 Working With Both Hands
@@ -169,6 +177,13 @@ Afterward, use the above code to create a method for using specifically to ident
 To create a method for finding the x and y coordinates of the z21 hand points and a list that you will use to keep the values of these, write the code below:
 
 ![locate x and y coordinate of hand point](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this method, use the code that you used to find the ID and hand landmark of each hand point. Moreover, put the code you will use to circle the hand point.
 
@@ -227,13 +242,6 @@ With Hand Tracking, you can interact with the virtual world more naturally and i
 
 There are two main types of Hand Tracking: with interface and without interface:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tracking With Interface
 
 With interface Hand Tracking, you need to use a device such as a glove or a controller to interact with the virtual world. This can be used in VR or AR applications. It is further divided into two systems:
@@ -268,6 +276,13 @@ Before we go further about them, let us learn about Python quickly. Python is a 
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What Is Media Pipe
 
 Media Pipe is an open-source framework by Google that provides a set of tools for working with multimedia data or media processing. It includes modules for handling audio, video, and images. Media Pipe also supports various codecs and file formats.
@@ -289,16 +304,16 @@ Click the **“New Project”** option and select **“Create”** on the next W
 
 ![install and launch the pycharm app on your pc](https://images.wondershare.com/filmora/article-images/2022/07/install-and-launch-the-pycharm-app-on-your-pc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, to install **MediaPipe**, copy and paste the following command:
 
@@ -320,6 +335,19 @@ Copy and paste the following line of code to take the image input from your PC w
 
 ![capturing and processing an image input](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The image is converted to RGB from BGR because MediaPipe works with this type of image. The RBG image is then processed to track the hand.
 
 ##### Step3 Working With Both Hands
@@ -331,13 +359,6 @@ Now, create a class for tracking and for the hands function to work, key in the 
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
 ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -405,5 +426,21 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-android-and-iphone-collage-kings-the-best-montage-apps/"><u>[New] 2024 Approved Android & iPhone Collage Kings The Best Montage Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unleash-creative-potential-applying-effects-and-filters-on-zoom/"><u>[New] 2024 Approved Unleash Creative Potential Applying Effects and Filters on Zoom</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-global-reach-12-video-live-stream-app/"><u>[New] Global Reach 12 Video Live Stream App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ultimate-10-apps-to-boost-audio-velocity/"><u>[New] In 2024, Ultimate 10 Apps to Boost Audio Velocity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-ideal-picks-9-best-video-calling-apps-for-androidios-business-needs/"><u>[Updated] 2024 Approved Ideal Picks 9 Best Video Calling Apps for Android/iOS Business Needs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-media-your-step-by-step-video-tweet/"><u>[Updated] 2024 Approved Mastering Media Your Step-by-Step Video Tweet</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-10-top-free-online-photo-editor/"><u>[Updated] In 2024, 10 Top Free Online Photo Editor</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-appreciation-bundle-ultimate-selection-of-templates/"><u>[Updated] In 2024, Appreciation Bundle Ultimate Selection of Templates</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-spruce-up-your-stories-with-effortless-animated-text-techniques/"><u>[Updated] In 2024, Spruce Up Your Stories With Effortless Animated Text Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-dynamic-dimensions-unleashing-the-power-of-high-dynamic-range/"><u>In 2024, Dynamic Dimensions Unleashing the Power of High Dynamic Range</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-mystery-of-your-unresponsive-dell-laptop-typing-pad/"><u>Solving the Mystery of Your Unresponsive Dell Laptop Typing Pad</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-incredible-visual-experience-awaiting-you-with-the-sony-xbr49x900f-an-expert-review/"><u>The Incredible Visual Experience Awaiting You with the Sony XBR49X900F - An Expert Review</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-motorola-moto-g04-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Motorola Moto G04.</u></a></li>
+</ul></div>
 

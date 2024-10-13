@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Instantly Examine Windows Documents Efficiently for 2024"
-date: 2024-09-14T16:30:44.226Z
-updated: 2024-09-15T18:15:28.042Z
+date: 2024-10-06T20:53:08.352Z
+updated: 2024-10-12T22:47:14.892Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Get the App on GitHub
 
 If you can’t find QuickLook on Microsoft Store for one reason or another, download the program from GitHub. It’s an open-source community where millions of software developers converge to distribute and share their work. Here, you can download and install multiple desktop programs and plugins for free. However, you must be a registered member to contribute any content.
@@ -58,9 +65,23 @@ Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://g
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -69,13 +90,6 @@ Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years
 Meanwhile, it’s expected that QuickLook will come with a small preview screen. However, that should be enough space to preview whatever file you’re searching for. Also, it’s expected that Windows will embed the QuickLook capabilities into the Photos app. But it’s not yet clear if Peek will work with media files like videos and audio as it is on Mac.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
 
@@ -92,16 +106,10 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -136,5 +144,26 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-easy-steps-for-designing-podcast-rss-structure/"><u>[New] Easy Steps for Designing Podcast RSS Structure</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-how-to-create-a-youtube-music-playlist/"><u>[New] In 2024, How to Create a YouTube Music Playlist</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unlocked-skies-cheapest-drones-that-dont-break-the-bank/"><u>[New] In 2024, Unlocked Skies Cheapest Drones that Don't Break the Bank</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-setting-up-windows-11-for-automatic-hdr-activation/"><u>[New] Setting Up Windows 11 for Automatic HDR Activation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-imaginefx-editor/"><u>[Updated] 2024 Approved ImagineFX Editor</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-from-raw-footage-to-final-cut-adopting-luts-in-premiere/"><u>[Updated] From Raw Footage to Final Cut Adopting LUTs in Premiere</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-from-zero-to-profit-beginners-guide-on-periscope-earning-for-2024/"><u>[Updated] From Zero to Profit Beginner’s Guide on Periscope Earning for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-a-seamless-transition-sharing-tiktok-videos-with-twitter/"><u>[Updated] In 2024, A Seamless Transition Sharing TikTok Videos with Twitter</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-perfecting-video-focus-videoleap-guide-for-2024/"><u>[Updated] Perfecting Video Focus Videoleap Guide for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/10-free-and-paid-luts-for-canon-camera/"><u>10 Free & Paid LUTs for Canon Camera</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-stability-secured-the-ultimate-guide-for-uninterrupted-iphone-videos/"><u>2024 Approved Stability Secured The Ultimate Guide for Uninterrupted iPhone Videos</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/converting-m4v-files-free-of-charge-moveave-quick-and-easy-video-format-transformation/"><u>Converting M4V Files Free of Charge - Moveave: Quick and Easy Video Format Transformation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/free-subtitle-services-the-ultimate-convertors-guide-for-2024/"><u>Free Subtitle Services The Ultimate Convertors Guide for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-x50i-phone-without-password-by-drfone-android/"><u>How To Unlock Honor X50i Phone Without Password?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-obs-or-wirecast-your-ultimate-guide-to-broadcast-software/"><u>In 2024, OBS or Wirecast? Your Ultimate Guide to Broadcast Software</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mastering-twitter-setup-in-5-steps/"><u>Mastering Twitter Setup in 5 Steps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/playback-of-srt-audio-files-in-computers-windowsmacos-for-2024/"><u>Playback of SRT Audio Files in Computers (Windows/macOS) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-korean-your-portal-into-squid-game/"><u>Understanding Korean: Your Portal Into Squid Game</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-beyond-minitool-movie-maker-exploring-top-video-editing-software-options/"><u>Updated Beyond Minitool Movie Maker Exploring Top Video Editing Software Options</u></a></li>
+</ul></div>
 
