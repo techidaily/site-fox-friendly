@@ -1,7 +1,7 @@
 ---
 title: "Top Quality SD Card for Sony Alpha 7S II"
-date: 2024-10-05T17:26:22.213Z
-updated: 2024-10-13T01:17:04.447Z
+date: 2024-10-18T02:13:44.049Z
+updated: 2024-10-18T17:05:55.365Z
 tags: 
   - screen-recording
   - ai video
@@ -73,10 +73,10 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
@@ -120,10 +120,16 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -151,17 +157,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-flight-with-top-5-hmds-for-drone-racing-for-2024/"><u>[New] Mastering Flight with Top 5 HMDs for Drone Racing for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-yuneecs-breakthrough-in-high-res-aerial-vision/"><u>[Updated] 2024 Approved Yuneec's Breakthrough in High-Res Aerial Vision</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-diy-ig-videos-tips-and-template-inspirations-for-2024/"><u>[Updated] DIY IG Videos Tips & Template Inspirations for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-walk-of-shadows-a-comprehensive-list-of-intense-zombie-games/"><u>[Updated] In 2024, Walk of Shadows A Comprehensive List of Intense Zombie Games</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-expertly-record-your-browser-adventures-with-top-5-capturers/"><u>2024 Approved Expertly Record Your Browser Adventures with Top 5 Capturers</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-video-bite-by-celeb-on-vimeo/"><u>2024 Approved Video Bite by Celeb on Vimeo</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>2024 Approved Youtube's Prime Moments Celebrations Beyond VidCon</u></a></li>
-<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/iem-benefits-in-competitive-video-game-sets/"><u>IEM Benefits in Competitive Video Game Sets</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-setting-pip-mode-in-the-youtube-app-for-mobile-viewing/"><u>In 2024, Setting PIP Mode in the YouTube App for Mobile Viewing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-standout-reddit-content-an-exclusive-look-at-top-10-threads/"><u>In 2024, Standout Reddit Content An Exclusive Look at Top 10 Threads</u></a></li>
-<li><a href="https://win11.techidaily.com/maximize-productivity-in-windows-11-with-a-superior-run-command-setup/"><u>Maximize Productivity in Windows 11 with a Superior Run Command Setup</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pinterest-vid-extraction-made-easy-the-best-tools-ranked-for-2024/"><u>[New] Pinterest Vid Extraction Made Easy The Best Tools Ranked for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-preeminent-6-networks-driving-biz-innovation-for-2024/"><u>[New] Preeminent 6 Networks Driving Biz Innovation for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-streamlining-your-video-production-with-kinemaster-and-leading-alternatives/"><u>[New] Streamlining Your Video Production with KineMaster & Leading Alternatives</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-devise-droll-visuals-giphys-domain/"><u>[Updated] 2024 Approved Devise Droll Visuals Giphy's Domain</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-perfect-hues-at-your-fingertips-the-essential-11-tutorial-list/"><u>[Updated] In 2024, Perfect Hues at Your Fingertips The Essential 11 Tutorial List</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-five-excellent-cameras-for-high-fidelity-movies/"><u>[Updated] In 2024, Top Five Excellent Cameras for High Fidelity Movies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-selective-best-camera-apps-for-low-speed-photo-and-video/"><u>[Updated] Selective Best Camera Apps for Low Speed Photo and Video</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-infinix-note-30-vip-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Infinix Note 30 VIP</u></a></li>
+<li><a href="https://win-able.techidaily.com/get-smooth-and-stunning-visuals-a-guide-to-updating-your-graphics-driver-for-forza-horizon-5/"><u>Get Smooth and Stunning Visuals: A Guide to Updating Your Graphics Driver for Forza Horizon 5</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-se-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone SE</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-art-of-memetics-a-9gag-creators-manual/"><u>In 2024, Mastering the Art of Memetics A 9GAG Creator's Manual</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/leveraging-mac-integration-for-top-tier-mixer-streams-for-2024/"><u>Leveraging Mac Integration for Top-Tier Mixer Streams for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/seamlessly-connecting-wi-fi-and-ethernet-in-one-operating-system/"><u>Seamlessly Connecting Wi-Fi & Ethernet in One Operating System</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-secret-strategies-to-mastering-whatsapp-chat-for-2024/"><u>The Secret Strategies to Mastering WhatsApp Chat for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/try-this-groundbreaking-free-valorant-audio-swap-tech/"><u>Try This Groundbreaking, Free Valorant Audio Swap Tech</u></a></li>
 </ul></div>
 

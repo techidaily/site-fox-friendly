@@ -1,7 +1,7 @@
 ---
 title: "\"Enhancing Engagement  How to Use Background Footage for 2024\""
-date: 2024-09-12T16:49:00.292Z
-updated: 2024-09-15T17:01:52.796Z
+date: 2024-10-11T23:15:32.367Z
+updated: 2024-10-18T16:45:52.043Z
 tags: 
   - screen-recording
   - ai video
@@ -40,41 +40,42 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
@@ -93,16 +94,10 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -141,5 +136,22 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-mastering-text-superimposition-windows-and-mac-edition/"><u>[New] 2024 Approved Mastering Text Superimposition Windows & Mac Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-lut-lovers-delight-complimentary-sets-for-djis-miniair2-for-2024/"><u>[New] LUT Lovers Delight Complimentary Sets for DJI's Mini/Air2 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-perfect-your-iphone-writings-and-movies-with-optimal-tools-for-2024/"><u>[New] Perfect Your iPhone' Writings & Movies With Optimal Tools for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-todays-drones-tomorrows-landscapes-an-overview/"><u>[New] Today’s Drones, Tomorrow's Landscapes An Overview</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ensuring-accurate-earnings-tracking-for-creators/"><u>[Updated] 2024 Approved Ensuring Accurate Earnings Tracking for Creators</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-elevate-your-auditory-experience-iphone-and-the-world-of-podcasting/"><u>[Updated] In 2024, Elevate Your Auditory Experience - iPhone and the World of Podcasting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-step-by-step-vivacut-video-editing-complete-guide-for-24/"><u>[Updated] Step-by-Step VivaCut Video Editing Complete Guide for '24</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boost-conference-calls-on-zoom-platform/"><u>Boost Conference Calls on Zoom Platform</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/bug-free-gaming-how-from-the-ashes-of-remnant-now-stays-steady-on-launch/"><u>Bug-Free Gaming: How 'From the Ashes of Remnant' Now Stays Steady on Launch</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/youtube-end-screen-templates-plushow-tos-for-2024/"><u>Free YouTube End Screen Templates [+How-Tos] for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/gaming-evolved-comparing-mavic-air-and-sparks-impact/"><u>Gaming Evolved Comparing Mavic Air and Spark's Impact</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-fix-amd-graphics-card-failure-detection-on-windows-11-devices/"><u>How to Fix AMD Graphics Card Failure Detection on Windows 11 Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-building-panoramic-pictures-through-image-fusion/"><u>In 2024, Building Panoramic Pictures Through Image Fusion</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-permanent-banishment-from-the-tiktok-community-done-right/"><u>In 2024, Permanent Banishment From the TikTok Community, Done Right</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/step-into-the-future-elevate-your-gameplay-with-fbx-recorder-for-2024/"><u>Step Into the Future Elevate Your Gameplay with FBX Recorder for 2024</u></a></li>
+</ul></div>
 

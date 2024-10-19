@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking Creativity  Incorinasive Use of LUTs in Video Editing\""
-date: 2024-09-14T19:55:31.912Z
-updated: 2024-09-15T19:58:35.473Z
+date: 2024-10-14T23:18:41.791Z
+updated: 2024-10-19T05:25:08.754Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,19 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Why use LUTs in your project?
 
 When there is no time limit or restriction on when to submit the result file, it is fun to edit your own clips because you have complete creative control over the process. Because of this, Color Grading is a rather unimportant aspect to worry about. After making a few adjustments to the Exposure and Contrast settings, you should be good to go.
@@ -53,10 +66,10 @@ Because of this, some designers employ look-up tables (LUTs) that they have crea
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Can you adjust the strength of the LUT?
@@ -66,6 +79,13 @@ There are no such modifications that can be made in a certain LUT or Look, and t
 The entire color panel in Premiere Pro is packed with all of the color grading tools that are required to adjust your film in the appropriate way. Investigating them can provide you with some understanding of how they function. You can get a sense of how these LUTs function by using the pre-installed LUTs that are accessible in Premiere Pro, which you can use at first to get a feel for the LUTs before moving on to using paid or free Color Grading profiles.
 
 The end outcome does not vary by a substantial amount, but how it looks can change depending on the LUT you use. In the event that something seems to be lacking, you can always modify the color grading.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Export LUTs
 
@@ -80,10 +100,10 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Where can you find LUTs?
@@ -133,5 +153,22 @@ Sometimes, some of them are out there to steal your money rather than provide th
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-complete-beginners-reference-to-final-cut-pro-for-2024/"><u>[New] Complete Beginner's Reference to Final Cut Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-art-of-iphone-cinematography-transforming-fast-motion-into-sluggish-sequences/"><u>[New] In 2024, The Art of iPhone Cinematography Transforming Fast Motion Into Sluggish Sequences</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-transforming-chats-with-animated-gifs-a-complete-walkthrough-for-snapchat/"><u>[New] In 2024, Transforming Chats with Animated Gifs – A Complete Walkthrough for Snapchat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-art-of-lights-for-youtube-vlogging-for-2024/"><u>[New] The Art of Lights for YouTube Vlogging for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-spotlight-on-top-video-making-talents/"><u>[Updated] 2024 Approved Spotlight on Top Video Making Talents</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-hot-20-on-tiktok-the-tracks-dripping-with-popularity/"><u>[Updated] Hot 20 on TikTok The Tracks Dripping with Popularity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-long-is-a-video-at-20-megabits/"><u>[Updated] How Long Is a Video at 20 Megabits?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-seamless-sound-dimming-techniques-for-garageband/"><u>[Updated] In 2024, Seamless Sound Dimming Techniques for Garageband</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-companion-for-enhancing-tiktok-bios-with-linktree/"><u>[Updated] The Ultimate Companion for Enhancing TikTok Bios with Linktree</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-online-tips-creating-title-magic/"><u>[Updated] Top Online Tips Creating Title Magic</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-itel-s23-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Itel S23 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-screenshotsweeperpro-next-gen-bg-removal-tool/"><u>In 2024, ScreenshotSweeperPro Next-Gen BG Removal Tool</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-step-by-step-guide-for-sporty-streamers-on-mac/"><u>In 2024, Step-by-Step Guide for Sporty Streamers on Mac</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-installing-toshiba-printer-drivers-on-your-pc/"><u>Step-by-Step Guide: Installing Toshiba Printer Drivers on Your PC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/text-transformation-tricks-for-media/"><u>Text Transformation Tricks for Media</u></a></li>
+</ul></div>
 

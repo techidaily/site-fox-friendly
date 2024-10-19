@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Glow Innovations  Outshining Videos Through Design\""
-date: 2024-09-09T12:37:00.182Z
-updated: 2024-09-10T12:37:00.182Z
+date: 2024-10-12T03:10:04.801Z
+updated: 2024-10-19T00:53:51.085Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ Many people are wondering how to set up lighting for video shooting. While there
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. How-to Guide
 
 **_1) Preparation_**
@@ -60,12 +54,6 @@ The key light is the main light that illuminates the subject. You can place it i
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
@@ -80,12 +68,6 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
@@ -104,12 +86,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -117,17 +93,12 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -160,4 +131,16 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-how-to-capture-motion-blur-photos-with-iphone/"><u>[New] How to Capture Motion Blur Photos with iPhone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-innovative-transitions-for-professional-videos/"><u>[New] Innovative Transitions for Professional Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-a-compreenas-guide-to-producing-slow-motion-content-with-photos-and-internet-for-2024/"><u>[Updated] A Compreenas Guide to Producing Slow Motion Content with Photos & Internet for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-from-basics-to-high-quality-srgb-vs-rgb-for-2024/"><u>[Updated] From Basics to High-Quality Srgb vs Rgb for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-guffaw-generator-cyborg-comic-coders/"><u>[Updated] Guffaw Generator Cyborg Comic Coders</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-infinix-smart-8-hd-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Infinix Smart 8 HD – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/next-level-photography-smart-hdr-and-beyond/"><u>Next-Level Photography Smart HDR and Beyond</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/redefine-twitter-video-panel-for-2024/"><u>Redefine Twitter Video Panel for 2024</u></a></li>
+</ul></div>
 

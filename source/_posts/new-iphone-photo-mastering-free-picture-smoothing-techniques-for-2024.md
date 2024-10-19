@@ -1,7 +1,7 @@
 ---
 title: "\"[New] IPhone Photo  Mastering FREE Picture Smoothing Techniques for 2024\""
-date: 2024-10-09T00:10:20.326Z
-updated: 2024-10-13T04:24:00.051Z
+date: 2024-10-16T17:03:02.586Z
+updated: 2024-10-19T00:09:35.207Z
 tags: 
   - screen-recording
   - ai video
@@ -79,13 +79,6 @@ Tap and hold the main subject on the screen until the **AE/AF Lock** message sho
 
 Get closer to the subject. Ensure that the background around the main subject gets blurry and you move forward. Tap the **Capture** icon once you are close enough to get the desired level of blurriness in the background. Now, use the method explained above to access the captured photo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Adding Vignette Effect to Photo to Blur the Background on iPhone
 
 The built-in Photos app comes with the Vignette effect that can be applied to the image at the time of editing. However, to get this done, it is recommended that the main subject should be at the center so the background looks unimportant. You can follow the steps given below to learn **how to blur a picture on iPhone** with the Vignette effect:
@@ -104,13 +97,6 @@ Tap the Effects icon from the bottom, swipe left to horizontally scroll through 
 
 Tap **Done** from the bottom-right corner to save the changes and to exit the **Edit** mode. Continue using the image as and/or where needed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Blur the Background of Photos on iPhone with Apps
 
 You may want to use a third-party app to apply effects to the photos because they offer several advanced features that the iPhone’s built-in Photos app doesn’t. Furthermore, since such programs are designed specifically for the purpose, they are quite intuitive and come with self-explanatory options and buttons.
@@ -123,18 +109,18 @@ After [installing Snapseed from the App Store](https://apps.apple.com/us/app/sna
 
 ![open photo to blur snapseed](https://images.wondershare.com/filmora/article-images/open-photo-to-blur-snapseed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Pick the Blur Tool**
 
 Tap **TOOLS** from the bottom of the interface, and from the options available in the box that pops up, tap **Lens Blur**.
 
 ![pick blur tool snapseed](https://images.wondershare.com/filmora/article-images/pick-blur-tool-snapseed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Adjust the Blur Shape and Size**
 
@@ -149,13 +135,6 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -253,9 +232,23 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 
 ![snapseed blur photo background](https://images.wondershare.com/filmora/article-images/snapseed-blur-photo-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -283,18 +276,24 @@ Swipe-drag the modes present above the **Shutter** button to switch to the **POR
 
 ![iphone portrait mode blur background](https://images.wondershare.com/filmora/article-images/iphone-portrait-mode-blur-background.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Capture and Access the Photo**
 
 Tap the **Capture** icon from the bottom-center to capture the image. To access, you can either tap the **Preview** icon from the bottom-left corner, or get to the **Photos** app from the Home screen, go to **Albums**, and access the captured photo from the **Recents** album.
 
 ![blur photo background iphone portrait mode](https://images.wondershare.com/filmora/article-images/blur-photo-background-iphone-portrait-mode.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Take a Photo with a Blurred Background on Older iPhones by Getting Closer to the Subject
 
@@ -360,13 +359,6 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 
 ![snapseed blur photo background](https://images.wondershare.com/filmora/article-images/snapseed-blur-photo-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
@@ -380,6 +372,13 @@ Blurring the background in a photo ensures that the main subject remains in the 
 03 [Add Vignette Effect to Photo to Blur the Background](#part3)
 
 04 [Blur the Background of Photos on iPhone with Apps](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: How to Blur the Photo Background with Portrait Mode on iPhone
 
@@ -397,18 +396,18 @@ Swipe-drag the modes present above the **Shutter** button to switch to the **POR
 
 ![iphone portrait mode blur background](https://images.wondershare.com/filmora/article-images/iphone-portrait-mode-blur-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Capture and Access the Photo**
 
 Tap the **Capture** icon from the bottom-center to capture the image. To access, you can either tap the **Preview** icon from the bottom-left corner, or get to the **Photos** app from the Home screen, go to **Albums**, and access the captured photo from the **Recents** album.
 
 ![blur photo background iphone portrait mode](https://images.wondershare.com/filmora/article-images/blur-photo-background-iphone-portrait-mode.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Take a Photo with a Blurred Background on Older iPhones by Getting Closer to the Subject
 
@@ -458,6 +457,13 @@ After [installing Snapseed from the App Store](https://apps.apple.com/us/app/sna
 
 ![open photo to blur snapseed](https://images.wondershare.com/filmora/article-images/open-photo-to-blur-snapseed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Pick the Blur Tool**
 
 Tap **TOOLS** from the bottom of the interface, and from the options available in the box that pops up, tap **Lens Blur**.
@@ -474,16 +480,16 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 
 ![snapseed blur photo background](https://images.wondershare.com/filmora/article-images/snapseed-blur-photo-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -513,21 +519,22 @@ Blurring the background in a photo ensures that the main subject remains in the 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-how-to-enhance-audibility-with-adjusted-obs-settings/"><u>[New] 2024 Approved How to Enhance Audibility with Adjusted OBS Settings</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-complete-critique-unmasking-the-bublcam-360-experience/"><u>[New] In 2024, Complete Critique Unmasking the Bublcam 360 Experience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-no-fog-only-clarity-gopro-lens-care-essentials/"><u>[New] In 2024, No Fog, Only Clarity GoPro Lens Care Essentials</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-streamlining-content-acquisition-5-ways-to-download-igtv-on-windows-and-macos/"><u>[New] In 2024, Streamlining Content Acquisition 5 Ways to Download IGTV on Windows & MacOS</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-methods-for-smooth-volume-diminishment-in-lumafusion/"><u>[New] Methods for Smooth Volume Diminishment in Lumafusion</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-who-leads-in-video-content-delivery-twitch-vs-youtube/"><u>[New] Who Leads in Video Content Delivery? Twitch vs YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>[Updated] How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-why-hdr-is-a-game-changer-for-video-enthusiasts-and-professionals/"><u>[Updated] In 2024, Why HDR Is a Game-Changer for Video Enthusiasts and Professionals</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-guide-to-inspiring-youtube-names/"><u>2024 Approved The Ultimate Guide to Inspiring YouTube Names</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/bridging-gaps-in-dialogue-techniques-for-smooth-editing-with-garageband-for-2024/"><u>Bridging Gaps in Dialogue Techniques for Smooth Editing with GarageBand for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/explore-these-6-fantastic-freeware-photo-editors-instead-of-photoshop/"><u>Explore These 6 Fantastic Freeware Photo Editors Instead of Photoshop</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-psvrs-upcoming-must-try-titles-the-ultimate-5-list/"><u>In 2024, PSVR's Upcoming Must-Try Titles The Ultimate 5 List</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-samsung-galaxy-s24-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Samsung Galaxy S24 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pioneering-resources-leading-free-video-openers-guide-for-2024/"><u>Pioneering Resources Leading Free Video Openers Guide for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/proven-iphone-markers-our-reviewed-top-9-water-marking-apps-for-2024/"><u>Proven iPhone Markers Our Reviewed Top 9 Water-Marking Apps for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/top-strategies-for-fixing-pc-freezing-issues-in-fortnite/"><u>Top Strategies for Fixing PC Freezing Issues in Fortnite</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-toddler-tycoon-ryan-kaji-and-the-wealthy-web-world/"><u>[New] 2024 Approved Toddler Tycoon Ryan Kaji and the Wealthy Web World</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-creating-emotional-depth-scriptwriting-tips/"><u>[New] In 2024, Creating Emotional Depth Scriptwriting Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-the-asus-mg28uq-the-future-of-4k-gaming-screens/"><u>[New] Unveiling the ASUS MG28UQ The Future of 4K Gaming Screens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-content-protection-can-you-record-playbacks/"><u>[New] YouTube Content Protection Can You Record Playbacks?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-essential-photographic-tool-dynamic-wallpaper-editor/"><u>[Updated] 2024 Approved Essential Photographic Tool Dynamic Wallpaper Editor</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-step-by-step-guide-share-youtube-vids-with-fb-friends/"><u>[Updated] A Step-by-Step Guide Share YouTube Vids with FB Friends</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-virtual-vanguard-of-humor-your-blueprint-for-metaspace-meme-creation-for-2024/"><u>[Updated] The Virtual Vanguard of Humor – Your Blueprint for Metaspace Meme Creation for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unbeatable-youtube-video-titling-assistant-for-2024/"><u>[Updated] Unbeatable YouTube Video Titling Assistant for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-transform-your-images-on-android-our-picks-for-the-5-best-editors/"><u>2024 Approved Transform Your Images on Android Our Picks for the 5 Best Editors</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-tecno-spark-20-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Tecno Spark 20 Pro Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-tips-for-screen-recording-on-lenovo-devices/"><u>Essential Tips for Screen Recording on Lenovo Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/fast-framerates-in-photos-innovating-with-windows-paint-app/"><u>Fast Framerates in Photos Innovating with Windows Paint App</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-12-pro-max-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 12 Pro Max Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mystery-of-missing-movies-a6400s-quandary-for-2024/"><u>Mystery of Missing Movies A6400's Quandary for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/one-mans-quest-with-3d-tech-3dr-analysis/"><u>One Man's Quest with 3D Tech '3DR' Analysis</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/residence-refers-to-a-person/"><u>Residence' Refers to a Person</u></a></li>
+<li><a href="https://games-able.techidaily.com/sonys-next-gen-marvel-ps5-boosted-by-9-new-traits/"><u>Sony's Next-Gen Marvel: PS5, Boosted by 9 New Traits</u></a></li>
 </ul></div>
 
