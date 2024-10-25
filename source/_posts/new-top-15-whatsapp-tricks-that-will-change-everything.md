@@ -1,7 +1,7 @@
 ---
 title: "[New] Top 15 WhatsApp Tricks That Will Change Everything"
-date: 2024-10-17T18:01:46.120Z
-updated: 2024-10-18T22:41:35.631Z
+date: 2024-10-22T02:06:22.905Z
+updated: 2024-10-24T20:18:41.041Z
 tags: 
   - screen-recording
   - ai video
@@ -103,6 +103,13 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are the Hidden Features of WhatsApp?
 
 Since most of the above-mentioned are owing to the tricks and trades of texting via WhatsApp, let us now jot down a WhatsApp hidden feature list that applies for general usability of the wonder-app. There are useful privacy settings and chat features that can make your user experience a lot more peaceful.
@@ -129,6 +136,13 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -145,18 +159,18 @@ Not every message thread is important, and many people have the habit of deletin
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
 
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
 
@@ -169,20 +183,13 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Source: beebom.com
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -210,13 +217,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -242,22 +242,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-ad-evolution-the-hottest-trends-to-watch/"><u>[New] 2024 Approved Facebook Ad Evolution The Hottest Trends to Watch</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-seamless-switch-to-virtual-reality-your-phones-next-step/"><u>[New] In 2024, Seamless Switch to Virtual Reality Your Phone's Next Step</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-personal-tones-androids-ringtone-and-sound-guide-for-2024/"><u>[New] Mastering Personal Tones Android's Ringtone & Sound Guide for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-innovation-in-action-sonys-s6500-player-redefined/"><u>[Updated] 2024 Approved Innovation in Action Sony's S6500 Player Redefined</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-like-a-pro-with-tomtoms-actioncam-2023/"><u>[Updated] In 2024, Explore Like a Pro with TomTom's ActionCam 2023</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-metaverse-passage-premier-vr-equipment-showcase/"><u>[Updated] In 2024, Metaverse Passage Premier VR Equipment Showcase</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-inclusive-iptv-service-distribution/"><u>[Updated] Inclusive IPTV Service Distribution</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-leading-sites-unveiled-acquiring-personalized-ringtone-files-from-youtube/"><u>2024 Approved Leading Sites Unveiled Acquiring Personalized Ringtone Files From Youtube</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/animated-adventures-easy-steps-for-snapchats-cute-filters-for-2024/"><u>Animated Adventures Easy Steps for Snapchat's Cute Filters for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-realme-c55-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Realme C55 Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme GT 5? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/integrate-advanced-note-organization-on-mematic/"><u>Integrate Advanced Note Organization on Mematic</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/leading-camera-innovations-revealed-future-edition-for-2024/"><u>Leading Camera Innovations Revealed - Future Edition for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/polymorphisms-in-the-vkorc1-gene-affect-warfarin-sensitivity-and-metabolism-necessitating-personalized-dose-adjustments/"><u>Polymorphisms in the VKORC1 Gene Affect Warfarin Sensitivity and Metabolism, Necessitating Personalized Dose Adjustments</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-setup-for-hp-envy-5660-drivers-download-and-install-effortlessly/"><u>Seamless Setup for HP Envy 5660 Drivers - Download & Install Effortlessly</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-ultimate-metaverse-gear-showdown-top-8-compared-for-2024/"><u>The Ultimate Metaverse Gear Showdown Top 8 Compared for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/zero-zoom-full-scroll-mouse-rehabilitation-guide/"><u>Zero Zoom, Full Scroll: Mouse Rehabilitation Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-subtlety-in-sound-fading-out-effectively-in-logic-pro/"><u>[New] In 2024, Subtlety In Sound Fading Out Effectively in Logic Pro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-guide-to-professional-livestreamers-vmix-or-wirecast/"><u>[New] The Ultimate Guide to Professional Livestreamers VMix or Wirecast?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-10-recording-tips-to-record-audio-in-high-quality-for-2024/"><u>[Updated] 10 Recording Tips to Record Audio in High Quality for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-strategies-for-bulk-tiktok-video-acquisition/"><u>[Updated] 2024 Approved Strategies for Bulk TikTok Video Acquisition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-strategies-for-enhancing-instagram-post-performance/"><u>[Updated] 2024 Approved Strategies for Enhancing Instagram Post Performance</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-gopro-hero5-captured-life-review-for-2024/"><u>[Updated] GoPro Hero5 Captured Life Review for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-deciphering-the-language-of-haptic-interaction/"><u>[Updated] In 2024, Deciphering the Language of Haptic Interaction</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-sketch-up-your-ideas-an-essential-guide-to-the-top-8-drawing-tools-on-ios-for-2024/"><u>[Updated] Sketch Up Your Ideas An Essential Guide to the Top 8 Drawing Tools on iOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-pages-for-stylish-shiny-3d-type-creations-for-2024/"><u>[Updated] Top Pages for Stylish, Shiny 3D Type Creations for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-affordable-skybanking-for-heavy-data-hoarding/"><u>2024 Approved Affordable SkyBanking for Heavy Data Hoarding</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-ultimate-guide-to-saving-memories-as-videos-on-iphone/"><u>2024 Approved Ultimate Guide to Saving Memories as Videos on iPhone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-logitech-audio-drivers-here-supported-for-windows-10-7-and-8-systems/"><u>Get Your Logitech Audio Drivers Here – Supported for Windows 10, 7 and 8 Systems</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-x50i-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Honor X50i support - Turn Off Screen Lock.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mp4-files-on-moto-g24-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How do you play MP4 files on Moto G24?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Oppo A78 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How to Unlock Verizon Apple iPhone XS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/securing-brand-deals-with-youtube-personalities/"><u>Securing Brand Deals with YouTube Personalities</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tools-and-gear-for-crafting-vlogs-for-2024/"><u>Tools & Gear for Crafting Vlogs for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-brilliance-of-android-with-a-comprehensive-google-pixel-3-review/"><u>Unveiling the Brilliance of Android with a Comprehensive Google Pixel 3 Review</u></a></li>
 </ul></div>
 

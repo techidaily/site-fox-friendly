@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Optical Opus  The Elite List of 8K Cameras\""
-date: 2024-10-13T02:14:21.780Z
-updated: 2024-10-19T04:47:09.973Z
+date: 2024-10-21T23:06:45.372Z
+updated: 2024-10-24T22:36:09.202Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,13 @@ In case you are looking for a camera, you can use for broadcasting the speed at 
 
 Even though 8K cameras have been on the market for the larger part of this decade, there are only a handful of models to choose from in 2024\. Furthermore, most of the 8K camera models are too expensive, as it is still much more affordable to rent them than to purchase them. Here’s what some of the most prestigious camera manufacturers have to offer when it comes to 8K cameras.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Canon
 
 The rumors that Canon is working on its first 8K camera surfaced in early 2019, but as the year’s end approaches it is still unclear when and if the manufacturer will present its first 8K camera to the world. The Canon’s first 8K full-frame camera should have **a CMOS sensor** that resembles the Super 35mm sensor, although the exact specifications are still not available to the public.
@@ -84,10 +91,10 @@ At the moment the [Nikon D850](https://www.nikonusa.com/en/nikon-products/produc
 ![Nikon D850 8K Timelapse Camera ](https://images.wondershare.com/filmora/article-images/nikon-d850-8k-time-lapse-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: Nikon
@@ -95,6 +102,13 @@ Image resource: Nikon
 This Nikon’s camera has also 7fps continuous shooting mode as well as the capability to record 4K UHD videos at 30, 25 and 24 fps. Nikon D850 has an FX CMOS sensor that can capture images that have 8256 x 5504 pixels and the ISO sensitivity that ranges from ISO 64 to ISO 25,600.
 
 The camera is compatible with G, E, and D AF Nikkor lenses as well as DX and AI-P lenses, which provides you with enough versatility to shoot virtually any scene you want. Whether or not Nikon is going to add 8K cameras to their assortment of products is not yet clear, and it may be a while until one of the largest camera manufacturers in the industry releases its first 8K camera.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Sharp
 
@@ -105,6 +119,13 @@ A few years ago, Sharp introduced 8C-B60A, the world’s first 8K camcorder and 
 8C-B60A can record **8K 10-bit videos at 60fps**, although you can set the frame rate to 50, 30 or 24fps. The camcorder is also equipped with a **2TB SSD pack** that can store up to **40 minutes of 8K footage** and it offers the possibility to use the SDHC card for proxy recording. 8C-B60A utilizes the **Grass Valley HQX Codec** to compress the raw video files at a **6 Gbps compression rate**.
 
 It features two **AUDIO IN XLR type 3 pins** and one **MIC IN XLR type 5 pin**. The camcorder doesn’t have batteries and it is powered through a **130W 13V DC output AC/DC adapter XLR 4-pin**. The Sharp’s 8C-B60A 8K camcorder is undoubtedly one of the best 8K cameras you can buy in 2024, despite the hefty price tag.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Sony
 
@@ -125,10 +146,10 @@ Ikegami is a well-known manufacturer of professional broadcast cameras, so it co
 ![ikegami 8K Super Hi-Vision Camera System ](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: ikegami
@@ -143,13 +164,6 @@ The list of TV shows and movies shot on RED cameras is seemingly endless and it 
 
 ![Red DSMC2 BRAIN](https://images.wondershare.com/filmora/article-images/red-dsmc2-brain-monstro-8k-w.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: red
 
 Furthermore, each of the Red’s 8K cameras can record 8K videos at **60fps** while they also offer the possibility to capture **7K, 6K, 5K or 4K** videos at different frame rates. In addition, these modular cameras are equipped with the **Apple ProRes codecs** that ensure high image quality throughout the video recording and editing processes.
@@ -157,13 +171,6 @@ Furthermore, each of the Red’s 8K cameras can record 8K videos at **60fps** wh
 The body of an 8K Red camera can cost between **$24,000 and $50,000** which makes these cameras available only to professional film and TV productions. It is also worth noting that the footage captured with any of the 8K RED camera models can be edited in only a handful of [professional video editing software](https://tools.techidaily.com/wondershare/filmora/download/) products.
 
 Still don't know to choose which? Whatch this!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What Gear Do Creators Actually Use | Vidcon 2023 | Sony vs Canon
 
@@ -174,13 +181,6 @@ Still don't know to choose which? Whatch this!
 In addition, Canon and Nikon only offer 50 MP cameras that can capture still images that have the same amount of pixels as 8K videos, but there are no indications that these manufacturers are going to release new models that can record 8K videos. Which 8K camera are you planning to get in 2024? Leave a comment and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -207,22 +207,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-changing-ringtones-on-an-iphone-a-user-friendly-approach/"><u>[New] In 2024, Changing Ringtones on an iPhone A User-Friendly Approach</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-foremost-choices-customizable-mobile-alerts/"><u>[New] In 2024, Foremost Choices Customizable Mobile Alerts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-tips-to-develop-captivating-vlogs-a-scriptwriting-approach-for-2024/"><u>[New] Tips to Develop Captivating Vlogs A Scriptwriting Approach for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-explore-the-potential-of-photos-through-radial-distortion-techniques-ps-for-2024/"><u>[Updated] Explore the Potential of Photos Through Radial Distortion Techniques PS for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-charting-success-top-online-video-channels/"><u>[Updated] In 2024, Charting Success Top Online Video Channels</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-ultimate-guide-to-turning-youtube-viewers-into-brand-partners/"><u>[Updated] In 2024, The Ultimate Guide to Turning Youtube Viewers Into Brand Partners</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-photoshops-powerful-tool-image-curving-techniques-for-2024/"><u>[Updated] Photoshop's Powerful Tool Image Curving Techniques for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-syncing-visual-elements-across-platforms-for-2024/"><u>[Updated] Syncing Visual Elements Across Platforms for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-excellence-in-hd-conversion-elevate-your-views/"><u>2024 Approved Excellence in HD Conversion Elevate Your Views</u></a></li>
-<li><a href="https://facebook.techidaily.com/finding-out-how-old-my-virtual-persona-really-is/"><u>Finding Out: How Old My Virtual Persona Really Is</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-best-15-online-photo-editors-2023free/"><u>In 2024, Best 15 Online Photo Editors 2023 [Free]</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-itel-p40-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Itel P40</u></a></li>
-<li><a href="https://blog-min.techidaily.com/june-3rd-edition-unlock-insights-from-the-new-york-times-with-expert-tips-and-answers-358/"><u>June 3Rd Edition: Unlock Insights From the New York Times with Expert Tips & Answers #358</u></a></li>
-<li><a href="https://video-capture.techidaily.com/recording-techniques-for-stellar-voice-over-audio/"><u>Recording Techniques for Stellar Voice-Over Audio</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/rise-in-search-results-mastering-podcast-seo/"><u>Rise in Search Results Mastering Podcast SEO</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-mighty-flyers-best-drones-for-maximum-load/"><u>The Mighty Flyers Best Drones for Maximum Load</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-guide-to-chrome-os-snapshotting/"><u>The Ultimate Guide to Chrome OS Snapshotting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-superior-asmr-microphone-guide-you-must-read/"><u>[New] 2024 Approved Superior ASMR Microphone Guide You Must Read</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-picsart-edge-perfecting-face-movements-with-blur-techniques-for-2024/"><u>[New] Picsart Edge Perfecting Face Movements with Blur Techniques for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unmatched-clarity-the-ultimate-mic-guide/"><u>[Updated] 2024 Approved Unmatched Clarity The Ultimate Mic Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-undead-humor-engine-for-2024/"><u>[Updated] Undead Humor Engine for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-access-immediate-professional-results-free-plus-purchased-luts-for-canon/"><u>2024 Approved Access Immediate Professional Results - FREE + Purchased LUTs for Canon</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-ancient-aesthetics-public-domain-pieces/"><u>2024 Approved Ancient Aesthetics Public Domain Pieces</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-best-live-video-streaming-software/"><u>2024 Approved Best Live Video Streaming Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-enriched-visuals-and-melodies-the-art-of-integrating-filters-and-music-windows-photos/"><u>2024 Approved Enriched Visuals & Melodies The Art of Integrating Filters & Music (Windows Photos)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-master-photo-editing-seamless-integration-of-timestamps/"><u>2024 Approved Master Photo Editing Seamless Integration of Timestamps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-mastering-virtual-worlds-choosing-metavisors-wisely/"><u>2024 Approved Mastering Virtual Worlds Choosing Metavisors Wisely</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-quick-pace-facebook-videos-prime-extensions-tips-and-tricks-list/"><u>2024 Approved Quick-Pace Facebook Videos Prime Extensions, Tips & Tricks List</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-ultimate-hue-harmonizer-software/"><u>2024 Approved Ultimate Hue Harmonizer Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/accelerate-your-editing-with-these-10-pro-plugins-for-2024/"><u>Accelerate Your Editing with These 10 Pro Plugins for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/essential-rules-for-freelancers-leveraging-chatgpt/"><u>Essential Rules for Freelancers Leveraging ChatGPT</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/fixing-issues-intel-graphics-driver-and-support-software-malfunction-on-desktops/"><u>Fixing Issues: Intel Graphics Driver & Support Software Malfunction on Desktops</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-audiovisual-archive-system-and-voice-recordings/"><u>In 2024, Audiovisual Archive System & Voice Recordings</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-moto-g-stylus-5g-2023-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Moto G Stylus 5G (2023)? Try These Fixes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-to-updating-your-intel-iris-plus-graphics-630640-series/"><u>Step-by-Step Guide to Updating Your Intel Iris Plus Graphics - 630/640 Series</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-cheapest-yet-effective-vuebell-video-doorbells-in-depth-review-and-comparison/"><u>The Cheapest Yet Effective VueBell Video Doorbells – In-Depth Review and Comparison</u></a></li>
 </ul></div>
 

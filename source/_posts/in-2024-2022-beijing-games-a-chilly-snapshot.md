@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, 2022 Beijing Games  A Chilly Snapshot\""
-date: 2024-10-14T01:57:26.209Z
-updated: 2024-10-18T19:22:36.007Z
+date: 2024-10-21T00:30:45.143Z
+updated: 2024-10-25T00:10:45.383Z
 tags: 
   - screen-recording
   - ai video
@@ -29,13 +29,6 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
@@ -50,6 +43,13 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
@@ -58,14 +58,14 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
-She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
@@ -74,20 +74,13 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
 
@@ -95,13 +88,26 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
@@ -127,19 +133,25 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
@@ -177,17 +189,24 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-uncover-youtubes-preview-disabling-secret/"><u>[New] 2024 Approved Uncover YouTube's Preview Disabling Secret</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-demystifying-encoding-a-beginners-approach-to-av1-for-2024/"><u>[New] Demystifying Encoding A Beginner's Approach to AV1 for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-insiders-guide-to-flawless-skype-call-recordings/"><u>[New] In 2024, The Insider's Guide to Flawless Skype Call Recordings</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-streamline-your-workflow-with-the-top-5-pc-screen-grabbers/"><u>[Updated] 2024 Approved Streamline Your Workflow with the Top 5 Pc Screen Grabbers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-yuneecs-aerodrone-typhoon-h-evaluation-report/"><u>[Updated] Yuneec’s AeroDrone Typhoon H Evaluation Report</u></a></li>
-<li><a href="https://games-able.techidaily.com/combatting-robloxs-error-403-your-ultimate-fix-manual-for-windows-pcs/"><u>Combatting Roblox's Error 403: Your Ultimate Fix Manual for Windows PCs</u></a></li>
-<li><a href="https://win-forum.techidaily.com/complete-tutorial-on-adding-strikethrough-formatting-in-excel-spreadsheets/"><u>Complete Tutorial on Adding Strikethrough Formatting in Excel Spreadsheets</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-craft-your-first-short-film-with-windows-8-movie-maker/"><u>In 2024, Craft Your First Short Film with Windows 8 Movie Maker</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-apple-iphone-6s-data-to-iphone-12-a-complete-guide-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Apple iPhone 6s Data to iPhone 12 A Complete Guide | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rt-of-playback-anarchy-youtube-playlists-unordered-again/"><u>The Art of Playback Anarchy YouTube Playlists Unordered Again</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unleashing-visual-treasures-a-pexels-search-guide/"><u>Unleashing Visual Treasures A Pexels Search Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/king-wealth-with-youtube-shorts-ventures-for-2024/"><u>Unlocking Wealth with YouTube Shorts Ventures for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-offline-oasis-unveiling-the-top-10-ipad-and-iphone-game-hits-for-2024/"><u>[New] Offline Oasis Unveiling the Top 10 iPad & iPhone Game Hits for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-adobe-lightroom-essentials-review/"><u>2024 Approved Adobe Lightroom Essentials Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-airborne-awe-the-ultimate-list-of-staying-power-drones/"><u>2024 Approved Airborne Awe The Ultimate List of Staying Power Drones</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-comprehensive-tutorial-on-gdocs-voice-to-text-feature/"><u>2024 Approved Comprehensive Tutorial on GDoc's Voice-to-Text Feature</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-intellects-ultimate-guide-to-premium-gk-quiz-sites/"><u>2024 Approved Intellect's Ultimate Guide to Premium GK Quiz Sites</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-photobooth-video-glitch-understanding-the-halt/"><u>2024 Approved Photobooth Video Glitch - Understanding the Halt</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-shooting-spectacle-top-9-strategies-for-panoramic-videos/"><u>2024 Approved Shooting Spectacle Top 9 Strategies for Panoramic Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-srt-simplified-a-practical-manual-for-xmlssattml-transformation/"><u>2024 Approved SRT Simplified A Practical Manual for XML/SSA/TTML Transformation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-tech-triumphs-cutting-edge-vr-devices-reviewed/"><u>2024 Approved Tech Triumphs Cutting-Edge VR Devices Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-techniques-to-combat-unsteady-shot-dynamics/"><u>2024 Approved Techniques to Combat Unsteady Shot Dynamics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-text-animations-unleashed-try-these-14-dynamic-showcases/"><u>2024 Approved Text Animations Unleashed Try These 14 Dynamic Showcases</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/eliminating-android-adware-quickly-a-three-step-removal-guide/"><u>Eliminating Android Adware Quickly: A Three-Step Removal Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-immortalize-memories-prime-online-tools-for-photo-framing/"><u>In 2024, Immortalize Memories Prime Online Tools for Photo Framing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-the-spectrum-in-hands-on-recognition-technology/"><u>In 2024, Navigating the Spectrum in Hands-On Recognition Technology</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/introducing-intels-latest-innovation-nine-14th-gen-cpus-sans-e-cores-unveiling-the-exclusive-i9-14901ke-for-embedded-systems/"><u>Introducing Intel's Latest Innovation: Nine 14Th Gen CPUs Sans E-Cores – Unveiling the Exclusive I9-14901KE for Embedded Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/petsafe-six-meal-feeder-the-perfect-choice-for-routine-animal-nutrition/"><u>PetSafe Six-Meal Feeder: The Perfect Choice for Routine Animal Nutrition</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-comprehensive-stepwise-approach-to-securing-and-installing-epson-xp-400-printers-official-driver/"><u>The Comprehensive Stepwise Approach To Securing and Installing Epson XP 400 Printer's Official Driver</u></a></li>
 </ul></div>
 

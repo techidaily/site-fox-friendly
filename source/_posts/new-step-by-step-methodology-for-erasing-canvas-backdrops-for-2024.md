@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Methodology for Erasing Canvas Backdrops for 2024\""
-date: 2024-10-13T16:16:49.376Z
-updated: 2024-10-19T01:08:17.316Z
+date: 2024-10-20T23:35:06.970Z
+updated: 2024-10-25T00:41:13.222Z
 tags: 
   - screen-recording
   - ai video
@@ -37,13 +37,6 @@ As aforementioned, **Figma** does not offer a **Background Remover** tool but co
 
 Since you want to remove the image's background, there is no better plugin than [Wondershare PixCut](https://pixcut.wondershare.com/), a free tool that helps you erase your picture's BG instantly. With this plugin, you can edit up to files per day, and that too in high-quality resolution.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why Use The PixCut Tool?
 
 Here's how the PixCut tool stands out from the rest of the image editing tools available in the digital market:
@@ -72,6 +65,13 @@ Step1 First, open a browser, visit the [Figma website](https://www.figma.com), a
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
 
 Step2 Next, search for **"**[**PixCut Background Remover**](https://www.figma.com/community/plugin/990188175789012011)**"** using the search option and select it from the result. Click **"Run,"** choose the **"Select App key"** option from the drop-down menu, and you will be asked for your **"Appkey."**
@@ -84,16 +84,16 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
@@ -124,24 +124,18 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
@@ -174,10 +168,10 @@ Another alternative is to use any tool that **removes the image background onlin
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
@@ -185,10 +179,10 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -223,20 +217,20 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-unlocking-the-potential-of-ez-grabber/"><u>[New] 2024 Approved Unlocking the Potential of EZ Grabber</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-converting-memories-into-videos-the-power-of-pixiz-techniques-for-2024/"><u>[New] Converting Memories Into Videos The Power of Pixiz Techniques for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-elevate-your-imagery-a-compreenasional-on-lightroom-hdr-for-2024/"><u>[New] Elevate Your Imagery A Compreenasional on Lightroom HDR for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-fiscally-friendly-action-footage-gear/"><u>[New] In 2024, Fiscally-Friendly Action Footage Gear</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/trategic-hash-tags-to-launch-you-into-six-figures-for-2024/"><u>[New] Strategic Hash Tags to Launch You Into Six Figures for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-proven-strategies-against-photos-app-issues-on-windows-11/"><u>[Updated] 2024 Approved Proven Strategies Against Photos App Issues on Windows 11</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-speedy-sound-solutions-for-smartphone-users-for-2024/"><u>[Updated] Speedy Sound Solutions for Smartphone Users for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-streamline-your-sound-key-audio-interfaces-for-podcasters/"><u>[Updated] Streamline Your Sound Key Audio Interfaces for Podcasters</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-seamlessly-capture-and-store-your-favorite-episodes-on-iphone/"><u>2024 Approved Seamlessly Capture and Store Your Favorite Episodes on iPhone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-essentials-of-writing-attractive-vlog-narratives/"><u>2024 Approved The Essentials of Writing Attractive Vlog Narratives</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-who-wins-samsung-or-lgs-ultra-wide-cams/"><u>2024 Approved Who Wins? Samsung or LG's Ultra-Wide Cams</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/apple-m3-macbook-air-unveiled-the-revolutionary-ai-powered-laptop-is-here-insights-and-reviews/"><u>Apple M3 MacBook Air Unveiled: The Revolutionary AI-Powered Laptop Is Here! - Insights & Reviews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579992783-new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon!</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/the-ultimate-guide-to-iphone-file-sanitization-software-tools-that-ensure-total-secrecy/"><u>The Ultimate Guide to iPhone File Sanitization: Software Tools That Ensure Total Secrecy</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/voice-assignment-verification/"><u>Voice Assignment Verification</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-comprehensive-analysis-updated-s3700-bd-player/"><u>2024 Approved Comprehensive Analysis Updated S3700 BD Player</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-iphoneandroids-top-sticker-adding-apps-the-essential-10-collection/"><u>2024 Approved IPhone/Android's Top Sticker-Adding Apps The Essential 10 Collection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-streamlining-your-editing-workflow-with-final-cut-pro-tips/"><u>2024 Approved Streamlining Your Editing Workflow with Final Cut Pro Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-battle-of-accessible-viewerships-google-vs-samsung-headsets/"><u>2024 Approved The Battle of Accessible Viewerships Google Vs. Samsung Headsets</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/a-detailed-exposition-on-harnessing-power-of-adobes-cloud-data-vaults-for-2024/"><u>A Detailed Exposition on Harnessing Power of Adobe's Cloud Data Vaults for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/advanced-photography-iphones-leading-object-cutting-tools-revealed-for-2024/"><u>Advanced Photography IPhone's Leading Object Cutting Tools Revealed for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-guide-on-unlocking-iphone-6-with-a-broken-screen-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone 6 with a Broken Screen?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/download-without-risks-the-pathway-to-secure-free-vlc-on-macos/"><u>Download without Risks The Pathway to Secure, Free VLC on macOS</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-vivo-y100-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-id-from-apple-iphone-15-without-password-by-drfone-ios/"><u>In 2024, How to Remove Apple ID from Apple iPhone 15 without Password?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/prestigious-vr-movie-collection-to-watch-for-2024/"><u>Prestigious VR Movie Collection to Watch for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-top-3-benefits-of-equipping-smartphones-with-dual-usb-c-connectors/"><u>The Top 3 Benefits of Equipping Smartphones with Dual USB-C Connectors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-profiting-from-your-blog-via-buyselladscom-advertising-solutions/"><u>The Ultimate Guide to Profiting From Your Blog via BuySellAds.com Advertising Solutions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/iuodkeodvoocveodiuodqplusocsplusodsplusodloodpeodvoocvpluswiqeeuqoazguoageebuoajipluswjsos4jes9vpluseuqdrpq5jnllvos6rjg4fjgqpjgrnjgrppn7pmpb3pjllpn7pjg4bjgq33/"><u>パーソナルコンピュータ利用時、相手声不使用:高画質ディスコ音楽録音テクニック</u></a></li>
 </ul></div>
 

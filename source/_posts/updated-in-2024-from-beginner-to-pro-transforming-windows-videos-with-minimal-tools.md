@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Beginner to Pro  Transforming Windows Videos with Minimal Tools\""
-date: 2024-10-15T04:08:55.047Z
-updated: 2024-10-19T07:21:27.553Z
+date: 2024-10-20T17:12:47.662Z
+updated: 2024-10-24T19:48:46.144Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to trim video in Windows 10 with VLC
 
 Well, as we promised you in the beginning, it's time for the bonus tip! You have understood how to trim videos in Windows 10 Photos, let's explore VLC's magic. When Windows 10 Photos allows you basic level easy trimming for advanced features you can try [VLC](https://www.videolan.org/). For operating systems other than Windows, such as Fedora, Ubuntu, or Mac you won't be able to use Windows 10 Photos, so VLC is a good option for cross-platform video editing.
@@ -69,10 +76,10 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -82,16 +89,10 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -100,20 +101,13 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,22 +135,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-masterful-filmmaking-moves-with-kinemaster/"><u>[New] 2024 Approved Masterful Filmmaking Moves with Kinemaster</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-navigating-gif-storage-and-use-in-the-digital-age-iphone/"><u>[New] 2024 Approved Navigating GIF Storage and Use in the Digital Age (iPhone)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-avoiding-common-mistakes-in-macos-mixer-streaming-for-2024/"><u>[New] Avoiding Common Mistakes in MacOS Mixer Streaming for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-bringing-history-forward-digitizing-old-photographs-into-video/"><u>[New] In 2024, Bringing History Forward Digitizing Old Photographs Into Video</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-chucklechips-studio-laughlens-lab/"><u>[New] In 2024, ChuckleChips Studio LaughLens Lab</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-incorporating-time-features-into-youtube-video-formats/"><u>[New] Incorporating Time Features Into YouTube Video Formats</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-capture-attention-yt-imagery-and-its-dimension-magic/"><u>[Updated] 2024 Approved Capture Attention YT Imagery and Its Dimension Magic</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-choreographed-ice-winter-olympics-highlights-for-2024/"><u>[Updated] Choreographed Ice Winter Olympics Highlights for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-is-there-money-behind-the-curtain-of-vlog-critiques/"><u>[Updated] Is There Money Behind the Curtain of Vlog Critiques?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-enhancing-focus-with-bigger-youtube-videos/"><u>2024 Approved Enhancing Focus with Bigger YouTube Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/a-comprehensive-look-at-ig-reels-vs-stories/"><u>A Comprehensive Look at IG Reels Vs Stories</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/achieve-video-excellence-without-the-cost-of-fcp-for-2024/"><u>Achieve Video Excellence Without the Cost of FCP for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/easier-methods-to-shrink-video-files-using-avidemux-a-step-by-step-guide/"><u>Easier Methods to Shrink Video Files Using Avidemux: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-guide-to-comparing-4k-youtube-converter-tools/"><u>Essential Guide to Comparing 4K YouTube Converter Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-top-mac-speech-to-text-apps-youre-not-aware-of/"><u>In 2024, Top Mac Speech-to-Text Apps You're Not Aware Of</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/no-more-lines-crossed-exit-chatgpts-reach/"><u>No More Lines Crossed? Exit ChatGPT's Reach</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-mastering-the-art-of-splitting-your-screen-on-macos/"><u>Step-by-Step Guide: Mastering the Art of Splitting Your Screen on macOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-effortless-methods-to-swiftly-erase-signatures-for-2024/"><u>[New] Effortless Methods to Swiftly Erase Signatures for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-from-imagination-to-shares-mastering-metaverse-memes-for-2024/"><u>[New] From Imagination to Shares Mastering Metaverse Memes for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-framed-to-impress-your-guide-to-tweets-in-high-definition/"><u>[New] In 2024, Framed to Impress Your Guide to Tweets in High Definition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-personalize-your-prayers-with-scripture-inspired-tunes-guide-for-2024/"><u>[New] Personalize Your Prayers with Scripture-Inspired Tunes Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-speech-to-text-solutions-for-engaging-ppts-for-2024/"><u>[New] Speech-to-Text Solutions for Engaging PPTs for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-cutting-edge-leading-10-4k-dslr-shoulder-rigs/"><u>[Updated] 2024 Approved Cutting Edge Leading 10 4K DSLR Shoulder Rigs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-insiders-method-for-rl-recording/"><u>[Updated] 2024 Approved The Insider's Method for RL Recording</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-creating-auditory-immersion-with-canvas-soundscape-tools/"><u>[Updated] Creating Auditory Immersion with Canva's Soundscape Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-proactive-techniques-for-seamless-zoom-usage-on-a-chromebook-for-2024/"><u>[Updated] Proactive Techniques for Seamless Zoom Usage on a Chromebook for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-complete-powerdirector-2024-guide/"><u>[Updated] The Complete PowerDirector 2024 Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transformative-typography-in-after-effects/"><u>[Updated] Transformative Typography in After Effects</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/1728465065791-pc/"><u>「デスクトップファイル不在 - PCの再起動後失われる」</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-5-streamlined-online-convertors-for-gifs-to-video-for-2024/"><u>Best 5 Streamlined Online Convertors for GIFs to Video for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/emotional-undercurrents-in-background-film-soundtracks-for-2024/"><u>Emotional Undercurrents in Background Film Soundtracks for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-itel-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Itel FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionize-your-post-processing-with-advanced-3d-lut-techniques/"><u>In 2024, Revolutionize Your Post-Processing with Advanced 3D LUT Techniques</u></a></li>
+<li><a href="https://apple-account.techidaily.com/unfreeze-and-smooth-your-movies-how-to-mend-faulty-films-using-these-handy-home-based-techniques-with-subtitles/"><u>Unfreeze and Smooth Your Movies: How To Mend Faulty Films Using These Handy Home-Based Techniques (With Subtitles)</u></a></li>
 </ul></div>
 

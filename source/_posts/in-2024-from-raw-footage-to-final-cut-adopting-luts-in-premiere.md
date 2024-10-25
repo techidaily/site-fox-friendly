@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Raw Footage to Final Cut  Adopting LUTs in Premiere\""
-date: 2024-09-09T12:32:00.891Z
-updated: 2024-09-10T12:32:00.891Z
+date: 2024-10-18T20:11:29.947Z
+updated: 2024-10-24T18:42:16.700Z
 tags: 
   - screen-recording
   - ai video
@@ -16,30 +16,12 @@ keywords: "Premiere LUT Basics,LUTs in Editing,Transform Footage,Raw to Color Gr
 thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282754802f441bb66f0c3a3719.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## From Raw Footage to Final Cut: Adopting LUTs in Premiere
 
 Whether you're working on a personal project or a business campaign, the procedure is very much the same:
 
 you grab the camera, follow your idea, and acquire your pictures, then transfer the movie to your computer and start editing. In this protracted creative process, color grading is typically the final and possibly at least one of the most crucial processes. We all hoped there's a way to speed up this procedure, and fortunately there is! Let's start!
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. How to install LUTs in Premiere Pro
 
 LUTs can be applied in Premiere Pro in two different ways. Utilizing LUTs through the Creative tab of the Lumetri Color Panel is the simplest method. However, it does not make the LUTs a permanent part of the collection.
@@ -51,17 +33,12 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. How to add LUTs to your footage
 
 Step1Choose the Color Workspace at the top after your clip is in the timeline and prepared for grading.
@@ -73,17 +50,12 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Why use LUTs in your project?
 
 When there is no time limit or restriction on when to submit the result file, it is fun to edit your own clips because you have complete creative control over the process. Because of this, Color Grading is a rather unimportant aspect to worry about. After making a few adjustments to the Exposure and Contrast settings, you should be good to go.
@@ -93,6 +65,13 @@ Your finished product, when paired with the appropriate color scheme, has the po
 Because of this, some designers employ look-up tables (LUTs) that they have created themselves or something that is currently available on the internet and is ready to install and use.
 
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Can you adjust the strength of the LUT?
 
@@ -115,11 +94,12 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Where can you find LUTs?
 
 You might be asking, "Now that I've learned more about LUTs (Lookup Tables), where can I get even more LUTs?" since you've gained some new knowledge. In the end, being able to use the built-in LUTs in Luminar is a nice feature, but these are merely samples of the thousands upon thousands of LUTs that are accessible, both for free and for purchase.
@@ -133,12 +113,6 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Filmic Tone LUTs
 * Urban Dark Creative LUTs
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Additionally, check to see if you have inadvertently downloaded any viruses. There is a strong temptation to simply conduct a search for cinematic LUTs on Google, then download all free files that we come across.
@@ -173,4 +147,26 @@ Sometimes, some of them are out there to steal your money rather than provide th
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-professional-tips-ensuring-correct-date-on-pictures/"><u>[New] 2024 Approved Professional Tips Ensuring Correct Date on Pictures</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-become-a-text-meme-wizard-harnessing-genrator-power/"><u>[New] Become a Text Meme Wizard Harnessing Gen'rator Power</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-content-that-captivates-easy-to-try-videos/"><u>[New] Crafting Content That Captivates Easy-to-Try Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-comprehensive-step-by-step-on-zooms-video-broadcasting/"><u>[New] In 2024, Comprehensive Step-by-Step on Zoom's Video Broadcasting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sw320-unveiled-a-deep-dive-into-the-ultimate-4k-screen/"><u>[New] Sw320 Unveiled A Deep Dive Into The Ultimate 4K Screen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-advanced-phototext-techniques-for-stunning-3d-effects/"><u>[Updated] Advanced PhotoText Techniques for Stunning 3D Effects</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-choosing-pro-stream-vmix-vs-wirecast-battle/"><u>[Updated] Choosing Pro Stream VMix Vs. Wirecast Battle</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-legal-music-a-producers-manual/"><u>[Updated] In 2024, Finding Legal Music A Producer's Manual</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfect-your-video-edits-step-by-step-on-youtube-cutting-for-2024/"><u>[Updated] Perfect Your Video Edits Step-by-Step on YouTube Cutting for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-tips-to-add-music-to-whatsapp-status/"><u>[Updated] Tips to Add Music to WhatsApp Status</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-sony-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Sony</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/harness-the-full-potential-of-your-videos-with-simple-cuts-on-windows/"><u>Harness the Full Potential of Your Videos with Simple Cuts on Windows</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/illuminating-seamless-transitions-in-song-production-crossfade/"><u>Illuminating Seamless Transitions in Song Production (Crossfade)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/laughoutloud-maker-get-funny-faces-on-the-web/"><u>LaughOutLoud Maker Get Funny Faces on the Web</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/leading-the-charge-amd-unveils-80-motherboard-chipset-lineup-tailored-for-ryzen-9000-cpu-series-introducing-new-era-beyond-intel/"><u>Leading the Charge: AMD Unveils 80지팀 Motherboard Chipset Lineup Tailored for Ryzen 9000 CPU Series, Introducing New Era Beyond Intel</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sh-creativity-pro-guide-for-youtube-studio-editing/"><u>Unleash Creativity Pro Guide for YouTube Studio Editing</u></a></li>
+</ul></div>
 

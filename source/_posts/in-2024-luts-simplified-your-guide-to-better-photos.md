@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, LUTs Simplified  Your Guide to Better Photos\""
-date: 2024-10-11T17:57:06.362Z
-updated: 2024-10-19T05:09:13.566Z
+date: 2024-10-24T00:05:29.794Z
+updated: 2024-10-24T23:45:06.357Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -63,13 +70,6 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -77,13 +77,6 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -99,6 +92,13 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -117,10 +117,10 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -134,10 +134,10 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -170,24 +170,14 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-lifting-large-loads-drone-power-rankings/"><u>[New] Lifting Large Loads - Drone Power Rankings</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-exclusive-selection-of-the-top-4k-capture-apps/"><u>[Updated] 2024 Approved Exclusive Selection of the Top 4K Capture Apps</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-action-cam-buyers-guide-affordable-high-definition/"><u>[Updated] Action Cam Buyer’s Guide - Affordable, High Definition</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-decisional-balance/"><u>[Updated] Decisional Balance</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-zooming-up-your-video-game-with-custom-filters/"><u>[Updated] In 2024, Zooming Up Your Video Game with Custom Filters</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-lg-360-camera-mastered-a-full-review/"><u>[Updated] LG 360 Camera Mastered A Full Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-masterful-14-textual-movement-illustrations/"><u>[Updated] Masterful 14 Textual Movement Illustrations</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-stream-the-best-games-list-9/"><u>[Updated] Stream the Best Games List #9</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-ultimate-mp3-clips-top-10-online-transformers/"><u>[Updated] Ultimate MP3 Clips Top 10 Online Transformers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-masters-tutorial-total-deep-dive-into-xmedia-suite-workshop/"><u>2024 Approved Master's Tutorial Total Deep Dive Into XMedia Suite Workshop</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/achieving-steady-motion-video-and-photography-insights-for-2024/"><u>Achieving Steady Motion Video & Photography Insights for 2024</u></a></li>
-<li><a href="https://win-online.techidaily.com/come-fare-un-backup-totale-su-windows-section-1-the-theme-question/"><u>Come Fare Un Backup Totale Su Windows # Section 1: The Theme Question</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-combat-high-latency-issues-during-multiplayer-sessions-of-left-4-dead-origins/"><u>How to Combat High Latency Issues During Multiplayer Sessions of Left 4 Dead Origins</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-envelop-your-senses-in-virtual-realms-the-best-vr-playback-systems-for-pc/"><u>In 2024, Envelop Your Senses in Virtual Realms The Best VR Playback Systems for PC</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-from-vlogs-to-virality-jake-paul-the-online-phenomenon/"><u>In 2024, From Vlogs to Virality Jake Paul, the Online Phenomenon</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/mastering-the-art-of-design-selecting-ideal-dimensions-for-yt-branding-for-2024/"><u>Mastering the Art of Design Selecting Ideal Dimensions for YT Branding for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-eus-approach-to-regulating-ai-potential-effects-on-digital-assistants-such-as-chatgpt/"><u>The EU's Approach to Regulating AI: Potential Effects on Digital Assistants Such as ChatGPT</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unboxing-flight-comprehensive-guide-to-dji-phantom-4-for-2024/"><u>Unboxing Flight Comprehensive Guide to DJI Phantom 4 for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/your-ultimate-playbook-for-standout-reddit-submissions/"><u>Your Ultimate Playbook for Standout Reddit Submissions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-craftsmanship-hub-top-after-effects-template-deals-for-2024/"><u>[New] Craftsmanship Hub Top After Effects Template Deals for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-essential-guide-to-dslr-and-live-streaming-on-computers/"><u>[New] In 2024, Essential Guide to DSLR and Live Streaming on Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-examining-if-reviewers-get-payed/"><u>[New] In 2024, Examining if Reviewers Get Payed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-precision-in-portability-the-ultimate-list-of-35-free-android-video-compressors/"><u>[New] In 2024, Precision in Portability The Ultimate List of 35 Free Android Video Compressors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-8-online-learning-paths-for-newcomers-to-video-for-2024/"><u>[New] Top 8 Online Learning Paths for Newcomers to Video for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-mastering-the-art-of-video-conferencing-on-xbox-one/"><u>[Updated] Mastering the Art of Video Conferencing on Xbox One</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-switch-strike-force-your-top-10-game-lineup-for-2024/"><u>[Updated] Switch Strike Force Your Top 10 Game Lineup for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackling-blocked-files-on-your-system-with-powershell/"><u>Tackling Blocked Files on Your System with PowerShell</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Pigments & Perceptions  Mastering Image Colorization for 2024\""
-date: 2024-10-16T03:30:12.569Z
-updated: 2024-10-19T06:34:15.993Z
+date: 2024-10-17T19:44:28.552Z
+updated: 2024-10-24T23:51:35.031Z
 tags: 
   - screen-recording
   - ai video
@@ -69,18 +69,18 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
@@ -104,6 +104,13 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2Select the specific video portion
 
 #####
@@ -113,10 +120,10 @@ First, you need to select the specific video portion you want to change the colo
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * And I selected the end portion of the video. After that, choose the part of the video.
@@ -127,13 +134,6 @@ First, you need to select the specific video portion you want to change the colo
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You will notice that the color changes depending on your selected preset.
 
 In the Presets tab, there are different templates, including Common, 3D LUT, Vignette, and Film. While in Adjust tab, you can modify the white balance, such as color tint and color temperature, 3D LUT, Color, Light, HSL, and Vignette, etc.
@@ -143,13 +143,6 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Using the Color Panel Window**
 
@@ -164,6 +157,19 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -231,14 +237,15 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-subtitles-revolution-srt-to-sub-upgrade-for-2024/"><u>[New] Subtitles Revolution SRT to SUB Upgrade for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-accessing-the-ultimate-10-lists-of-vector-pics-sites-for-2024/"><u>[Updated] Accessing the Ultimate 10 Lists of Vector Pics Sites for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/a-beginners-guide-to-editing-digits-in-tiktoks/"><u>A Beginner’s Guide to Editing Digits in TikToks</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-compreehsive-review-of-the-ultra-hd-actioncamera/"><u>A Compreehsive Review of the Ultra-HD ActionCamera</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-epson-wf-2760-driver-software-compatible-with-windows-11-10-and-8/"><u>Free Epson WF 2760 Driver Software: Compatible with Windows 11, 10 and 8</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/how-are-podcasters-paid-for-2024/"><u>How Are Podcasters Paid for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oneplus-nord-n30-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from OnePlus Nord N30 5G to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://win-docs.techidaily.com/preventing-data-loss-steps-to-securely-protect-your-disk-during-format-in-windows-11-8-and-7/"><u>Preventing Data Loss: Steps to Securely Protect Your Disk During Format in Windows 11, 8, and 7</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/setting-the-mood-fading-to-black-for-2024/"><u>Setting the Mood Fading To Black for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-amusing-aesthetics-leading-free-onlineiosandroid-photo-editing/"><u>[New] 2024 Approved Amusing Aesthetics Leading Free Online/iOS/Android Photo Editing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-ultimate-list-10-best-phones-and-pc-for-chatting/"><u>[New] The Ultimate List 10 Best Phones & PC for Chatting</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-efficiently-capturing-professional-movies-on-your-windows-pc/"><u>[Updated] 2024 Approved Efficiently Capturing Professional Movies on Your Windows PC</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevate-your-brand-with-ai-enhanced-naming-solutions/"><u>[Updated] 2024 Approved Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/audible-annotators-top-selections-for-offline-text-conversion-for-2024/"><u>Audible Annotators Top Selections for Offline Text Conversion for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-12-affordable-and-accessible-online-video-playing-software-pctabletphone/"><u>Best 12 Affordable & Accessible Online Video Playing Software (PC/Tablet/Phone)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/conquer-iphone-audiophiles-playlist-tips/"><u>Conquer iPhone Audiophile's Playlist Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/creating-intriguing-movie-summaries/"><u>Creating Intriguing Movie Summaries</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-performance-using-advanced-cookie-technology/"><u>Enhanced Performance Using Advanced Cookie Technology</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-step-by-step-techniques-for-infusing-music-into-your-final-cut-pro-video-edits/"><u>Updated In 2024, Step-by-Step Techniques for Infusing Music Into Your Final Cut Pro Video Edits</u></a></li>
 </ul></div>
 
