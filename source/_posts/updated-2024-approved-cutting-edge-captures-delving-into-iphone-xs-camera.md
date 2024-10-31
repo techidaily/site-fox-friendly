@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cutting Edge Captures  Delving Into iPhone X's Camera\""
-date: 2024-10-23T18:27:01.524Z
-updated: 2024-10-24T17:22:00.093Z
+date: 2024-10-29T22:46:51.543Z
+updated: 2024-10-30T18:32:31.429Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
@@ -49,17 +56,10 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -80,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
@@ -94,13 +87,20 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,20 +135,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-accessories-for-travel-footage-production/"><u>[New] Accessories for Travel Footage Production</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-skys-dynamic-range-showcase-websites-ranked-1-10-for-2024/"><u>[New] Sky's Dynamic Range Showcase - Websites Ranked 1-10 for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-windowsmac-guide-to-opening-srt-audio-cues-for-2024/"><u>[New] Windows/Mac Guide to Opening SRT Audio Cues for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-essential-virtual-reality-cinema-experiences/"><u>[Updated] 2024 Approved Essential Virtual Reality Cinema Experiences</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-exclusive-reveals-on-securing-high-quality-live-cricket-broadcasting/"><u>[Updated] 2024 Approved Exclusive Reveals on Securing High-Quality Live Cricket Broadcasting</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-discovering-free-srt-excellence-our-top-8-picks/"><u>2024 Approved Discovering Free SRT Excellence Our Top 8 Picks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/excellence-in-dialogue-and-plot-hub/"><u>Excellence in Dialogue & Plot Hub</u></a></li>
-<li><a href="https://driver-download.techidaily.com/free-hp-laserjet-1018-printer-software-driver-get-it-now/"><u>Free HP LaserJet 1018 Printer Software (Driver) - Get It Now</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Vivo Y78 5G? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-mastering-aspect-ratios-for-professional-videos/"><u>In 2024, Mastering Aspect Ratios for Professional Videos</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-apple-iphone-x-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for Apple iPhone X and Android Phones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/leading-photo-editing-apps-for-iphone-and-android-guide-for-2024/"><u>Leading Photo Editing Apps for iPhone & Android Guide for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-s-best-free-video-joiner-websites-no-downloads-required/"><u>New S Best Free Video Joiner Websites No Downloads Required</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/quick-solutions-no-more-control-crashing-troubles/"><u>Quick Solutions - No More Control Crashing Troubles!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-10-must-know-tips-for-nba-stream-quality/"><u>[New] 2024 Approved 10 Must-Know Tips for NBA Stream Quality</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-professionals-guide-to-outstanding-4k-filmmaking-gear/"><u>[New] In 2024, Professionals' Guide to Outstanding 4K Filmmaking Gear</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-navigating-exit-the-guide-to-disconnecting-from-a-discord-community/"><u>[New] Navigating Exit The Guide to Disconnecting From a Discord Community</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-crafting-visual-narratives-effective-titling/"><u>[Updated] 2024 Approved Crafting Visual Narratives Effective Titling</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-adding-media-to-enhance-content-for-2024/"><u>[Updated] Adding Media to Enhance Content for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-essential-apps-for-effective-mac-sniping-for-2024/"><u>[Updated] Essential Apps for Effective Mac Sniping for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-make-youtube-video-the-ultimate-guide-for-2024/"><u>[Updated] How to Make YouTube Video The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-dissecting-the-user-experience-in-vivavideo/"><u>[Updated] In 2024, Dissecting the User Experience in VivaVideo</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-snorkel-ready-tech-the-finest-waterproof-camcorders-of-the-year/"><u>[Updated] In 2024, Snorkel-Ready Tech The Finest Waterproof Camcorders of the Year</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-next-gen-storytelling-10-sci-fi-films-transporting-you-elsewhere-for-2024/"><u>[Updated] Next Gen Storytelling 10 Sci-Fi Films Transporting You Elsewhere for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secrets-to-the-ultimate-5-free-pinterest-video-loader/"><u>2024 Approved Secrets to the Ultimate 5-Free Pinterest Video Loader</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>In 2024, Enhance Your Videos Effective Titles and Keywords on YouTube</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-itel-s23-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/luminous-landscapes-designing-visuals-that-dazzle-viewers-for-2024/"><u>Luminous Landscapes Designing Visuals that Dazzle Viewers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/preserve-your-legacy-transforming-older-images-into-modern-videos/"><u>Preserve Your Legacy Transforming Older Images Into Modern Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-fifa-19-dominating-the-genre-of-e-sports-games/"><u>Ultimate Guide to FIFA 19: Dominating the Genre of E-Sports Games</u></a></li>
 </ul></div>
 

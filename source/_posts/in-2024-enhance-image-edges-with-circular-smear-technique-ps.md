@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Enhance Image Edges with Circular Smear Technique PS"
-date: 2024-10-17T21:58:43.391Z
-updated: 2024-10-24T16:12:58.861Z
+date: 2024-10-25T16:31:09.798Z
+updated: 2024-10-30T22:27:01.648Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,16 @@ To craft a **radial blur image**, many individuals prefer using [Adobe Photoshop
 Photoshop also allows you to use its pre-built filters for further modifications. With a single tap, you can apply filters to the photos without making them look artificial or low-quality. Moreover, you can also perform basic photo editing by utilizing the options such as cropping and resizing. Apart from all these distinct features, Photoshop also enables you to add a radial blur effect to the pictures.
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Steps to Create Radial Blur Effect in Photoshop
@@ -62,26 +62,38 @@ Step1 Open your Photoshop tool and upload the image that you want to edit. Click
 
 ![select the quick selection tool](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 To refine the selection, use the Alt key from your keyboard. Once done with the refinement, press "Ctrl + J" to copy the new background layer. To create the background layer on Mac, hit the "Command + J" combination.
 
 ![add the background layer](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-3.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Afterward, click on the background layer and head to the "Filter" tab. From there, select "Blur" and tap "Radial Blur" from the drop-down menu. Adjust on the Radial Blur window by choosing "Zoom" as Blur Method. Also, select "Best" under the Quality section. Once done, adjust your Blur Center from the window.
 
 ![proceed with the radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 After making all the adjustments in the Radial Blur window, press the "OK" button. Once done, select the top layer and add a "Curve Adjustment Layer." Now adjust the curve properties according to your preference. Thus, you can see the radial blur effect on your photo on your screen.
@@ -100,6 +112,13 @@ For photo and video editing, Filmora provides several features such as Split Scr
 
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steps to Create Radial Blur Effect Using Filmora
 
 Creating a radial blur effect in Filmora is extremely simple and easy. Its intuitive interface allows you to add a radial blur effect instantly with a few clicks. For your convenience, we have mentioned precise and authentic instructions below to create a radial blur effect in Filmora:
@@ -122,18 +141,18 @@ Choose your preferred effect and drop it into the timeline. Now increase the dur
 
 ![adjust the added blur settings](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step 4 Edit the Clip
 
 You can also edit the clip by adding titles or more effects. Once done with the edits, hit the "Export" button given on top.
 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -147,13 +166,6 @@ For photo and video editing, Filmora provides several features such as Split Scr
 
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Steps to Create Radial Blur Effect Using Filmora
 
 Creating a radial blur effect in Filmora is extremely simple and easy. Its intuitive interface allows you to add a radial blur effect instantly with a few clicks. For your convenience, we have mentioned precise and authentic instructions below to create a radial blur effect in Filmora:
@@ -170,18 +182,18 @@ Drag and drop the photo in the timeline to proceed. Now go to the Effects tab an
 
 ![access the video effects](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 3 Adjust the Blur Settings
 
 Choose your preferred effect and drop it into the timeline. Now increase the duration of your effect according to the clip. Once done, double-click on the effect to open its properties. Here, you can adjust the size, intensity, and other elements of the blur effect.
 
 ![adjust the added blur settings](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step 4 Edit the Clip
 
@@ -190,10 +202,10 @@ You can also edit the clip by adding titles or more effects. Once done with the 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -226,21 +238,16 @@ By reading this article, you have learned how to add a radial blur effect using 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-enhanced-audio-playback-acceleration-tools-list/"><u>[New] 2024 Approved Enhanced Audio Playback Acceleration Tools List</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-revolutionizing-patient-outreach-with-fb-ads/"><u>[New] 2024 Approved Revolutionizing Patient Outreach with FB Ads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-ultimate-10-accessory-collection-for-sj4000/"><u>[New] 2024 Approved The Ultimate 10 Accessory Collection for SJ4000</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-a-step-by-step-approach-to-choosing-superior-fpv-drone-propellers/"><u>[New] A Step-by-Step Approach to Choosing Superior FPV Drone Propellers</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-dare-to-differentiate-using-square-videos-for-social-media-standout/"><u>[Updated] 2024 Approved Dare to Differentiate Using Square Videos for Social Media Standout</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-the-art-of-high-quality-photo-for-free/"><u>[Updated] 2024 Approved Mastering the Art of High Quality Photo for Free</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-best-of-breed-top-rated-youtubers-streaming-arsenal-for-2024/"><u>[Updated] Best of Breed Top-Rated Youtuber's Streaming Arsenal for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-glide-and-glory-short-track-highlights-from-22/"><u>[Updated] Glide and Glory Short Track Highlights From '22</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-guide-to-enable-dynamic-hdr-in-windows-11/"><u>[Updated] Guide to Enable Dynamic HDR in Windows 11</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-speedy-instagram-media-consumption-strategies/"><u>[Updated] Speedy Instagram Media Consumption Strategies</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-dji-phantom-upgrade-kit/"><u>[Updated] The Ultimate DJI Phantom Upgrade Kit</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-secure-smooth-cinematography-the-best-stabilizer-brands-guide/"><u>2024 Approved Secure Smooth Cinematography The Best Stabilizer Brands Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/how-to-restore-windows-photo-viewer-in-windows-11-2-methods/"><u>How to Restore Windows Photo Viewer in Windows 11 (2 Methods)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-hp-deskjet-2600-drivers-easy-download-and-setup-for-windows-7-8-and-10-users/"><u>Latest HP DeskJet 2600 Drivers: Easy Download & Setup for Windows 7, 8 & 10 Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-through-amazons-landscape-distinguishing-kindle-from-fire-tablet-options/"><u>Navigating Through Amazon's Landscape: Distinguishing Kindle From Fire Tablet Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-samsung-ru7300-does-its-unique-shape-add-to-its-smart-tv-charm/"><u>Unboxing and Testing the Samsung RU7300 - Does Its Unique Shape Add to Its Smart TV Charm?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-fast-lanes-migrating-iphone-media-to-a-desktop/"><u>[New] 2024 Approved Fast Lanes Migrating iPhone Media to a Desktop</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-revolutionizing-operations-with-virtual-engineering/"><u>[New] In 2024, Revolutionizing Operations with Virtual Engineering</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-obs-vs-wirecast-which-should-you-trust-for-live-in-2024/"><u>[New] OBS Vs. Wirecast - Which Should You Trust for Live, In 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-secret-sauce-for-clearer-more-informative-youtube-videos/"><u>[Updated] 2024 Approved The Secret Sauce for Clearer, More Informative YouTube Videos</u></a></li>
+<li><a href="https://win-tips.techidaily.com/5yaz55yf44gu57su57kl44gq5ymk6zmk5b6m44gr5b6p5ywd44gz44kl5pa55rov772c44or44k944kz44oz44o744oo44o844oi5zcr44gr44ks44kk44oj/"><u>写真の純粋な削除後に復元する方法｜パソコン・ノート向けガイド</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dive-deep-into-designing-dynamic-youtube-live-thumbnails/"><u>In 2024, Dive Deep Into Designing Dynamic YouTube Live Thumbnails</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastery-of-minimizing-cpu-load-on-computers/"><u>Mastery of Minimizing CPU Load on Computers</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/pause-perfection-how-to-freeze-frame-in-videos-like-a-pro/"><u>Pause Perfection How to Freeze Frame in Videos Like a Pro</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/screenflow-demystified-essential-tools-for-your-mac-creation/"><u>ScreenFlow Demystified Essential Tools for Your Mac Creation</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723003312187-sea-of-thieves-stuck-on-launching-heres-what-you-need-to-do/"><u>Sea of Thieves Stuck on Launching? Here's What You Need to Do!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-your-connection-how-to-tell-if-nintendo-switch-online-is-down/"><u>Troubleshooting Your Connection: How to Tell If Nintendo Switch Online Is Down</u></a></li>
 </ul></div>
 

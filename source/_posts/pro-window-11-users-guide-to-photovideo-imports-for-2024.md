@@ -1,7 +1,7 @@
 ---
 title: "Pro Window 11 Users' Guide to Photo/Video Imports for 2024"
-date: 2024-10-18T22:59:50.803Z
-updated: 2024-10-24T16:25:38.432Z
+date: 2024-10-28T19:59:41.957Z
+updated: 2024-10-30T22:34:21.514Z
 tags: 
   - screen-recording
   - ai video
@@ -40,11 +40,44 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 
 ## Part 1: Import Photos and Video from a Phone
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 2: Enable File Exchange
 
@@ -63,10 +96,10 @@ Your computer will tell you how many pictures and photos were found. You can eit
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Start Importing in Photos App
@@ -80,22 +113,15 @@ Click the Import button on the Photos app and choose the items that you want to 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
 
@@ -107,13 +133,6 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Import Photos and Video from a Camera
 
 Those who are importing photos and videos from a camera rather than a smartphone can use the above options as well. Both Windows 10 File Explorer and the Photos app will be compatible with your camera, provided it can connect through a USB cable and a USB port on the computer.
@@ -121,13 +140,6 @@ Those who are importing photos and videos from a camera rather than a smartphone
 Connect the camera to your phone and then follow the above steps to import your media content.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -160,17 +172,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-a-technical-dive-into-gesture-and-movement-sensors/"><u>[New] 2024 Approved A Technical Dive Into Gesture and Movement Sensors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-design-dynamics-the-role-of-color-integration/"><u>[New] 2024 Approved Design Dynamics The Role of Color Integration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-skyrocket-with-subscribers-5-proven-methods-for-igtv-success/"><u>[Updated] 2024 Approved Skyrocket with Subscribers 5 Proven Methods for IGTV Success</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-embracing-illusion-what-is-vrs-truth-in-2024/"><u>[Updated] Embracing Illusion What Is VR's Truth, In 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-stepwise-guide-to-windows-11-sound-capture-setup/"><u>[Updated] Stepwise Guide to Windows 11 Sound Capture Setup</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/r-bonanza-unlimited-50-free-youtube-designs-in-2024/"><u>Banner Bonanza Unlimited 50 FREE YouTube Designs, In 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/explore-top-social-media-platforms-facebook-twitter-instagram-and-youtube/"><u>Explore Top Social Media Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 7 Plus</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-cmd-a-comprehensive-guide-to-eliminating-files-and-directories-in-windows-n-11/"><u>Mastering CMD: A Comprehensive Guide to Eliminating Files and Directories in Windows N 11</u></a></li>
-<li><a href="https://win-top.techidaily.com/mastering-paid-advertising-in-google-searches-insights-into-sponsored-links-and-essential-seo-tips-from-seo-powersuite/"><u>Mastering Paid Advertising in Google Searches: Insights Into Sponsored Links and Essential SEO Tips From SEO PowerSuite</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/mastering-type-treatments-in-after-effects/"><u>Mastering Type Treatments in After Effects</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/tips-for-recording-high-quality-video-in-zoom/"><u>Tips for Recording High-Quality Video in Zoom</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-breathtaking-cinematography-with-5-best-slow-motion-cameras/"><u>[New] Breathtaking Cinematography with 5 Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fine-tuning-your-fb-videos-aspect-ratios-decoded/"><u>[New] Fine-Tuning Your FB Videos Aspect Ratios Decoded</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-a-deep-dive-into-effective-animoji-utilization-on-iphone-x/"><u>[New] In 2024, A Deep Dive Into Effective Animoji Utilization on iPhone X</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unveiling-youtubes-hidden-gems-the-comment-space/"><u>[New] In 2024, Unveiling YouTube's Hidden Gems The Comment Space</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-navigating-social-sharing-pining-on-snapchat/"><u>[New] Navigating Social Sharing Pining on Snapchat</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-sequence-length-in-seconds-of-20mb-media/"><u>[Updated] 2024 Approved Sequence Length in Seconds of 20MB Media</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-chinese-vr-headset-marketplace-wonders-for-2024/"><u>[Updated] Chinese VR Headset Marketplace Wonders for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-funny-faces-and-posts-your-adobe-way/"><u>[Updated] Funny Faces and Posts Your Adobe Way</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-effectively-convert-iphone-photos-jpeg-png-into-pdfs/"><u>[Updated] How to Effectively Convert iPhone Photos (JPEG, PNG) Into PDFs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-lighten-up-your-digital-presence-kapwing-maker/"><u>[Updated] In 2024, Lighten Up Your Digital Presence - Kapwing Maker</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-ultimate-gpus-elevating-4k-creative-workflows/"><u>[Updated] In 2024, Ultimate GPUs Elevating 4K Creative Workflows</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-hidden-gems-instagrams-download-secrets/"><u>2024 Approved Unveiling Hidden Gems Instagram's Download Secrets</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-honor-90-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Honor 90 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/guia-completa-para-hacer-copia-de-seguridad-y-reparacion-del-sistema-con-uefi/"><u>Guía Completa Para Hacer Copia De Seguridad Y Reparación Del Sistema Con UEFI</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-screen-capture-showdown-is-obs-better-than-fraps/"><u>In 2024, Screen Capture Showdown Is OBS Better Than Fraps?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/pioneering-podcast-titling-with-leading-ai-driven-apps-for-2024/"><u>Pioneering Podcast Titling with Leading AI-Driven Apps for 2024</u></a></li>
 </ul></div>
 

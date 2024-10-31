@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Get Up Close with Video Chat Colleagues"
-date: 2024-10-23T21:26:32.483Z
-updated: 2024-10-25T00:30:18.359Z
+date: 2024-10-24T16:56:04.240Z
+updated: 2024-10-30T16:44:58.069Z
 tags: 
   - screen-recording
   - ai video
@@ -43,19 +43,6 @@ Step1 Set up a video conferencing setup and start a conference in your web brows
 
 ![setup google meet](https://images.wondershare.com/filmora/article-images/2022/07/setup-google-meet.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Hover over the shared screen and click the Pin symbol to save it. Go to the "Webcam Settings" window, pick the "Camera Control" option at the top, then select the webcam from the drop-down list.
 
 ![google meeting settings panel](https://images.wondershare.com/filmora/article-images/2022/07/google-meeting-settings-panel.jpg)
@@ -65,16 +52,10 @@ Step3 The "Layout" option is next to the slider; click it. Adjust it in the dire
 ![layout options google meet](https://images.wondershare.com/filmora/article-images/2022/07/layout-options-google-meet.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 Change your Layout to "Focus" in the Meet Menu (three dots). By repeatedly hitting CTRL+ minus (-), you can zoom out (!). The Meet controls at the bottom get smaller as a result. With CTRL+0, you may subsequently reverse your zoom.
@@ -84,10 +65,23 @@ Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full sc
 ![full screen mode google meet](https://images.wondershare.com/filmora/article-images/2022/07/full-screen-mode-google-meet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Tips and tricks to use Google Meet
@@ -104,10 +98,10 @@ Those who have a Google Account are able to start a meeting. It's simple to make
 * Users of Google Meet will be able to pin many individuals to the top of their tiled screen. This will be especially useful if you have meetings where two or three people talk the majority of the time.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -144,17 +138,22 @@ You may show additional information on your Google Meet by zooming in and out. O
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-first-rate-screen-recorders-for-youtube-enthusiasts/"><u>[New] 2024 Approved First-Rate Screen Recorders for YouTube Enthusiasts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-enhancing-facebook-traffic-with-innovative-video-techniques-for-2024/"><u>[New] Enhancing Facebook Traffic with Innovative Video Techniques for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-auditory-enhancement-unlocked-delve-into-freeware-audio-effect-software/"><u>[New] In 2024, Auditory Enhancement Unlocked Delve Into Freeware Audio Effect Software</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-dusk-dance-pre-pro-fades-for-2024/"><u>[New] The Dusk Dance - Pre-Pro Fades for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-effortless-techniques-to-craft-professional-time-lapses-on-galaxy/"><u>[Updated] In 2024, Effortless Techniques to Craft Professional Time-Lapses on Galaxy</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-infinix-smart-8-plus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Infinix Smart 8 Plus to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-command-line-magic-opening-srt-for-windows-macos/"><u>In 2024, Command Line Magic Opening SRT for Windows, MacOS</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-implementing-photography-snippets-from-videos/"><u>In 2024, Implementing Photography Snippets From Videos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/risoluzione-dei-tuoi-problemi-di-riproduzione-dvd-i-migliori-lettori-gratuiti-per-windows-nella-versione-11-scelti-tra-i-primi-3/"><u>Risoluzione Dei Tuoi Problemi Di Riproduzione DVD: I Migliori Lettori Gratuiti per Windows Nella Versione 11, Scelti Tra I Primi 3</u></a></li>
-<li><a href="https://common-error.techidaily.com/the-ultimate-guide-to-resolving-a-black-screen-problem-on-your-dell-notebook/"><u>The Ultimate Guide to Resolving a Black Screen Problem on Your Dell Notebook</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-truthgpt-the-ai-initiative-spearheaded-by-elon-musk/"><u>Unveiling TruthGPT: The AI Initiative Spearheaded by Elon Musk</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-edit-your-way-to-success-top-14-vlog-video-editing-tools-free-and-paid-for-2024/"><u>Updated Edit Your Way to Success Top 14 Vlog Video Editing Tools Free & Paid for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-arcade-adventurers-approaches/"><u>[New] ARCADE ADVENTURERS' APPROACHES</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-culinary-craftsmanship-mastering-the-art-of-food-filmmaking-with-these-7-strategies-for-2024/"><u>[New] Culinary Craftsmanship Mastering the Art of Food Filmmaking with These 7 Strategies for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-from-still-to-story-the-art-of-adding-text-to-photos-os-style-for-2024/"><u>[New] From Still to Story The Art of Adding Text to Photos, OS Style for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-bringing-ideas-to-life-video-editing-essentials-in-windows-11/"><u>[New] In 2024, Bringing Ideas to Life Video Editing Essentials in Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-freevista-vistas-treasuring-the-visual-wealth-of-costless-tiktok-screens-for-2024/"><u>[New] The FREEvista Vistas Treasuring the Visual Wealth of Costless TikTok Screens for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-xsplit-download-and-review-for-2024/"><u>[New] XSplit Download and Review for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-illuminating-images-techniques-in-color-science/"><u>[Updated] In 2024, Illuminating Images Techniques in Color Science</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unravel-the-mystery-perfect-your-green-screen-skills-using-kinemaster-for-2024/"><u>[Updated] Unravel the Mystery Perfect Your Green Screen Skills Using Kinemaster for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-essential-blueprint-for-obtaining-premium-visuals-for-free/"><u>2024 Approved The Essential Blueprint for Obtaining Premium Visuals for Free</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-tecno-pova-5-pro-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722964357471-asrocks-ab350-pro4-drivers-easy-free-download-for-enhanced-windows-performance/"><u>ASROCK's AB350 Pro4 Drivers: Easy, Free Download for Enhanced Windows Performance!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-mohu-blades-capabilities-exceptional-interior-signal-quality-and-original-look/"><u>Exploring the Mohu Blade's Capabilities - Exceptional Interior Signal Quality and Original Look</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/harmonic-frames-filming-music-tracks-using-iphones/"><u>Harmonic Frames Filming Music Tracks Using iPhones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-a-compreenas-guide-to-leveraging-ps-background-erasure-for-professional-results/"><u>In 2024, A Compreenas Guide to Leveraging PS Background Erasure for Professional Results</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/linking-friends-lining-pockets-monetizing-connections/"><u>Linking Friends, Lining Pockets: Monetizing Connections</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-the-ultimate-mac-slideshow-creator-a-beginners-guide-for-2024/"><u>New The Ultimate Mac Slideshow Creator A Beginners Guide for 2024</u></a></li>
 </ul></div>
 

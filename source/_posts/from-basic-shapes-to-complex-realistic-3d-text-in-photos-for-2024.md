@@ -1,7 +1,7 @@
 ---
 title: "From Basic Shapes to Complex, Realistic 3D Text in Photos for 2024"
-date: 2024-10-22T16:58:36.942Z
-updated: 2024-10-24T20:46:25.656Z
+date: 2024-10-23T16:26:01.225Z
+updated: 2024-10-30T21:47:07.523Z
 tags: 
   - screen-recording
   - ai video
@@ -71,13 +71,6 @@ Step10 Finally, from the upper-right corner drop-down button, select **Essential
 
 There you have it. You can now export your 3D text image from Photoshop and you're done. Congratulations on learning how to make a 3D text effect in Photoshop.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## An Easier Way to Create a 3D Text Effect or Animation
 
 As we mentioned, Photoshop may get challenging to use, especially for complete beginners. What if there was an easier tool you can use and still get the same high-quality and professional-grade results?
@@ -90,6 +83,13 @@ There is. It's called [Filmora](https://tools.techidaily.com/wondershare/filmora
 
 Compared to Photoshop, Filmora is not only easier to use, but it's significantly more affordable as well. With that said, let's find out how you can create a 3D text effect in Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Make a 3D Text Effect in Filmora
 
 The steps are extremely simple. Just follow each exactly as you see it here and you will be done in no more than 5 minutes.
@@ -97,13 +97,6 @@ The steps are extremely simple. Just follow each exactly as you see it here and 
 Step1 First, you should download Filmora and install the program on your computer. Then, launch it and click on **New Project**.
 
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
@@ -113,24 +106,18 @@ Step3 Next, head over to **Titles** and search for "3D". Select any option you l
 
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -149,32 +136,39 @@ Step1 First, you should download Filmora and install the program on your compute
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
 
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -204,19 +198,21 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-starting-up-the-guide-to-youtube-fame-in-gaming/"><u>[New] 2024 Approved Starting Up The Guide to YouTube Fame in Gaming</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-economical-aether-fileshare-for-bulk-digital-storing-for-2024/"><u>[New] Economical Aether Fileshare for Bulk Digital Storing for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-reversal-strategies-moving-from-latest-sierra-to-el-capitan/"><u>[New] In 2024, Reversal Strategies Moving From Latest Sierra to El Capitan</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-softening-transitions-gradual-audio-fading-techniques-in-premiere/"><u>[New] Softening Transitions Gradual Audio Fading Techniques in Premiere</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-top-8-video-boosters-say-goodbye-to-slow-mo/"><u>[New] Top 8 Video Boosters Say Goodbye to Slow Mo</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/cambiare-immagini-dng-al-formato-jpg-online-e-gratuito-con-movavi/"><u>Cambiare Immagini DNG Al Formato JPG Online E Gratuito Con Movavi</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/comparing-content-formats-podcasts-versus-youtube/"><u>Comparing Content Formats Podcasts Versus YouTube</u></a></li>
-<li><a href="https://win11.techidaily.com/deleting-windows-bt-directory-purpose-and-process/"><u>Deleting Windows ~BT Directory: Purpose & Process</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expanding-gameplay-wd-introduces-spacious-8tb-nvme-ssd-in-gamers-arsenal/"><u>Expanding Gameplay: WD Introduces Spacious 8TB NVMe SSD in Gamer's Arsenal</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/exploring-the-depth-of-editing-with-gopro-studios-capabilities/"><u>Exploring the Depth of Editing with GoPro Studio's Capabilities</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-8-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone 8 Without Backup? | Stellar</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-hot-40-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Hot 40 to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-cropping-and-editing-music-in-canva-for-2024/"><u>The Ultimate Guide Cropping & Editing Music in Canva for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/time-travel-tech-how-to-reverse-ios-video-for-2024/"><u>Time Travel Tech How to Reverse iOS Video for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-astronomys-best-showcase-10-prime-hd-sky-archives/"><u>[New] In 2024, Astronomy's Best Showcase - 10 Prime HD Sky Archives</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-enhancing-auditory-appreciation-via-iphones-playback/"><u>[New] In 2024, Enhancing Auditory Appreciation via iPhone's Playback</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-xsplit-vs-obs-which-one-simplifies-live-broadcast/"><u>[New] In 2024, XSplit Vs. OBS – Which One Simplifies Live Broadcast?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-microscopic-views-in-microsoft-teams-chat-for-2024/"><u>[New] Mastering the Microscopic Views in Microsoft Teams Chat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-simplified-guide-integrating-snapchat-with-your-mac-for-2024/"><u>[New] Simplified Guide Integrating Snapchat with Your Mac for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-spectral-imagery-phantasmal-camera-analysis/"><u>[New] Spectral Imagery Phantasmal Camera Analysis</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-step-by-step-shooting-stunning-timelapse-videos-on-black-hero5/"><u>[Updated] In 2024, Step by Step Shooting Stunning Timelapse Videos on Black Hero5</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mastering-audio-best-practices-for-ipodcasting-interviews-on-ios-devices-for-2024/"><u>[Updated] Mastering Audio Best Practices for iPodcasting Interviews on iOS Devices for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-definitive-12-tycoon-titles-unmissable-gaming-delights/"><u>[Updated] The Definitive 12 Tycoon Titles - Unmissable Gaming Delights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-guide-80s-vhs-tricks-for-dynamic-edits-for-2024/"><u>[Updated] Ultimate Guide 80'S VHS Tricks for Dynamic Edits for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-quintessential-gopro-modifications/"><u>2024 Approved Quintessential Gopro Modifications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-user-reviews-eero-pro-mesh-system-full-home-coverage/"><u>Comprehensive Guide & User Reviews: Eero Pro Mesh System - Full Home Coverage</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-can-i-recover-corrupted-pdf-v15-file-stellar-by-stellar-guide/"><u>How Can I Recover Corrupted PDF v1.5 File | Stellar</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-pro-photo-framegers-to-polish-pictures-online/"><u>In 2024, Pro Photo Framegers to Polish Pictures Online</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/masterpieces-14-animated-textual-works/"><u>Masterpieces 14 Animated Textual Works</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimizing-content-visibility-premier-tracking-applications-for-youtubers-for-2024/"><u>Optimizing Content Visibility - Premier Tracking Applications for YouTubers for 2024</u></a></li>
 </ul></div>
 

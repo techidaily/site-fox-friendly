@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhancing Detail in YouTube Clips"
-date: 2024-10-20T00:48:36.771Z
-updated: 2024-10-24T20:15:02.470Z
+date: 2024-10-27T22:22:04.438Z
+updated: 2024-10-30T22:42:23.981Z
 tags: 
   - screen-recording
   - ai video
@@ -64,16 +64,10 @@ Step3Thereafter, drag and drop the YouTube video file from Project Media folder 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
@@ -91,13 +85,6 @@ Step1Open your web browser and visit “studio.youtube.com”. Log into with you
 Step2From the top, click on Create button and select Upload Videos. Add the downloaded YouTube video from your hard drive. Follow the on-screen instructions to complete uploading.
 
 ![youtube built in editor zoom](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3After uploading, click on the Video and select Editor option from the left menu.
 
@@ -117,28 +104,35 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
 
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Way 3\. Use YouTube Built-in Editor
@@ -151,18 +145,18 @@ Step2From the top, click on Create button and select Upload Videos. Add the down
 
 ![youtube built in editor zoom](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3After uploading, click on the Video and select Editor option from the left menu.
 
 Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom in means the timeline gets zoomed so that you can check out the video frame by frame to find out all the details in any portion of the video.
 
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -192,20 +186,15 @@ There are several ways you can zoom into YouTube videos to check out the desired
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/inge-watch-with-ease-best-playlist-extractors-reviewed-and-rated-for-2024/"><u>[New] Binge-Watch With Ease Best Playlist Extractors Reviewed & Rated for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-no-fog-only-clarity-gopro-lens-care-essentials/"><u>[New] In 2024, No Fog, Only Clarity GoPro Lens Care Essentials</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-lightning-methods-ios-media-on-windows-for-2024/"><u>[New] Lightning Methods IOS Media on Windows for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-rapid-method-converting-images-into-desktop-thumbnails-for-youtube/"><u>[New] Rapid Method Converting Images Into Desktop Thumbnails for YouTube</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-who-leads-in-video-content-delivery-twitch-vs-youtube/"><u>[New] Who Leads in Video Content Delivery? Twitch vs YouTube</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-designing-engaging-podcast-teasers/"><u>[Updated] 2024 Approved Designing Engaging Podcast Teasers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-grasping-chroma-key-magic-a-complete-beginners-guide-to-green-screens-for-2024/"><u>[Updated] Grasping Chroma Key Magic A Complete Beginner's Guide to Green Screens for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-years-ultimate-yt-story-creators-list/"><u>[Updated] In 2024, Year's Ultimate YT Story Creators List</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-making-the-most-of-your-multi-image-story-sessions-on-insta/"><u>[Updated] Making the Most of Your Multi-Image Story Sessions on Insta</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-mastering-visual-enhancements-with-polarrs-platform-for-2024/"><u>[Updated] Mastering Visual Enhancements with Polarr's Platform for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/blu-ray-collecting-an-underrated-hobby-worth-pursuing-today-discover-why/"><u>Blu-Ray Collecting: An Underrated Hobby Worth Pursuing Today – Discover Why!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-8-plus-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 8 Plus to other iPhone 15 devices? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-premier-edits-best-face-changing-apps-iphonesipads/"><u>In 2024, Premier Edits Best Face-Changing Apps, iPhones/iPads</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-honor-90-gt-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Honor 90 GT Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://common-error.techidaily.com/protect-your-system-locally-lsa-guard-reactivation-guide/"><u>Protect Your System Locally: LSA Guard Reactivation Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-20-freepaid-luts-for-dji-mini-2air-2smavic-2/"><u>[New] 2024 Approved 20 Free/Paid LUTS for DJI Mini 2/Air 2S/Mavic 2</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-accelerating-artistic-outputs-fast-tracked-google-collage-creation/"><u>[New] 2024 Approved Accelerating Artistic Outputs Fast-Tracked Google Collage Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-free-tools-for-flawless-srt-conversion/"><u>[New] 2024 Approved Top Free Tools for Flawless SRT Conversion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-aperture-aces-top-picks-the-most-impressive-6-4k-dslrs/"><u>[Updated] Aperture Aces' Top Picks The Most Impressive 6 4K DSLRs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capturecrafter-your-ultimate-guide-to-screen-recording-for-2024/"><u>[Updated] CaptureCrafter Your Ultimate Guide to Screen Recording for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-starting-strategies-for-an-engaging-fb-giveaway/"><u>[Updated] In 2024, Starting Strategies for an Engaging FB Giveaway</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-tecno-camon-30-pro-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Tecno Camon 30 Pro 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-free-10-best-live-streaming-apps-for-android-and-iphone/"><u>In 2024, FREE 10 Best Live Streaming Apps for Android and iPhone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/upgraded-views-installing-new-laptop-gfx/"><u>Upgraded Views: Installing New Laptop GFX</u></a></li>
 </ul></div>
 

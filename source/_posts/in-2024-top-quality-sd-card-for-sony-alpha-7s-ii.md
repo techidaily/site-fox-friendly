@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Top Quality SD Card for Sony Alpha 7S II"
-date: 2024-09-09T12:32:02.221Z
-updated: 2024-09-10T12:32:02.221Z
+date: 2024-10-26T17:18:29.707Z
+updated: 2024-10-30T20:46:28.035Z
 tags: 
   - screen-recording
   - ai video
@@ -16,30 +16,12 @@ keywords: "\"Sony A7S SD Card,Top SD Card A7II,High-Quality SD Card,Superior Alp
 thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42d3ab8c5759ae25bd6bbada4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Top Quality SD Card for Sony Alpha 7S II
 
 # Best Memory Card for Sony A7S II
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -48,12 +30,6 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -92,11 +68,12 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -138,11 +115,12 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -166,4 +144,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-decoding-windows-11-new-functionality/"><u>[New] 2024 Approved Decoding Windows 11 New Functionality</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-iphone-shot-success-adopt-these-10-key-photographic-rules/"><u>[New] 2024 Approved IPhone Shot Success Adopt These 10 Key Photographic Rules</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-pathway-to-captivating-audio-on-macos-via-audacity/"><u>[New] 2024 Approved The Pathway to Captivating Audio on MacOS via Audacity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-disable-youtubes-automatic-video-playback-trigger-for-2024/"><u>[New] Disable YouTube's Automatic Video Playback Trigger for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-essential-5k-screens-the-finest-eight-for-2024/"><u>[New] Essential 5K Screens The Finest Eight for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-boost-call-quality-and-creativity-learn-to-apply-filters-in-zoom/"><u>[New] In 2024, Boost Call Quality & Creativity Learn to Apply Filters in Zoom</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-magic-behind-the-lens-iphone-xs-groundbreayer-camera-tech/"><u>[Updated] 2024 Approved The Magic Behind the Lens IPhone X's Groundbreayer Camera Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-astonishing-assessment-and-alternative-choices/"><u>[Updated] In 2024, Astonishing Assessment & Alternative Choices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-how-to-record-gameplay-using-fbx-game-recorder/"><u>[Updated] In 2024, How To Record Gameplay Using FBX Game Recorder</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-mastering-cross-platform-play-spotifydiscord-tutorial-for-2024/"><u>[Updated] Mastering Cross-Platform Play Spotify/Discord Tutorial for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-sniff-out-recent-unfollowers-on-instagram/"><u>[Updated] Sniff Out Recent Unfollowers on Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-spectacular-sites-featuring-rich-3d-and-golden-text-for-2024/"><u>[Updated] Spectacular Sites Featuring Rich 3D and Golden Text for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-only-guide-youll-need-to-know-about-instagram-reels/"><u>[Updated] The Only Guide You'll Need to Know About Instagram Reels</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boosting-site-performance-using-cookiebot-solutions/"><u>Boosting Site Performance Using Cookiebot Solutions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-m-audio-ultradriver-bundle-for-free-superior-sound-experience/"><u>Download the M-Audio UltraDriver Bundle for Free - Superior Sound Experience</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/grosser-sale-profi-dvd-kopierer-winx-mit-einem-rabatt-von-55-durch-platin-codes/"><u>Großer Sale: Profi-DVD-Kopierer WinX Mit Einem Rabatt Von 55% Durch Platin-Codes!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/guide-how-to-set-up-basic-printerscanner-drivers-on-your-windows-10-system/"><u>Guide: How To Set Up Basic Printer/Scanner Drivers On Your Windows 10 System</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elusive-viewers-guide-to-anonymously-watching-instagram-live/"><u>In 2024, Elusive Viewers' Guide to Anonymously Watching Instagram Live</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/syncing-vimeo-and-instagram-the-ultimate-guide-for-2024/"><u>Syncing Vimeo and Instagram The Ultimate Guide for 2024</u></a></li>
+</ul></div>
 

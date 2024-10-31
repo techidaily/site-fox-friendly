@@ -1,7 +1,7 @@
 ---
 title: "Eliminating Common Glitches in Windows 11'S Photos Viewer"
-date: 2024-10-17T16:44:09.132Z
-updated: 2024-10-24T16:08:00.656Z
+date: 2024-10-29T22:42:46.975Z
+updated: 2024-10-30T23:07:54.478Z
 tags: 
   - screen-recording
   - ai video
@@ -59,20 +59,21 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -85,14 +86,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -103,6 +104,13 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -132,21 +140,7 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -173,18 +167,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-sony-fdr-x1000v-action-camera-complete-review/"><u>[New] 2024 Approved Sony FDR-X1000V Action Camera Complete Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-inexpensive-sky-explorers-the-least-expensive-drones/"><u>[New] In 2024, Inexpensive Sky Explorers The Least Expensive Drones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-identifying-excellent-video-production-experts/"><u>[Updated] 2024 Approved Identifying Excellent Video Production Experts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-maximizing-income-sourav-joshis-youtube-journey/"><u>[Updated] Maximizing Income Sourav Joshi's YouTube Journey</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-streamlabs-vs-obs-which-livestream-tool-reigns-supreme-for-2024/"><u>[Updated] Streamlabs Vs. OBS Which Livestream Tool Reigns Supreme for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-motorola-moto-g13-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Motorola Moto G13 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/discovering-periscope-its-features-pricing-and-user-registration/"><u>Discovering Periscope Its Features, Pricing & User Registration</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/engage-with-mematics-cloud-note-application/"><u>Engage with Mematic's Cloud Note Application</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-discovering-the-best-in-display-tech-10-list-for-your-mac/"><u>In 2024, Discovering the Best in Display Tech - #10 List for Your Mac</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-google-ar-stickers-explained-with-comparative-alternatives/"><u>In 2024, Google AR Stickers Explained with Comparative Alternatives</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-download-vlc-player-for-free-and-safe-on-macstep-by-step/"><u>In 2024, How to Download VLC Player for Free and Safe on Mac?[Step-by-Step]</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-play-8t-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Honor Play 8T Phone without Google Account?</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/removing-background-noise-extracting-silent-videos/"><u>Removing Background Noise Extracting Silent Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-elevating-the-art-of-unboxing-adventure-for-2024/"><u>[New] Elevating the Art of Unboxing Adventure for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-high-speed-to-serenity-making-captivating-slow-movies-on-instagram/"><u>[New] In 2024, From High-Speed to Serenity Making Captivating Slow Movies on Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-voice-interpretation-without-a-price-tag/"><u>[New] In 2024, Voice Interpretation Without a Price Tag</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-innovative-8-image-collections-for-macbook-screens-for-2024/"><u>[New] Innovative 8 Image Collections for MacBook Screens for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro/"><u>[Updated] In 2024, 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-decoding-youtubes-srt-download-with-3-methods/"><u>[Updated] In 2024, Decoding YouTube's SRT Download with 3 Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-pinnacle-display-top-5-high-definition-hdmi-21-pcmonitor/"><u>[Updated] Pinnacle Display Top 5 High-Definition (HDMI 2.1) PC/Monitor</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/budgeting-approach-to-making-music-videos/"><u>Budgeting Approach to Making Music Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-oppo-a1-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Oppo A1 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-dive-deep-into-digital-artistry-picsarts-ultimate-edition/"><u>In 2024, Dive Deep Into Digital Artistry PicsArt's Ultimate Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-essential-guide-to-free-online-srt-translators-1-8-rankings/"><u>In 2024, Essential Guide to Free Online SRT Translators – #1-#8 Rankings</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-screencast-software-on-the-market-bandicam-vs-camtasia/"><u>Top Screencast Software on the Market Bandicam Vs. Camtasia</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/top-ranked-chroma-key-software-solutions-for-real-time-broadcasting/"><u>Top-Ranked Chroma Key Software Solutions for Real-Time Broadcasting</u></a></li>
 </ul></div>
 
