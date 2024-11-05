@@ -1,7 +1,7 @@
 ---
 title: "[New] Reawakening Windows Photo Viewer in Windows 10 with Ease for 2024"
-date: 2024-09-05T00:46:13.595Z
-updated: 2024-09-06T00:46:13.595Z
+date: 2024-11-04T08:27:30.659Z
+updated: 2024-11-05T05:12:53.097Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -69,12 +76,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -90,27 +91,23 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-**Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
-
-![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
 <a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
   <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
 <img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
+
+![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
@@ -118,19 +115,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -154,4 +146,16 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-formulating-flashy-podcast-teasers/"><u>[New] In 2024, Formulating Flashy Podcast Teasers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-proven-strategies-for-masterful-fisheye-photography/"><u>[New] Proven Strategies for Masterful Fisheye Photography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-strategizing-visibility-for-podcasts-through-design/"><u>[Updated] 2024 Approved Strategizing Visibility for Podcasts Through Design</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-videos-on-fb-with-2023-mobile-utility/"><u>[Updated] 2024 Approved Unlocking Videos on FB with 2023 Mobile Utility</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-hours-of-content-convert-to-gb-figure-for-2024/"><u>[Updated] Hours of Content Convert to GB Figure for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-secretly-save-your-snapchat-photos-without-getting-caught/"><u>How to Secretly Save Your Snapchat Photos Without Getting Caught</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-revenue-per-million-viewer-count/"><u>In 2024, Youtube Revenue Per Million Viewer Count</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unveiling-the-features-of-the-latest-ring-battery-doorbells-the-ultimate-review-guide/"><u>Unveiling the Features of the Latest Ring Battery Doorbells - The Ultimate Review Guide</u></a></li>
+</ul></div>
 

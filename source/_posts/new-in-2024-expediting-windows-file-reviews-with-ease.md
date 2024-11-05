@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Expediting Windows File Reviews with Ease"
-date: 2024-10-26T23:30:23.588Z
-updated: 2024-10-30T20:44:18.979Z
+date: 2024-11-02T16:04:59.470Z
+updated: 2024-11-05T16:05:34.629Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,10 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
@@ -63,30 +63,37 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -109,13 +116,6 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -151,18 +151,24 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-transform-your-content-creation-with-the-top-12-vlogger-cams/"><u>[New] Transform Your Content Creation with the Top 12 Vlogger Cams</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-dynamic-design-techniques-for-seamless-video-fades-for-2024/"><u>[Updated] Dynamic Design Techniques for Seamless Video Fades for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-how-to-personalize-videos-adding-captions-in-the-photos-app/"><u>[Updated] How to Personalize Videos Adding Captions in the Photos App</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-movavi-plus-unveiled-the-latest-edition/"><u>[Updated] In 2024, Movavi Plus Unveiled – The Latest Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-make-a-mark-with-your-first-cool-mac-video-post-on-youtube/"><u>[Updated] Make a Mark with Your First Cool Mac Video Post on YouTube</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-prime-camera-tech-the-top-10-camcorders-for-2024/"><u>[Updated] Prime Camera Tech The Top 10 Camcorders for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-the-15-best-free-online-image-enhancement-tools-for-2024/"><u>[Updated] Unveiling the 15 Best Free Online Image Enhancement Tools for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/2019-08-in-this-section/"><u>2019-08: In This Section</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/getting-started-with-pro-level-youtube-tech-for-2024/"><u>Getting Started with Pro-Level YouTube Tech for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-in-game-film-mastery-using-fbx-recorder/"><u>In 2024, In-Game Film Mastery Using FBX Recorder</u></a></li>
-<li><a href="https://driver-download.techidaily.com/intel-rapid-storage-technology-driver-download-and-update-easily/"><u>Intel Rapid Storage Technology Driver Download & Update Easily!</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/restore-default-configuration-for-windows-server-2019-two-techniques/"><u>Restore Default Configuration for Windows Server 2019 (Two Techniques)</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-solution-retrieve-lost-photographs-using-stellar-photo-recovery-on-windows/"><u>Ultimate Solution: Retrieve Lost Photographs Using Stellar Photo Recovery on Windows</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-elevate-your-content-mastery-in-live-streaming-screens/"><u>[Updated] In 2024, Elevate Your Content Mastery in Live Streaming Screens</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigate-effortlessly-inshots-role-in-video-crafting-on-devices/"><u>[Updated] Navigate Effortlessly Inshot's Role in Video Crafting on Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/10-cost-free-multi-os-video-player-releases-for-2024/"><u>10 Cost-Free, Multi-OS Video Player Releases for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-10-commandments-of-eye-catching-podcast-album-imagery/"><u>2024 Approved 10 Commandments of Eye-Catching Podcast Album Imagery</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-celebrating-maker-spirits-creative-otu-packs/"><u>2024 Approved Celebrating Maker Spirits Creative OTU Packs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-explore-top-affordable-online-resources-your-dream-toolkit-for-visual-filmmaking/"><u>2024 Approved Explore Top Affordable Online Resources - Your Dream Toolkit for Visual Filmmaking</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-into-the-virtual-epoch-analyzing-present-state-and-ahead/"><u>2024 Approved Into the Virtual Epoch Analyzing Present State and Ahead</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-joint-creative-endeavors-between-brands-and-youtube/"><u>2024 Approved Joint Creative Endeavors Between Brands & YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-olympic-short-track-glory-the-pinnacle-of-2022-speed-skating/"><u>2024 Approved Olympic Short Track Glory The Pinnacle of 2022 Speed Skating</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-secure-your-shots-in-the-cloud-unlimited-free-space-plus-charged-premium-solutions/"><u>2024 Approved Secure Your Shots in the Cloud Unlimited Free Space + Charged Premium Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-transform-every-moment-top-activities-to-do-while-listening-to-your-favorite-talk-shows/"><u>2024 Approved Transform Every Moment Top Activities to Do While Listening to Your Favorite Talk Shows</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ameliorez-votre-numerique-avec-la-version-complete-du-winx-dvd-ripper-platine-achat-et-mise-a-niveau-inclusive/"><u>Améliorez Votre Numérique Avec La Version Complète Du WinX DVD Ripper Platine - Achat Et Mise À Niveau Inclusive!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/from-basics-to-advanced-crafting-powerful-instagram-hashtags-for-2024/"><u>From Basics to Advanced Crafting Powerful Instagram Hashtags for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-realme-12-pro-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Realme 12 Pro 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/new-contractor-takes-charge-of-supporting-apples-innovative-on-the-road-help-system-via-satellites/"><u>New Contractor Takes Charge of Supporting Apple's Innovative On-The-Road Help System via Satellites</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-resolve-windows-device-stall-error-0x887a0006/"><u>Steps to Resolve Windows Device Stall Error 0X887A0006</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-6-core-features-that-make-games-intriguing/"><u>The 6 Core Features That Make Games Intriguing</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/windows-10-troubleshooting-guide-eliminating-pnp-fatal-errors-for-smooth-operation/"><u>Windows 10 Troubleshooting Guide: Eliminating PNP Fatal Errors for Smooth Operation</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Swift Windows Document Reviewing Techniques"
-date: 2024-08-31T22:34:15.092Z
-updated: 2024-09-01T22:34:15.092Z
+date: 2024-10-29T16:00:07.775Z
+updated: 2024-11-05T16:00:01.154Z
 tags: 
   - screen-recording
   - ai video
@@ -50,9 +50,29 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
@@ -63,8 +83,12 @@ Step4 After a successful installation, find the file you want to preview and sel
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -73,9 +97,6 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -91,8 +112,12 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This guidepost is another testament that your PC has massive hidden abilities. With QuickLook for Windows, you can preview any document, image, or media file with a single click. And don’t forget to install the QuickLook plugins from GitHub to unlock the program’s full potential.
@@ -125,4 +150,26 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-comprehensive-techniques-to-download-thousands-of-tiktok-videos/"><u>[New] 2024 Approved Comprehensive Techniques to Download Thousands of TikTok Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-veritable-value-of-voice-podcasters-earnings-analysis-for-2024/"><u>[New] The Veritable Value of Voice Podcasters’ Earnings Analysis for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-dynamic-visuals-excellence-in-4k-action-capture/"><u>[Updated] 2024 Approved Dynamic Visuals Excellence in 4K Action Capture</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-swift-skills-sharpen-your-windows-images/"><u>[Updated] In 2024, Swift Skills Sharpen Your Windows Images</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unleashing-your-iphone-the-top-techniques-for-skyline-pics-for-2024/"><u>[Updated] Unleashing Your iPhone The Top Techniques for Skyline Pics for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-quintessential-stop-motion-films-a-top-15-list/"><u>2024 Approved Quintessential Stop-Motion Films A Top 15 List</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-survival-in-mc-top-house-ideas-and-plans/"><u>2024 Approved Survival in MC Top House Ideas & Plans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-the-fusion-of-style-and-smart-technology-in-samsung-un6-65ru8000fxza-series-reviewed/"><u>Exploring the Fusion of Style and Smart Technology in Samsung UN6 65RU8000FXZA Series Reviewed</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/guia-paso-a-paso-para-realizar-una-copia-de-seguridad-efectiva-de-tus-contactos-en-microsoft-outlook-365/"><u>Guía Paso a Paso Para Realizar Una Copia De Seguridad Efectiva De Tus Contactos en Microsoft Outlook 365</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/hd-visionary-restoring-media-magic/"><u>HD Visionary: Restoring Media Magic</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/highlight-effects-assessment-essential-or-excessive-for-2024/"><u>Highlight Effects Assessment Essential or Excessive for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-fade-audio-in-lumafusion-for-2024/"><u>How To Fade Audio In Lumafusion for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/iphone-pro-photography-mastery-of-leading-lines/"><u>IPhone Pro Photography Mastery of Leading Lines</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-dimming-audio-with-audacity-for-2024/"><u>Mastering Dimming Audio with Audacity for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movavi-mp4m4v/"><u>Movavi의 MP4/M4V 형식 동일성을 위해 사용자가 조작할 수 있는 무료 변환기 - 오픈 소스 라이브</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/selecting-the-perfect-drone-stabilizer-a-guide-for-2024/"><u>Selecting the Perfect Drone Stabilizer A Guide for 2024</u></a></li>
+<li><a href="https://win-trending.techidaily.com/struggling-to-locate-the-recycle-bin-in-windows-11-discover-these-7-effective-fixes/"><u>Struggling to Locate the Recycle Bin in Windows 11? Discover These 7 Effective Fixes!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-conundrum-of-coherence-in-artificial-minds-addressing-alignment-control-in-ai-systems/"><u>The Conundrum of Coherence in Artificial Minds: Addressing Alignment Control in AI Systems</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unraveling-the-enthralling-elements-of-filmora-editing-for-2024/"><u>Unraveling the Enthralling Elements of Filmora Editing for 2024</u></a></li>
+</ul></div>
 

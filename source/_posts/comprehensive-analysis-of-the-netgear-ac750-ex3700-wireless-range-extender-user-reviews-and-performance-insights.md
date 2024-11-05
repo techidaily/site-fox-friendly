@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the Netgear AC750 EX3700 Wireless Range Extender: User Reviews & Performance Insights"
-date: 2024-10-27T20:11:44.428Z
-updated: 2024-10-30T17:38:11.367Z
+date: 2024-11-01T16:00:57.155Z
+updated: 2024-11-05T16:02:57.342Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the Netgear AC750 EX3700 Wireless Range Extender: User Reviews & Performance Insights"
@@ -46,22 +46,15 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -82,6 +75,13 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -89,6 +89,13 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -106,13 +113,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -120,6 +120,13 @@ Lifewire / Erika Rawes
  When I loaded up the network with several of the devices in my home—more than 30 smart home products, gaming PCs, laptops, consoles, streaming devices, smart TVs, and phones—I started to experience a noticeable slowdown. This is not the best router for gaming or for those who use multiple connected devices simultaneously. The C80 would be ideal for homes with light to moderate networking demands.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -139,14 +146,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Price: Around 100 bucks**
 
@@ -161,13 +168,6 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,18 +204,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-8-must-have-macbook-wallpaper-apps/"><u>[Updated] 2024 Approved 8 Must-Have MacBook Wallpaper Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-harmonize-with-inshots-music-load-functionality/"><u>[Updated] In 2024, Harmonize with InShot's Music Load Functionality</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-turning-tails-into-heads-android-video-editing/"><u>[Updated] Turning Tails Into Heads Android Video Editing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-your-step-by-step-journey-to-professional-image-uploads-on-youtube-for-2024/"><u>[Updated] Your Step-by-Step Journey to Professional Image Uploads on YouTube for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/audible-brilliance-the-ultimate-mic-guide-for-2024/"><u>Audible Brilliance The Ultimate Mic Guide for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/beginners-blueprint-for-earnings-in-periscope-livestreams-for-2024/"><u>Beginner's Blueprint for Earnings in Periscope Livestreams for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expand-your-systems-memory-fixing-the-not-enough-storage-error/"><u>Expand Your System's Memory: Fixing the Not-Enough-Storage Error</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-capturing-your-touch-top-8-free-android-recorders/"><u>In 2024, Capturing Your Touch Top 8 Free Android Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-master-your-image-transformation-with-complete-facetune-guide/"><u>In 2024, Master Your Image Transformation with Complete Facetune Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-unlocking-your-youtube-potential-through-brand-partnerships/"><u>In 2024, Unlocking Your YouTube Potential Through Brand Partnerships</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pioneering-tech-in-adventure-camera-gear-for-2024/"><u>Pioneering Tech in Adventure Camera Gear for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/windows-10-meets-the-future-new-amd-radeon-hd-6950-driver-release/"><u>Windows 10 Meets the Future: New AMD Radeon HD 6950 Driver Release</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-discover-7-essential-free-audio-tracks-for-youtubers/"><u>[New] 2024 Approved Discover 7 Essential Free Audio Tracks for YouTubers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-moviemakermag-comprehensive-editor-review/"><u>[New] 2024 Approved MovieMakerMag Comprehensive Editor Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-ultimate-guide-to-instagrams-square-videos-using-imovie/"><u>[New] In 2024, The Ultimate Guide to Instagram's Square Videos Using iMovie</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-complete-circular-camera-investigation/"><u>2024 Approved Complete Circular Camera Investigation</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-excellent-low-cost-webcam-snipper-app/"><u>2024 Approved Excellent Low-Cost Webcam Snipper App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-premium-portals-best-websites-to-secure-snapalert-beats/"><u>2024 Approved Premium Portals Best Websites to Secure SnapAlert Beats</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-superior-selections-pro-webcam-stabilizers/"><u>2024 Approved Superior Selections Pro Webcam Stabilizers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unmissable-vr-storytelling-masterpieces/"><u>2024 Approved Unmissable VR Storytelling Masterpieces</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/1725284478898-dvd/"><u>市販DVDの簡単なダビングテクニック -無料ガイド-</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-amd-gpu-revival-suite/"><u>In 2024, AMD GPU Revival Suite</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-ultimate-list-of-best-camcorders-2024-edition/"><u>The Ultimate List of Best Camcorders – 2024 Edition</u></a></li>
 </ul></div>
 

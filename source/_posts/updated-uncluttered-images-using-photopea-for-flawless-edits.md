@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Uncluttered Images  Using Photopea for Flawless Edits\""
-date: 2024-08-31T22:37:17.748Z
-updated: 2024-09-01T22:37:17.748Z
+date: 2024-10-31T06:16:31.526Z
+updated: 2024-11-05T05:07:59.600Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,27 @@ Step4 Next, find the **"Tolerance"** option in the top toolbar and increase its 
 
 ![adjusting the magic wand settings](https://images.wondershare.com/filmora/article-images/2023/03/adjusting-the-magic-wand-settings.png)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How To Use Magic Cut To Remove The Image's Background
 
@@ -65,8 +85,12 @@ You can modify the brush size using the drop-down icon at the top-right of the w
 ![using magic cut to remove image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/using-magic-cut-to-remove-image-background-in-photopea.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Step4 Once satisfied with your changes, click **"OK"** to save your settings and remove the background.
 
 ### 3\. Select the Subject Manually When The Image Is Detailed
@@ -81,9 +105,23 @@ Step2 Now, choose the selection tool you need from the drop-down menu. For this 
 
 ![manually removing the image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/manually-removing-the-image-background-in-photopea.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 In the next step, select your object as precisely as possible. Now, right-click on your selection, and click **"Inverse"** from the drop-down menu.
 
 Step4 Finally, hit the **"Delete"** button to remove the background.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A Bonus Tip: How To Add The New Background After Removing The Image's Background
 
@@ -95,9 +133,6 @@ Step1 Click the **"File"** option from the top menu and select **"Open & Place..
 
 ![adding new background to image in photopea](https://images.wondershare.com/filmora/article-images/2023/03/adding-new-background-to-image-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 Step2 Choose the new background image from your system and click **"Open"** to import it to **"Photopea."**
 
 Step3 Now, click the **"Edit"** option from the top menu and select **"Transform" > "Scale."** Drag the handles to resize the background image and click **"Enter"** to apply the changes.
@@ -105,8 +140,12 @@ Step3 Now, click the **"Edit"** option from the top menu and select **"Transform
 ![scaling the new background image](https://images.wondershare.com/filmora/article-images/2023/03/scaling-the-new-background-image.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Step4 Under the **"Layers"** header in the right panel, drag the new image layer below the object layer, and the background will be applied to your object.
 
 ## The Best Photopea's Alternative To Remove The Image's Background
@@ -114,15 +153,16 @@ Step4 Under the **"Layers"** header in the right panel, drag the new image layer
 If you want to remove the BG of an image with just one click or of images in bulk, then Wondershare [PixCut](https://pixcut.wondershare.com/) is the best alternative option to Photopea, as it meets all these criteria. Below we've provided the reasons why this tool is the right option:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### AI-Based Background Remover
 
 PixCut's Artificial Intelligence-based background remover can erase the background of your images in just a few clicks. You can also use the **"Bulk Remove BG"** feature to erase the background of pictures in bulk.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Image Resizer
 
 With its Image Resizer tool, you can make your image smaller or larger in size to fulfill your requirements.
@@ -131,9 +171,6 @@ With its Image Resizer tool, you can make your image smaller or larger in size t
 
 PixCut also offers the "Erase & Restore" tool to help you remove or restore certain parts of your image after removing the background using the AI-based tool.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### Background Change
 
 PixCut gives you the option to change the removed background to something more unique using the presets available on the platform or by adding your own templates/images.
@@ -149,8 +186,12 @@ PixCut also removes watermarks from your pictures, allowing you to bypass copyri
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## You May Be Interested In: How To Get Free Images
 
 Hopefully, you've found this guide helpful and can now make changes to your image's background without much effort. Last but not least, we have provided you with a video how to get more free images from a user-friendly video editor - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). If you have any interests, you can watch it:
@@ -159,9 +200,6 @@ Hopefully, you've found this guide helpful and can now make changes to your imag
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've explored **how to remove an image's background with Photopea** using the Magic Wand and Magic Cut tools or by manual selection. We've also explained how you can add a new background to your image file after removing the old one.
@@ -172,9 +210,6 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've explored **how to remove an image's background with Photopea** using the Magic Wand and Magic Cut tools or by manual selection. We've also explained how you can add a new background to your image file after removing the old one.
@@ -203,4 +238,18 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-make-my-video-perfectly-fit-instagram/"><u>[New] Make My Video Perfectly Fit Instagram?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-guide-to-advanced-whatsapp-usage-for-2024/"><u>[New] The Ultimate Guide to Advanced WhatsApp Usage for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-mkv-player-for-windows-and-mobile-for-2024/"><u>[New] Ultimate MKV Player for Windows & Mobile for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-exploring-luts-for-sophisticated-photographic-changes/"><u>[Updated] 2024 Approved Exploring LUTs for Sophisticated Photographic Changes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-expert-tips-on-sharing-colossal-video-content-ios-to-mac-connection/"><u>[Updated] In 2024, Expert Tips on Sharing Colossal Video Content IOS to Mac Connection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-ultimate-guide-to-stretched-seconds-capturing-slow-mo-videos-using-mobile-apps-and-internet-platforms/"><u>[Updated] In 2024, The Ultimate Guide to Stretched Seconds Capturing Slow-Mo Videos Using Mobile Apps and Internet Platforms</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-targeted-success-using-snapads-for-business-growth/"><u>[Updated] Targeted Success Using SnapAds for Business Growth</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-no-8-advanced-online-photographic-merge-suite/"><u>2024 Approved No. 8 Advanced Online Photographic Merge Suite</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-insights-on-gadgets-and-computer-components-by-toms-hardware-experts/"><u>Expert Insights on Gadgets and Computer Components by Tom's Hardware Experts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-best-ios-camera-apps-to-elevate-your-iphone-imagery-for-2024/"><u>The Best iOS Camera Apps to Elevate Your iPhone Imagery for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-enhancements-in-windows-11-unveiled/"><u>The Enhancements in Windows 11 Unveiled</u></a></li>
+</ul></div>
 

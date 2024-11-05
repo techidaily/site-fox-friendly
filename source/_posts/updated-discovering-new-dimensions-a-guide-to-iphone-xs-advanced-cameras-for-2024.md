@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Discovering New Dimensions  A Guide to iPhone X's Advanced Cameras for 2024\""
-date: 2024-10-27T19:59:07.277Z
-updated: 2024-10-30T17:03:04.537Z
+date: 2024-10-30T16:03:24.082Z
+updated: 2024-11-05T16:02:29.869Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/71c1b0d0d145dc4c00dc6d938d03b70bdf9ec4a87
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
@@ -74,16 +74,17 @@ thumbnail: https://thmb.techidaily.com/71c1b0d0d145dc4c00dc6d938d03b70bdf9ec4a87
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -93,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/71c1b0d0d145dc4c00dc6d938d03b70bdf9ec4a87
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -108,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/71c1b0d0d145dc4c00dc6d938d03b70bdf9ec4a87
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -141,19 +135,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-prime-edition-ai-graphic-mastery-software/"><u>[New] 2024 Approved Prime Edition AI Graphic Mastery Software</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-discover-the-13-essential-earning-tactics-for-novices-on-reddit/"><u>[New] Discover the 13 Essential Earning Tactics for Novices on Reddit</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-boxed-insights-unpacking-effective-strategy/"><u>[New] In 2024, Boxed Insights Unpacking Effective Strategy</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-smooth-snapshot-mastery-eliminate-shakes-for-2024/"><u>[New] Smooth Snapshot Mastery - Eliminate Shakes for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-future-unfurled-an-insight-into-benq-sw320s-4k-display-for-2024/"><u>[New] The Future Unfurled An Insight Into BenQ SW320's 4K Display for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-essential-guide-to-8-best-free-and-paid-videomosaic-tools-on-android/"><u>[Updated] 2024 Approved The Essential Guide to #8 Best Free & Paid Videomosaic Tools on Android</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-interest-to-action-formulating-video-topics-with-google-trends-for-2024/"><u>[Updated] From Interest to Action Formulating Video Topics with Google Trends for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/essential-public-domain-20-top-pubg-slideshows/"><u>Essential Public Domain 20 Top PUBG Slideshows</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo A58 4G? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-periscope-basics-understanding-costs-benefits-and-account-creation/"><u>In 2024, Periscope Basics Understanding Costs, Benefits & Account Creation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/navigating-netizens-youtubes-footprint-in-facebook/"><u>Navigating Netizens YouTube’s Footprint in Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/outdoor-video-equipment-guide/"><u>Outdoor Video Equipment Guide</u></a></li>
-<li><a href="https://network-issues.techidaily.com/taming-fallout-4-pc-issues-effortlessly/"><u>Taming Fallout 4 PC Issues Effortlessly</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-league-of-legends-voice-communication-issues/"><u>Troubleshooting Guide: Fixing League of Legends Voice Communication Issues</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-desktops-in-focus-free-capture-tutorials/"><u>[Updated] 2024 Approved Desktops in Focus - Free Capture Tutorials</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-simplified-systems-for-saving-screen-calls-for-2024/"><u>[Updated] Simplified Systems for Saving Screen Calls for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elite-9-access-privileged-video-downloads/"><u>2024 Approved Elite 9 Access Privileged Video Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-snap-instantly-with-iphone-time-lapse-tips/"><u>2024 Approved Snap Instantly with iPhone Time Lapse Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/android-and-iphones-leading-facelift-technology/"><u>Android & iPhone's Leading Facelift Technology</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-free-meme-templates/"><u>Best Free Meme Templates</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/capture-coastlines-best-surfer-cams/"><u>Capture Coastlines Best Surfer Cams</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comprehensive-overview-merging-srt-with-mp4-files-and-videos-for-2024/"><u>Comprehensive Overview Merging SRT with MP4 Files and Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cross-platform-commerce-innovation/"><u>Cross-Platform Commerce Innovation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-creativity-high-quality-ae-samples-without-fee/"><u>Cutting-Edge Creativity High-Quality AE Samples Without Fee</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/decoding-the-dichotomy-between-tiktok-and-its-alternative-triller-for-2024/"><u>Decoding the Dichotomy Between TikTok and Its Alternative, Triller for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/digital-diagnosis-the-vll-perspective-on-apps-for-2024/"><u>Digital Diagnosis The VLL Perspective on Apps for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratuit-converting-avi-to-mp4-en-ligne-avec-movavi-easy-and-fast/"><u>Gratuit Converting AVI to MP4 en Ligne Avec Movavi - Easy & Fast!</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-zte-blade-a73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/on-youtube-initiating-your-chanel-and-earning-pathway-for-2024/"><u>Rise on YouTube Initiating Your Chanel & Earning Pathway for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/alksa-alastorya-4-braaam-crucial-ssd-alhasm-ishrafk-oaamlyat-alakhtyar/"><u>القصة الأسطورية 4 براعم Crucial SSD الحاسم: إشرافك وعمليات الاختيار</u></a></li>
 </ul></div>
 

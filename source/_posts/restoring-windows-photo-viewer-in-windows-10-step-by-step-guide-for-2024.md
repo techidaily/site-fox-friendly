@@ -1,7 +1,7 @@
 ---
 title: "\"Restoring Windows Photo Viewer in Windows 10  Step-by-Step Guide for 2024\""
-date: 2024-08-31T22:36:23.314Z
-updated: 2024-09-01T22:36:23.314Z
+date: 2024-10-29T22:26:58.817Z
+updated: 2024-11-04T18:08:11.132Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -65,13 +72,24 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -86,36 +104,25 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -139,4 +146,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweeted-cinematics-from-video-to-wavmp3/"><u>[New] 2024 Approved Tweeted Cinematics From Video to WAV/MP3</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-enhance-your-gameplay-with-the-new-lg-27uhd68-sync-edition/"><u>[New] Enhance Your Gameplay with the New LG 27UHD68 Sync Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ghostly-gag-gallery/"><u>[New] Ghostly Gag Gallery</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-supercharge-your-yi-4k-videos-with-pro-gear/"><u>[New] Supercharge Your YI 4K Videos with Pro Gear</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-notrace-remover-ultimate-background-cleanse-for-2024/"><u>[Updated] NoTrace Remover Ultimate Background Cleanse for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-share-smiles-and-photos-iphones-for-2024/"><u>[Updated] Share Smiles & Photos (iPhones) for 2024</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/die-top-4-techniken-zur-sicherung-von-yahoo-emails-auf-dem-desktop-eine-umfassende-anleitung/"><u>Die Top 4 Techniken Zur Sicherung Von Yahoo Emails Auf Dem Desktop: Eine Umfassende Anleitung</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-tecno-pova-5-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Tecno Pova 5 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-12-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 12 to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-nubia-red-magic-8s-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Nubia Red Magic 8S Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-budget-friendly-microphones-for-online-broadcasters/"><u>In 2024, Budget-Friendly Microphones for Online Broadcasters</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-the-editors-shadows-top-tips-for-outstanding-videos-for-2024/"><u>In the Editor's Shadows Top Tips for Outstanding Videos for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolve-your-document-editing-hurdles-top-5-fixes-for-winwordexe-malfunctions/"><u>Resolve Your Document Editing Hurdles: Top 5 Fixes for winword.exe Malfunctions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/top-8-zero-cost-3d-plugins-the-ideal-pick-for-pcmac-users/"><u>Top 8 Zero-Cost 3D Plugins The Ideal Pick for PC/Mac Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unlocking-speed-instant-signature-background-cleanup/"><u>Unlocking Speed Instant Signature Background Cleanup</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Navigating Timecodes and Text in SRT with macOS"
-date: 2024-10-23T22:50:12.042Z
-updated: 2024-10-30T16:10:41.725Z
+date: 2024-11-03T16:02:22.481Z
+updated: 2024-11-05T16:01:55.820Z
 tags: 
   - screen-recording
   - ai video
@@ -87,6 +87,13 @@ Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + C
 
 Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Open SRT files with VLC Media on Mac
 
 VLC Media is one of the most popular media players for different operating systems, including macOS devices. You can use it to play your videos in different formats. Users can play the video projects with SRT formatted files after merging them.
@@ -119,6 +126,13 @@ Keep both the video you are adding the SRT into and the downloaded SRT file in o
 
 ![keep both video and srt file in one folder](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
 
 ![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
@@ -128,6 +142,13 @@ Step4 The video will begin playing. Go to the menu bar and click on the Subtitle
 ![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
 
 Step5 Choose the SRT file from your device and then load it.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
 
@@ -158,6 +179,13 @@ Here, you can add a file of any length or size for quick edits and see the plain
 Step1 Open HappyScribe through your preferred browser. Press the Upload a File option to choose the MP4 file for burning the SRT file.
 
 ![press the upload a file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
 
@@ -197,13 +225,6 @@ Step7 Click on the Windows tab > Properties and make adjustments to the file.
 
 ![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
 
 While all of the solutions given in Part 2 allow you to access SRT files on Mac, the editing benefits are limited. Instead, you can opt for an efficient video editing software like Filmora if you are wondering **how to create SRT file on Mac** and then edit it. The software supports SRT files for viewing, formatting, editing, and more.
@@ -236,16 +257,16 @@ Step4 Make customizations, like changing the text, editing the timecode, adjusti
 
 ![press ok after you are done](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -388,19 +409,6 @@ Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SR
 
 ![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Make changes to the text color, caption, position, and font, as needed.
 
 Step4 Press the “Add Subtitle” button. It will insert into the MP4 within some minutes. The file will then automatically download into your Mac device.
@@ -419,23 +427,9 @@ Step2 Click on the “Select Caption Files” option and press the “SELECT .SR
 
 ![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Choose the output format for the file. Choose QT available in the fourth spot.
 
 ![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 After rechecking that you chose the right format, add your email address; you will receive the translated QT formatted file there. Press the Convert button to activate the conversion process.
 
@@ -450,10 +444,23 @@ Step7 Click on the Windows tab > Properties and make adjustments to the file.
 ![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
@@ -476,6 +483,13 @@ Step1 Launch Filmora on Mac and click on New Project. Add the video file and dra
 
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Click on the Media tab and import the SRT file.
 
 Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit option.
@@ -491,20 +505,6 @@ Step4 Make customizations, like changing the text, editing the timecode, adjusti
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -542,19 +542,20 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-best-radio-drama-scripts/"><u>[New] 2024 Approved Best Radio Drama Scripts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-conceptualize-entertaining-posts-in-adobe-for-2024/"><u>[New] Conceptualize Entertaining Posts in Adobe for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-gearing-up-for-youtube-success-cross-platform-strategies/"><u>[New] In 2024, Gearing Up for YouTube Success Cross-Platform Strategies</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-discover-top-tier-clicker-games-for-a-fulfilling-pc-experience-for-2024/"><u>[Updated] Discover Top-Tier Clicker Games for a Fulfilling PC Experience for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-elite-display-decoded-examining-samsungs-ue590-monitor/"><u>[Updated] Elite Display Decoded Examining Samsung's UE590 Monitor</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-enhancing-visual-fidelity-in-ar-utilizing-custom-luts/"><u>[Updated] In 2024, Enhancing Visual Fidelity in AR Utilizing Custom LUTs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-mobile-and-desktop-audiospeed-alteration-essentials/"><u>[Updated] In 2024, Mobile & Desktop Audiospeed Alteration Essentials</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unwrapping-ustreams-offerings-and-competitors/"><u>[Updated] In 2024, Unwrapping Ustream's Offerings and Competitors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-wholesome-wheezes-your-easy-peasy-meme-manual/"><u>[Updated] Wholesome Wheezes Your Easy-Peasy Meme Manual</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/diy-fixes-for-lenovos-malfunctioning-secure-access-system/"><u>DIY Fixes for Lenovo's Malfunctioning Secure Access System</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/master-soft-shots-with-top-blur-mobile-tools-for-2024/"><u>Master Soft Shots with Top Blur Mobile Tools for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/er-video-breakdown-fifa-analysis-graphs/"><u>Premier Video Breakdown FIFA Analysis Graphs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/when-engaging-with-ais-like-chatgpt-alexa-and-siri-do-manners-matter/"><u>When Engaging with AIs Like ChatGPT, Alexa, and Siri – Do Manners Matter?</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-twitter-takes-the-lead-the-most-shared-content-of-the-day/"><u>[New] 2024 Approved Twitter Takes the Lead The Most Shared Content of the Day</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-enhance-footage-quality-with-premium-handheld-stabilizers/"><u>[Updated] In 2024, Enhance Footage Quality with Premium Handheld Stabilizers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/10-innovative-screencasting-solutions-for-modern-teachers/"><u>10 Innovative Screencasting Solutions for Modern Teachers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-is-an-m1-enabled-laptop-a-worthwhile-investment-for-editors/"><u>2024 Approved Is an M1-Enabled Laptop a Worthwhile Investment for Editors?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-moto-cams-best-top-5-hats-for-riders/"><u>2024 Approved Moto Cam's Best Top 5 Hats for Riders</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-perfect-crossfading-techniques-using-audacity/"><u>2024 Approved Perfect Crossfading Techniques Using Audacity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-sky-surfing-in-hd-with-the-yuneec-drone-review/"><u>2024 Approved Sky Surfing in HD with the Yuneec Drone Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-video-resolution-converter-for-desktop-or-online/"><u>2024 Approved Top Video Resolution Converter for Desktop or Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-unlocking-audio-potential-download-plus-install-guide-for-vrecorder/"><u>2024 Approved Unlocking Audio Potential - Download + Install Guide for VRecorder</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-vibrant-plumage-and-agile-maneuvers-bebops-parrot-tale/"><u>2024 Approved Vibrant Plumage and Agile Maneuvers Bebop’s Parrot Tale</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-analyzing-lightroom-for-mobile-a-detailed-exploration/"><u>In 2024, Analyzing Lightroom for Mobile A Detailed Exploration</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-cinema-kings-and-queens-iphones-leading-8-freepluspaid-watching-options/"><u>In 2024, Cinema Kings & Queens IPhone's Leading 8 FREE+Paid Watching Options</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-honor-x8b-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Honor X8b</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/1715834810784-quick-guide-to-incor-written-as-a-python-list-which-represents-the-30-titles-above-the-elements-of-this-list-should-be-strings-that-are-already-complete-sen/"><u>Quick Guide to Incor Written as a Python List, Which Represents the 30 Titles Above. The Elements of This List Should Be Strings that Are Already Complete Sentences and Adhere to the Given Constraints. Ensure No Title Exceeds 156 Characters for 2024</u></a></li>
 </ul></div>
 

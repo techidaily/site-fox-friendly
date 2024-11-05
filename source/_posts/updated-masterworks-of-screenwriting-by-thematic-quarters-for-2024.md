@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Masterworks of Screenwriting by Thematic Quarters for 2024"
-date: 2024-10-27T19:33:19.871Z
-updated: 2024-10-30T18:57:01.081Z
+date: 2024-11-01T16:03:39.463Z
+updated: 2024-11-05T16:03:31.074Z
 tags: 
   - screen-recording
   - ai video
@@ -66,13 +66,6 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Writer:** John Carpenter and Debra Hill
 
 This script was written by **John Carpenter and Debra Hill** in just ten days (or three weeks, depending on which version you hear). Either way, it's a very short amount of time to create one of the greatest horror scripts of all time.
@@ -80,6 +73,19 @@ This script was written by **John Carpenter and Debra Hill** in just ten days (o
 Part of its enduring appeal is the simplicity of its concept: A kid who murdered his babysitter escapes from a mental institution to pursue the babysitter and her friends, all while being pursued by his psychiatrist. This logline virtually writes the script itself, so in that sense it's no wonder Carpenter and Hill were able to knock it out so quickly.
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Best comedy scripts
 
@@ -107,6 +113,13 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best Christmas play scripts
 
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
@@ -122,13 +135,6 @@ When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister 
 _**2\. Angel's Poinsettia**_
 
 ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Writer:** Sally Painter
 
@@ -208,6 +214,13 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best action scripts
 
 **_1\. 2 Guns_**
@@ -229,13 +242,6 @@ _**2\. Casino Royale**_
 Secret Agent James Bond sets out on a mission as 007 in a screenplay that can show writers how to keep audiences guessing.
 
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Best thriller scripts
 
@@ -302,6 +308,13 @@ Have you ever stored various videos and photos on a memory card or on the comput
 The key features offered by [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) include 4K editing support, GIF support, noise removal, color tuning, advanced text editor, audio mixer, video stabilization,[scene detection](https://tools.techidaily.com/wondershare/filmora/download/), and an audio equalizer.
 
 ![make a video with wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-17.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The 4K editing support feature enables users to edit and export videos at a resolution of up to 4K. The GIF support feature allows importing, editing, and exporting of GIF files. The noise removal feature facilitates removal of unwanted background noise readily.
 
@@ -357,6 +370,13 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
 
 The script of 21 Jump Street gives a new twist to the Buddy action movie genre by giving comedy equal weight to action. It takes the premise of the original TV show but flips the tone from straightforward action to offbeat comedy. Always think, “How can I subvert genres? How can I mix genres and create something new?
@@ -377,25 +397,11 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Best Christmas play scripts
 
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
 
 ![a christmas carol is large cast](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _**Writer:**_ [Charles Dickens](https://en.wikipedia.org/wiki/Charles%5FDickens)
 
@@ -406,6 +412,13 @@ When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister 
 _**2\. Angel's Poinsettia**_
 
 ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writer:** Sally Painter
 
@@ -457,13 +470,6 @@ Suitable for: _All ages_
 
 ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
 **Download the script here:** <https://offthewallplays.com/2016/12/24/gift-ten-minute-play-for-two-actors/>
@@ -488,13 +494,6 @@ Level of difficulty: _6/10 – conversational, easy lines to remember and that a
 
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
@@ -514,6 +513,13 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 _**2\. Casino Royale**_
 
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writers:** Robert Wade and Paul Haggis
 
@@ -555,13 +561,6 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
 The money Cinderella made from its release, subsequent record sales, publishing, and merchandise profits provided Walt Disney with the opportunity to finance a myriad of projects including starting his own distribution company, entering television production, and creating Disneyland. In 1950, the production cost of Cinderella exceeded an incredible $3 million.
@@ -600,6 +599,13 @@ The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) f
 
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Creating video content that can potentially go viral is no longer a complicated process that takes an enormous amount of time and effort. Each of the scripts we featured in this article offers more than enough brilliant scripts that are going to impress your target audience. Make your own short movies and script plays using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and checks out additional features explained in the article.
@@ -628,18 +634,17 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-infusing-sound-into-your-photography/"><u>[New] 2024 Approved Infusing Sound Into Your Photography</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-top-notch-voice-alteration-for-valorant-players-available-at-zero-cost/"><u>[New] 2024 Approved Top Notch Voice Alteration for Valorant Players - Available at Zero Cost</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-content-creators-den/"><u>[Updated] In 2024, Content Creator's Den</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-photography-revolution-toolwizs-2023-app-insights/"><u>[Updated] In 2024, Photography Revolution Toolwiz's 2023 App Insights</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-streamtech-analysis-rethinking-the-standard-choice-for-2024/"><u>[Updated] Streamtech Analysis Rethinking the Standard Choice for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-canon-mp280-printer-drivers-compatible-with-windows-10-8-and-7/"><u>Download Canon MP280 Printer Drivers: Compatible with Windows 10, 8 & 7</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-on-your-iphone-14-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock on your iPhone 14 and iPad</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oneplus-ace-2-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On OnePlus Ace 2</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/ideal-matches-mac-and-pc-video-decoders-freepaid/"><u>Ideal Matches Mac & PC Video Decoders (FREE/PAID)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/iphone-and-ipad-screen-recording-top-methods-of-2023/"><u>IPhone & iPad Screen Recording Top Methods of 2023</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pickup-vs-the-rest-which-dominates-in-androids-photo-editing-field/"><u>PickUp Vs. The Rest Which Dominates in Android's Photo Editing Field</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Vivo Y100i Power 5G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-the-best-new-and-popular-max-documentaries-in-july-2024/"><u>Unveiling the Best New and Popular Max Documentaries in July 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-cutting-edge-earning-analyzers-for-tiktok-stars/"><u>[New] Cutting-Edge Earning Analyzers for TikTok Stars</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-storage-space-used-for-daily-extended-videography/"><u>2024 Approved Storage Space Used for Daily Extended Videography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/audacitys-toolkit-for-exceptional-sound-recording-for-2024/"><u>Audacity's Toolkit for Exceptional Sound Recording for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/behind-the-colorscape-a-look-at-hps-z32-x/"><u>Behind the Colorscape A Look at HP’s Z32 X</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/choose-right-gopro-hero5-vs-garmin-virb-updated-22-for-2024/"><u>Choose Right GoPro Hero5 Vs. Garmin VIRB (Updated '22) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/choreographing-gripping-podcast-openings/"><u>Choreographing Gripping Podcast Openings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-tools-for-optimal-yt-titles-for-2024/"><u>Cutting-Edge Tools for Optimal YT Titles for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/enthralling-type-mobility-setups/"><u>Enthralling Type Mobility Setups</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-pour-linstallation-de-comment-installer-handbrake-plus-libdvdcss-sur-macwindows-10-pour-le-detournage-dvd/"><u>Guide Pour L'installation De Comment Installer HandBrake + LibDVDCSS Sur Mac/Windows 10 Pour Le Détournage DVD</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-realme-v30t-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-hot-30-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Infinix Hot 30 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
 </ul></div>
 

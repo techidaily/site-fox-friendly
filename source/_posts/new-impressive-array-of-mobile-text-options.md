@@ -1,7 +1,7 @@
 ---
 title: "[New] Impressive Array of Mobile Text Options"
-date: 2024-10-23T16:47:04.710Z
-updated: 2024-10-30T21:37:51.093Z
+date: 2024-10-31T16:06:27.351Z
+updated: 2024-11-05T16:00:52.728Z
 tags: 
   - screen-recording
   - ai video
@@ -40,16 +40,10 @@ You get 110 animated elements that you can apply to the text in your video. The 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
@@ -71,10 +65,10 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -84,16 +78,10 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -103,10 +91,10 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -116,10 +104,10 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -156,24 +144,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchat-success-top-ideas-for-memorable-snaps/"><u>[New] 2024 Approved Snapchat Success Top Ideas for Memorable Snaps</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-video-vanguard-10-web-based-hd-recording-tools/"><u>[New] 2024 Approved Video Vanguard #10 Web-Based HD Recording Tools</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-grasping-the-heart-of-narrative-design/"><u>[New] Grasping the Heart of Narrative Design</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-total-earning-summary-for-pewdiepie-star-for-2024/"><u>[New] Total Earning Summary for PewDiePie Star for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-maximize-your-fb-watching-with-top-firefox-addons-and-downloaders/"><u>[Updated] 2024 Approved Maximize Your FB Watching with Top Firefox Addons and Downloaders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-skyline-pixel-boost-pro-windowsmac-suite/"><u>[Updated] 2024 Approved Skyline Pixel Boost Pro Windows/Mac Suite</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-masterclass-on-uploading-youtube-vids-to-fb-groups/"><u>[Updated] In 2024, Masterclass on Uploading YouTube Vids to FB Groups</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-layer-chords-over-ppt-slides-for-2024/"><u>[Updated] Layer Chords over PPT Slides for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-silence-by-design-techniques-for-gradually-dimming-soundtracks-in-premiere-pro-for-2024/"><u>[Updated] Silence by Design Techniques for Gradually Dimming Soundtracks in Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-essence-of-ffmpeg-original-audio-capture/"><u>[Updated] The Essence of FFmpeg Original Audio Capture</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-unparalleled-8-webcams-elevate-your-livestream-experience-for-2024/"><u>[Updated] Unparalleled 8 Webcams Elevate Your Livestream Experience for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/a6400s-visual-void-finding-video-fix-for-2024/"><u>A6400's Visual Void - Finding Video Fix for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/androids-new-frontier-the-impact-of-kinemaster-app/"><u>Android's New Frontier The Impact of KineMaster App</u></a></li>
-<li><a href="https://extra-information.techidaily.com/conjoin-video-streams-for-queue-curation-for-2024/"><u>Conjoin Video Streams for Queue Curation for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/discover-apples-best-vr-gaming-titles-on-your-phone-for-2024/"><u>Discover Apple's Best VR Gaming Titles on Your Phone for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/instagram-snapshot-of-an-enlightening-episode-for-2024/"><u>Instagram Snapshot of an Enlightening Episode for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/profound-team-development-through-top-linguistic-apps-selection/"><u>Profound Team Development Through Top Linguistic Apps Selection</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/sjcam-sj6-legend-action-camera-complete-review/"><u>SJCam SJ6 Legend Action Camera Complete Review</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723175681047-unveiling-the-power-of-akasa-gecko-a-top-notch-blow-cooler-for-your-ssd-reviewed-here/"><u>Unveiling the Power of Akasa Gecko: A Top-Notch Blow Cooler for Your SSD Reviewed Here</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-profiling-perfection-a-visual-guide/"><u>[New] 2024 Approved Profiling Perfection A Visual Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-empower-everyday-narratives-free-extensions-and-mobile-magic/"><u>[New] Empower Everyday Narratives – Free Extensions & Mobile Magic</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-best-economical-choice-high-performance-asmr-mic-picks/"><u>[New] In 2024, Best Economical Choice High-Performance ASMR Mic Picks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-mi-11-mini-your-gateway-to-professional-screen-recording/"><u>[New] In 2024, Mi 11 Mini Your Gateway to Professional Screen Recording</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-insights-into-smooth-sound-transitions-crossfade-for-2024/"><u>[New] Insights Into Smooth Sound Transitions (Crossfade) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-talking-texts-a-beginners-guide-to-animated-instagram-captions/"><u>[Updated] 2024 Approved Talking Texts A Beginner's Guide to Animated Instagram Captions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-explore-the-best-10-vectors-online-archives/"><u>[Updated] In 2024, Explore the Best 10 Vectors Online Archives</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-markets-best-gpus-for-uhd-video-processing-for-2024/"><u>[Updated] Market's Best GPUs for UHD Video Processing for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-confusion-to-clarity-your-telegram-web-guidebook/"><u>2024 Approved From Confusion to Clarity Your Telegram Web Guidebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhanced-imagery-at-your-fingertits-iphone-and-androids-sticker-boost-apps/"><u>Enhanced Imagery at Your Fingertits – iPhone and Android's Sticker-Boost Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-essential-basics-of-creating-compelling-haul-content/"><u>In 2024, Essential Basics of Creating Compelling Haul Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-navigating-to-sonic-treasures-downloading-app-based-audio-content/"><u>In 2024, Navigating to Sonic Treasures Downloading App-Based Audio Content</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-folder-inclusion-in-win11s-context-menu/"><u>Mastering Folder Inclusion in Win11's Context Menu</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-the-best-text-voice-generators-for-all-platforms-for-2024/"><u>New The Best Text Voice Generators for All Platforms for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-gym-goers-secret-weapon-perfecting-your-chatgpt-prompts-for-personal-training-success/"><u>The Gym Goer's Secret Weapon: Perfecting Your ChatGPT Prompts for Personal Training Success</u></a></li>
 </ul></div>
 

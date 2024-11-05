@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Analog Archives to Digital Epics  Creating Videos From Older Photographs\""
-date: 2024-10-28T19:09:27.000Z
-updated: 2024-10-30T17:42:28.612Z
+date: 2024-10-29T16:00:02.276Z
+updated: 2024-11-05T16:00:49.420Z
 tags: 
   - screen-recording
   - ai video
@@ -83,13 +83,6 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -111,10 +104,16 @@ Just above the timeline, you can find all kinds of tools to edit your video. For
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
@@ -133,6 +132,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
@@ -140,13 +146,6 @@ That’s it! After making all the changes, you can preview your video on the rig
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -177,15 +176,28 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -212,19 +224,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ethereal-editing-in-extended-frame-rate/"><u>[New] 2024 Approved Ethereal Editing in Extended Frame Rate</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-master-7-tiktok-tools-for-maximum-viral-growth/"><u>[New] 2024 Approved Master 7 TikTok Tools for Maximum Viral Growth</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-ultimate-cartoony-transformation-tools-for-pcs-and-macs-for-2024/"><u>[New] Ultimate Cartoony Transformation Tools for PCs & Macs for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-updated-review-sonys-blu-ray-and-hd-masterpiece/"><u>[Updated] 2024 Approved The Updated Review Sony's Blu-Ray and HD Masterpiece</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-updated-list-the-premier-pc-vr-headsets-of-2023/"><u>[Updated] 2024 Approved Updated List The Premier PC VR Headsets of 2023</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-immersive-home-theater-choosing-the-best-3d-players/"><u>[Updated] Immersive Home Theater Choosing the Best 3D Players</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-the-science-of-verbal-recording/"><u>[Updated] In 2024, Mastering the Science of Verbal Recording</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-essential-listings-the-leading-tv-streaming-houses/"><u>2024 Approved Essential Listings The Leading TV Streaming Houses</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/guide-easily-monitor-your-macbooks-core-heat/"><u>Guide: Easily Monitor Your MacBook's Core Heat</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-the-synergy-of-onlyoffice-docspace-and-chatgpt-revolutionizes-task-management/"><u>How the Synergy of ONLYOFFICE DocSpace and ChatGPT Revolutionizes Task Management</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/leveraging-chatgpts-power-in-the-world-of-3d-printing-techniques/"><u>Leveraging ChatGPT's Power in the World of 3D Printing Techniques</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211122991-9781952491450-the-ultimate-quest/"><u>The Ultimate Quest | Free Book</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-guide-to-overcoming-high-ping-issues-in-call-of-duty-warzone-version-20/"><u>Ultimate Guide to Overcoming High Ping Issues in Call of Duty: Warzone Version 2.0</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtubes-most-lucrative-star-title-for-2024/"><u>YouTube's Most Lucrative Star Title for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-practices-for-converting-webp-to-jpg-format/"><u>[Updated] In 2024, Best Practices for Converting WebP to JPG Format</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-comprehensive-overview-merging-srt-with-mp4-files-and-videos/"><u>2024 Approved Comprehensive Overview Merging SRT with MP4 Files and Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-navigating-advanced-sound-switching-techniques/"><u>2024 Approved Navigating Advanced Sound-Switching Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-panoramic-filmmaking-made-easy-9-key-techniques/"><u>2024 Approved Panoramic Filmmaking Made Easy 9 Key Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-perfect-date-trackers-for-your-wedding-ios-and-android-edition/"><u>2024 Approved Perfect Date Trackers for Your Wedding, iOS and Android Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-premium-unmanned-aerial-vehicles-for-gopro-recording/"><u>2024 Approved Premium Unmanned Aerial Vehicles for GoPro Recording</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-reviewing-the-impression-of-high-dynamic-range-on-aurora-tv/"><u>2024 Approved Reviewing the Impression of High Dynamic Range on Aurora TV</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-5-free-screen-recorders-on-windows-11-2023-update/"><u>2024 Approved Top 5 Free Screen Recorders on Windows 11-2023 Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/amplify-video-dynamics-a-guide-to-perfecting-jump-cutting-for-2024/"><u>Amplify Video Dynamics A Guide to Perfecting Jump Cutting for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/device-independent-intro-editing-excellence/"><u>Device-Independent Intro Editing Excellence</u></a></li>
+<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimize-gpt-experience-with-1-to-9-essentials/"><u>Optimize GPT Experience with #1 to #9 Essentials</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-eliminating-sound-from-mp4-videos-across-windows-macos-and-web-services/"><u>Step-by-Step Guide: Eliminating Sound From MP4 Videos Across Windows, macOS, and Web Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/form-videos-affordable-high-quality-effs-for-2024/"><u>Transform Videos - Affordable, High-Quality Effs for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Elevating Visual Clarity  Uncovering iPhone X’s Precision Camera\""
-date: 2024-08-31T22:34:04.272Z
-updated: 2024-09-01T22:34:04.272Z
+date: 2024-11-03T16:00:14.618Z
+updated: 2024-11-05T16:00:08.520Z
 tags: 
   - screen-recording
   - ai video
@@ -44,8 +44,19 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to use portrait mode
 
  Portrait mode uses your iPhone X’s telephoto lens kit to create images with “bokeh”-esque backgrounds and foregrounds. Portrait Lighting also comes as part of the Portrait Mode with the iPhone X, utilising both machine learning and the depth map of Portrait mode to add exceptional lighting effects to your photos in real time. When you shoot in Portrait mode, the wide-angle measures the difference between what it and the telephoto can see to offer a multi-point depth map. The depth map itself creates artificial depth of field.
@@ -65,25 +76,27 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  There are many great reasons for investing in the iPhone X if you are interested in carrying a high-end camera around in your pocket. The phone is the smallest yet to feature two 12MP rear-facing cameras, with the updated telephoto lens also being a big draw for many. The lens has been optically stabilised and had its aperture boosted to f/2.4 from f/2.8\. The phone is now able to offer vastly superior performance in low-light conditions, with the sensor having been completely rebuilt and a brand new image signal processor offering stunning colours and textures. In fact, the phone is able to perform convincingly in low-light conditions even when there are multiple light sources competing.
@@ -92,9 +105,6 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -118,4 +128,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://novels-ebooks.techidaily.com/210399450-9781087900766-i-am-the-mind-of-god-creation-a-world-of-words/"><u>''I AM'' The Mind of God: Creation: A World of Words | Free Book</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-gateway-guide-entering-the-world-of-photo-video-with-pixiz/"><u>[New] 2024 Approved The Gateway Guide Entering the World of Photo-Video with Pixiz</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-shine-and-share-the-art-of-crafting-instagram-spotlights-3-ways/"><u>[New] In 2024, Shine and Share The Art of Crafting Instagram Spotlights (3 Ways)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-snaptweet-transporter-swift-transfer-of-tweets-content-for-2024/"><u>[New] SnapTweet Transporter Swift Transfer of Tweets' Content for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-striding-forward-a-comprehensive-review-of-vr-walkers-for-2024/"><u>[New] Striding Forward A Comprehensive Review of VR Walkers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-communication-conquests-powerful-expressions-for-success/"><u>[Updated] Communication Conquests Powerful Expressions for Success</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-share-smiles-and-photos-iphones-for-2024/"><u>[Updated] Share Smiles & Photos (iPhones) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-transforming-passion-into-a-fulfilling-design-career-for-2024/"><u>[Updated] Transforming Passion Into a Fulfilling Design Career for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/classic-14-animation-designs-with-text-for-2024/"><u>Classic 14 Animation Designs with Text for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-the-powerful-performance-of-a-55-inch/"><u>Discover the Powerful Performance of a 55-Inch</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-activation-lock-from-iphone-se-4-easy-ways-by-drfone-ios/"><u>In 2024, Bypass Activation Lock From iPhone SE - 4 Easy Ways</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elevate-your-music-library-top-picks-from-8-exceptional-free-android-downloader-apps/"><u>In 2024, Elevate Your Music Library - Top Picks From 8 Exceptional Free Android Downloader Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-expert-tips-for-lut-integration-in-premiere-projects/"><u>In 2024, Expert Tips for LUT Integration in Premiere Projects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-jumpstart-your-photo-editing-skills-with-these-must-have-pixlr-tips/"><u>In 2024, Jumpstart Your Photo-Editing Skills with These Must-Have Pixlr Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-top-tier-aerial-vehicles-sold-here/"><u>In 2024, Top-Tier Aerial Vehicles Sold Here</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/real-time-streaming-with-manycam-top-live-video-editing-and-remote-webcam-solutions/"><u>Real-Time Streaming with ManyCam: Top Live Video Editing & Remote Webcam Solutions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/spacebar-malfunction-in-windows-11-causes-and-solutions/"><u>Spacebar Malfunction in Windows 11: Causes and Solutions</u></a></li>
+<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-xs-max-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone XS Max failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/top-8-recommendations-tripods-for-sharp-4k-images-for-2024/"><u>Top 8 Recommendations Tripods for Sharp 4K Images for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Superior Extra Memory Solution for Sony A7C\""
-date: 2024-08-31T22:35:38.033Z
-updated: 2024-09-01T22:35:38.033Z
+date: 2024-11-02T09:59:31.043Z
+updated: 2024-11-05T08:01:10.557Z
 tags: 
   - screen-recording
   - ai video
@@ -67,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -107,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -130,8 +144,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ranked-highest-audio-transformation-tools-including-magic/"><u>[New] 2024 Approved Ranked Highest Audio Transformation Tools, Including Magic</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comparative-analysis-lowest-priced-cloud-vendors/"><u>[New] Comparative Analysis Lowest Priced Cloud Vendors</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-leveraging-obs-streaming-capabilities-on-facebook-platform-for-2024/"><u>[New] Leveraging OBS Streaming Capabilities on Facebook Platform for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-why-filmora-stands-out-its-top-10-alluring-features-for-2024/"><u>[New] Why Filmora Stands Out Its Top 10 Alluring Features for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-best-affordable-pc-cases-and-accessories-under-100/"><u>[Updated] 2024 Approved Best Affordable PC Cases & Accessories (Under $100)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-understanding-the-transformations-in-vegaspro-19/"><u>[Updated] 2024 Approved Understanding the Transformations in VegasPro '19</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-full-rotation-video-gear-for-social-media-broadcasts-for-2024/"><u>[Updated] Full Rotation Video Gear for Social Media Broadcasts for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-role-of-background-melody-in-a-cinematic-commercial/"><u>[Updated] In 2024, The Role of Background Melody in a Cinematic Commercial</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-rise-above-1000-subs-youtubing-strategies-for-mobile-creators/"><u>[Updated] Rise Above 1000 Subs YouTubing Strategies for Mobile Creators</u></a></li>
+<li><a href="https://win-trending.techidaily.com/1-stay-updated-with-regression-tests-ensuring-accuracy-using-emeditor-text-processor/"><u>1. Stay Updated with Regression Tests: Ensuring Accuracy Using EmEditor Text Processor</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/4-cases-highlighting-the-unreliability-of-ai-detection-software-including-zerogpt/"><u>4 Cases Highlighting the Unreliability of AI Detection Software, Including ZeroGPT</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-your-efficiency-activating-search-bar-on-windows-11-tm/"><u>Boost Your Efficiency: Activating Search Bar on Windows 11 TM</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ideal-internet-hubs-alarm-tunes-acquisition-spots/"><u>Ideal Internet Hubs Alarm Tunes Acquisition Spots</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-boxed-insights-unpacking-effective-strategy/"><u>In 2024, Boxed Insights Unpacking Effective Strategy</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-guide-to-create-a-timelapse-video-in-after-effects/"><u>In 2024, Guide to Create a Timelapse Video in After Effects</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/navigating-digital-content-picking-between-podcasts-and-youtube-for-2024/"><u>Navigating Digital Content Picking Between Podcasts & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-your-youtube-presentations-with-captions/"><u>Streamline Your YouTube Presentations with Captions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unveiling-sources-instagram-pictures-inverse-search-guide/"><u>Unveiling Sources Instagram Pictures' Inverse Search Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/utilizing-microsoft-copilot-for-enhanced-software-design/"><u>Utilizing Microsoft Copilot for Enhanced Software Design</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->

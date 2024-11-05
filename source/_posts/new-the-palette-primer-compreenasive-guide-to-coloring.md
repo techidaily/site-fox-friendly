@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Palette Primer  Compreenasive Guide to Coloring\""
-date: 2024-10-29T19:59:14.880Z
-updated: 2024-10-30T21:34:15.234Z
+date: 2024-11-04T16:04:38.433Z
+updated: 2024-11-05T16:00:51.091Z
 tags: 
   - screen-recording
   - ai video
@@ -33,33 +33,33 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -76,10 +76,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -91,10 +91,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -131,14 +131,24 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-chromes-pip-magic-for-seamless-video-playback/"><u>[New] 2024 Approved Chrome's PIP Magic for Seamless Video Playback</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-advanced-techniques-for-perfecting-your-voice-with-morphvox/"><u>[New] Advanced Techniques for Perfecting Your Voice with MorphVOX</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ultimate-selection-of-economical-4k-projection-screens/"><u>[New] In 2024, Ultimate Selection of Economical 4K Projection Screens</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-elevating-your-live-broadcast-with-mixer-on-macos/"><u>[Updated] 2024 Approved Elevating Your Live Broadcast with Mixer on macOS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-rapid-restoration-of-reddit-archives-removed-for-2024/"><u>[Updated] Rapid Restoration of Reddit Archives Removed for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/cloud-storage-for-your-clippings-free-tiers-and-paid-plans-explored-for-2024/"><u>Cloud Storage for Your Clippings Free Tiers & Paid Plans Explored for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-record-more-minutes-of-video-for-youtube/"><u>In 2024, Record More Minutes of Video for YouTube</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/monetized-critique-videos-the-truth-unveiled-for-2024/"><u>Monetized Critique Videos The Truth Unveiled for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-best-public-domain-image-sites-to-explore/"><u>Updated In 2024, Best Public Domain Image Sites to Explore</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-visionary-vanguards-premium-laptops-for-4k-filmmakers/"><u>[New] 2024 Approved Visionary Vanguards Premium Laptops for 4K Filmmakers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-explore-laughter-tears-fusion-the-best-ig-accounts-ever/"><u>[Updated] Explore Laughter-Tears Fusion The Best IG Accounts Ever</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-editprox-compilation-review-expert-feedback/"><u>[Updated] In 2024, EditProX Compilation Review – Expert Feedback</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-premier-selection-the-best-11-soundstreamer-devices/"><u>[Updated] Premier Selection The Best 11 Soundstreamer Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-stitch-ppt-tiles-into-video-mosaic-for-2024/"><u>[Updated] Stitch PPT Tiles Into Video Mosaic for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-adobe-lightroom-essentials-review/"><u>2024 Approved Adobe Lightroom Essentials Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-best-sonic-selection-software-for-android-users/"><u>2024 Approved Best Sonic Selection Software for Android Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-eco-set-designs-30plus-free-downloadable-templates-for-filmmaking-artistry/"><u>2024 Approved Eco-Set Designs 30+ Free Downloadable Templates for Filmmaking Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-exclude-automatic-recommended-podcasts-in-spotify-feed/"><u>2024 Approved Exclude Automatic Recommended Podcasts in Spotify Feed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-scriptwriting-secrets-penning-podcast-episodes-that-resonate/"><u>2024 Approved Scriptwriting Secrets Penning Podcast Episodes That Resonate</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-srt-simplified-a-practical-manual-for-xmlssattml-transformation/"><u>2024 Approved SRT Simplified A Practical Manual for XML/SSA/TTML Transformation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-tech-triumphs-cutting-edge-vr-devices-reviewed/"><u>2024 Approved Tech Triumphs Cutting-Edge VR Devices Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-techniques-to-combat-unsteady-shot-dynamics/"><u>2024 Approved Techniques to Combat Unsteady Shot Dynamics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-text-animations-unleashed-try-these-14-dynamic-showcases/"><u>2024 Approved Text Animations Unleashed Try These 14 Dynamic Showcases</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/best-gopro-editing-tools-top-10-picks-for-windows-and-macos-users/"><u>Best GoPro Editing Tools: Top 10 Picks for Windows & macOS Users</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-13-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 13 without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-oppo-reno-11f-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Oppo Reno 11F 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unraveling-the-warped-world-of-gopro-fisheye-effects/"><u>In 2024, Unraveling The Warped World of GoPro Fisheye Effects</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/the-essential-guide-to-converting-high-resolution-images-transitioning-from-4k-to-full-hd-quality/"><u>The Essential Guide to Converting High-Resolution Images: Transitioning From 4K to Full HD Quality</u></a></li>
 </ul></div>
 

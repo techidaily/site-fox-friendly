@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Stepwise Quietening Routine for Mixes for 2024"
-date: 2024-08-31T22:34:31.682Z
-updated: 2024-09-01T22:34:31.682Z
+date: 2024-10-31T16:00:06.187Z
+updated: 2024-11-05T16:00:04.578Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
@@ -65,32 +72,29 @@ Step3 If you want your audio to fade out, again go to the audio setting. Then dr
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Related FAQs of FL Studio Audio Editing
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3\. What is declicking mode FL studio?
 
 Declicking is an option that helps to remove ‘Clicks’ in the beginning or end. But when it comes to FL Studio, the meaning is a bit different. If you need to cut a part of your audio in FL Studio and later there arises a jump between two parts. This is known as declicking mode in FL Studio.
@@ -105,9 +109,6 @@ Step2 To fade audio in, you have to go to the audio setting. Then drag the point
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
@@ -118,13 +119,24 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3\. What is declicking mode FL studio?
 
 Declicking is an option that helps to remove ‘Clicks’ in the beginning or end. But when it comes to FL Studio, the meaning is a bit different. If you need to cut a part of your audio in FL Studio and later there arises a jump between two parts. This is known as declicking mode in FL Studio.
@@ -151,4 +163,24 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-discover-the-best-insta-grid-creators-our-leading-ten-picks/"><u>[New] 2024 Approved Discover the Best Insta Grid Creators Our Leading Ten Picks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-professional-tips-for-using-luts-in-adobe-after-effects/"><u>[New] 2024 Approved Professional Tips for Using LUTs in Adobe After Effects</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-bold-broadcasters-on-a-budget-youtube-live-not-1000plus-supporters/"><u>[New] Bold Broadcasters on a Budget YouTube LIVE, Not 1000+ Supporters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-gratis-business-presentation-boosting-plugins-and-templates/"><u>[New] In 2024, Gratis Business Presentation Boosting Plugins & Templates</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-synchronizing-mac-writers-flows-efficiently-with-mixer/"><u>[New] In 2024, Synchronizing Mac' Writers' Flows Efficiently With Mixer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ultimate-software-guide-for-video-game-shows-for-2024/"><u>[New] Ultimate Software Guide for Video Game Shows for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-download-youtube-images-with-ease-online/"><u>[Updated] 2024 Approved Download YouTube Images with Ease Online</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-essential-techniques-for-fast-forwarding-in-spotify/"><u>[Updated] 2024 Approved The Essential Techniques for Fast-Forwarding in Spotify</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-much-can-you-earn-on-youtube-via-ad-revenue-in-2024/"><u>[Updated] How Much Can You Earn on YouTube via Ad Revenue, In 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-photos-jpg-png-on-ios-to-pdf-the-easy-steps/"><u>[Updated] In 2024, From Photos (JPG, PNG) on iOS to PDF The Easy Steps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-remove-automatically-suggested-podcasts-from-your-spotify-playlist-for-2024/"><u>[Updated] Remove Automatically Suggested Podcasts From Your Spotify Playlist for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-how-nintendos-wii-u-became-an-iconic-gaming-console/"><u>Exploring How Nintendo's Wii U Became an Iconic Gaming Console</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimizing-performance-7-keyframe-tips-for-csgo/"><u>Optimizing Performance - 7 Keyframe Tips for CS:GO</u></a></li>
+<li><a href="https://win-forum.techidaily.com/revitalize-your-computer-mastering-the-windows-11-factory-reset-process/"><u>Revitalize Your Computer: Mastering the Windows 11 Factory Reset Process</u></a></li>
+<li><a href="https://windows11.techidaily.com/step-by-step-guide-integrating-windows-calculator-into-microsoft-excel-2013s-quick-access-bar/"><u>Step-by-Step Guide: Integrating Windows Calculator Into Microsoft Excel 2013'S Quick Access Bar</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/upgrade-your-iphone-cinematic-experience-must-have-equipment-for-2024/"><u>Upgrade Your iPhone Cinematic Experience Must-Have Equipment for 2024</u></a></li>
+</ul></div>
 
