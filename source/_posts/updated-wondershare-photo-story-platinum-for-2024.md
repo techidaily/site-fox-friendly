@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Wondershare Photo Story Platinum for 2024"
-date: 2024-08-31T22:32:41.700Z
-updated: 2024-09-01T22:32:41.700Z
+date: 2024-11-08T16:20:57.135Z
+updated: 2024-11-15T20:59:22.555Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ Wondershare Photo Story Platinum is an intuitive photo slideshow maker which you
 * Able to burn your photo story to DVD.
 * Directly share on YouTube, Facebook & virtually anywhere.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Use Wondershare Photo Story Platinum for Windows and Mac
 
 #### Step 1\. Add photos and videos
@@ -53,6 +60,13 @@ After the mode selection, click the Add Files button to import your photos and v
 
 ![photo story](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2\. Personalize your photo story
 
 Click the Personalize tab. Then you can add transitions, effects, background music and more t create your own gorgeous photo story.
@@ -60,6 +74,19 @@ Click the Personalize tab. Then you can add transitions, effects, background mus
 You can import your photos and videos at one time and arrange the order by dragging. To tell your own photo story, you can add captions to each photo or record your own voice by click the Voice Over button.
 
 ![Photo Story Platinum](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3\. Publish your photo story
 
@@ -72,8 +99,12 @@ The photo story maker provides sorts of methods for you. For example, if you wan
 Learn more: [user guide of Photo Story Platinum for Windows](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) here.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Supported Output Formats by Web Converter
 
 * **DVD**: Standard DVD (D5 or D9)
@@ -85,14 +116,8 @@ Learn about the detailed [technical specifications](https://tools.techidaily.com
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -116,4 +141,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-maximizing-meeting-efficiency-using-zoom-in-your-email-routine-with-gmail/"><u>[New] 2024 Approved Maximizing Meeting Efficiency Using Zoom in Your Email Routine with Gmail</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-deciding-on-a-top-gopro-camera-max-or-hero-11-for-2024/"><u>[New] Deciding on a Top GoPro Camera Max or Hero 11 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-essential-tactics-for-effective-handc-facebook-promos/"><u>[New] In 2024, Essential Tactics for Effective H&C Facebook Promos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-talkative-transformations-infusing-your-stories-with-motion/"><u>[New] Talkative Transformations Infusing Your Stories with Motion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-eyelaughs-funny-image-generator/"><u>[Updated] EyeLaughs Funny Image Generator</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-integrating-timestamps-into-your-images/"><u>[Updated] In 2024, Integrating Timestamps Into Your Images</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-macbook-air-and-pro-powered-by-m1-decision-guide/"><u>[Updated] In 2024, MacBook Air & Pro Powered by M1 Decision Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-new-era-with-dells-alienware-aurora-r9-an-in-depth-review/"><u>Exploring the New Era with Dell's Alienware Aurora R9: An In-Depth Review</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-14-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 14?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oppo-find-x6-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Oppo Find X6 Phone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-the-latest-usb-c-support-software-on-your-pc-running-windows-10/"><u>Installing the Latest USB-C Support Software on Your PC Running Windows 10</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/leap-into-fitness-a-curated-selection-of-vr-treadmill-pros/"><u>Leap Into Fitness A Curated Selection of VR Treadmill Pros</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/mastering-the-art-of-streaming-via-obs-into-social-networks/"><u>Mastering the Art of Streaming via OBS Into Social Networks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/tailoring-soundtracks-the-art-of-editing-in-garageband/"><u>Tailoring Soundtracks The Art of Editing in GarageBand</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Go Beyond Boundaries with Panasonic HX-A1 Wearable Camera\""
-date: 2024-08-27T16:43:45.686Z
-updated: 2024-08-28T16:43:45.686Z
+date: 2024-11-12T20:57:10.723Z
+updated: 2024-11-15T19:35:59.550Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -64,8 +71,12 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -103,9 +114,6 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Features
 
 #### **1. Video and photo quality**
@@ -135,17 +143,12 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
@@ -155,8 +158,12 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -180,4 +187,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-precision-polling-on-instagram-crafting-survey-content/"><u>[New] 2024 Approved Precision Polling on Instagram Crafting Survey Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-e-shops-for-unique-tailored-boxed-gifts-and-packages/"><u>[New] 2024 Approved Top E-Shops for Unique, Tailored Boxed Gifts & Packages</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-achieving-perfect-synchronization-google-upload-for-2024/"><u>[New] Achieving Perfect Synchronization Google Upload for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-analyzing-user-feedback-the-latest-on-lg-bp350-display-tech/"><u>[New] In 2024, Analyzing User Feedback The Latest on LG BP350 Display Tech</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-refine-and-reveal-editing-fbs-recollected-moments/"><u>[New] In 2024, Refine and Reveal Editing FB's Recollected Moments</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-step-into-the-world-of-film-making-effective-use-of-movie-maker-on-windows-8-pcs/"><u>[Updated] 2024 Approved Step Into the World of Film Making Effective Use of Movie Maker on Windows 8 PCs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-begin-with-class-in-every-screen-best-intro-editor-app-for-2024/"><u>[Updated] Begin with Class in Every Screen Best Intro Editor App for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-blueprint-for-building-a-graphic-design-business/"><u>[Updated] Blueprint for Building a Graphic Design Business</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-crafting-conversational-mastery-step-by-step-guide-to-free-voice-modification-tools/"><u>[Updated] Crafting Conversational Mastery Step-by-Step Guide to Free Voice Modification Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mp4-and-webm-extraction-from-social-media-streams/"><u>[Updated] In 2024, MP4 & WebM Extraction From Social Media Streams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-engage-viewers-beyond-individual-watches/"><u>2024 Approved Engage Viewers Beyond Individual Watches</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/effortlessly-invert-colors-in-your-digital-photos-for-2024/"><u>Effortlessly Invert Colors in Your Digital Photos for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-xiaomi-redmi-a2-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Xiaomi Redmi A2 Face Lock?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/social-media-rhythms-to-mobile-melodies-setting-up-your-tiktok-ringtone/"><u>Social Media Rhythms to Mobile Melodies Setting Up Your TikTok Ringtone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/speech-synthesis-simplified-transforming-ssaxml-into-srt-perfection/"><u>Speech Synthesis Simplified Transforming SSA/XML Into SRT Perfection</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-four-platforms-in-digital-engagement-a-look-at-facebook-twitter-instagram-and-youtube/"><u>Top Four Platforms in Digital Engagement: A Look at Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unleash-the-genius-ranked-top-8-film-watching-apps-iphone-edition-for-2024/"><u>Unleash the Genius Ranked Top 8 Film-Watching Apps iPhone Edition for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-honor-90-pro-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Honor 90 Pro Phone Network-Ready</u></a></li>
+</ul></div>
 

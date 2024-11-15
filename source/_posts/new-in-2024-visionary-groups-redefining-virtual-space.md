@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Visionary Groups Redefining Virtual Space"
-date: 2024-11-01T16:02:03.820Z
-updated: 2024-11-05T16:18:47.613Z
+date: 2024-11-09T17:43:08.790Z
+updated: 2024-11-15T16:18:49.827Z
 tags: 
   - screen-recording
   - ai video
@@ -49,16 +49,10 @@ thumbnail: https://thmb.techidaily.com/acfd39cea130b7076ba0e472a472a7627f6c0d070
  Aside from the sister company, Here Be Dragons, With.in also works with other companies such as Apple, The New York Times, NBC, Vice Media and the United Nations.
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Art Work of With.in
@@ -74,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/acfd39cea130b7076ba0e472a472a7627f6c0d070
 * **The Click Effect**  The short film is about an underwater adventure that takes the viewer to the beauty of the ocean. A person will have the connection with not only the ocean but also the dolphin and whales. A free-spirited approach to the right ocean adventure is displayed in the short film.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About Chris Milk
@@ -94,10 +88,10 @@ thumbnail: https://thmb.techidaily.com/acfd39cea130b7076ba0e472a472a7627f6c0d070
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -125,18 +119,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-bridging-the-gap-between-human-perception-and-photographic-capture/"><u>[New] 2024 Approved Bridging the Gap Between Human Perception and Photographic Capture</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-cutting-edge-free-livestream-platforms-and-programs-reviewed-here/"><u>[New] In 2024, Cutting-Edge Free Livestream Platforms and Programs Reviewed Here</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-2023-how-to-find-facebook-recently-watched-videos/"><u>[Updated] In 2024, 2023 | How to Find Facebook Recently Watched Videos?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-resonating-with-your-device-a-comprehensive-guide-for-customizing-auditory-experience-on-android/"><u>[Updated] In 2024, Resonating With Your Device A Comprehensive Guide for Customizing Auditory Experience on Android</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-swiftly-restoring-eliminated-reddit-content/"><u>[Updated] In 2024, Swiftly Restoring Eliminated Reddit Content</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-voice-logging-made-simple-with-ipad-apps/"><u>[Updated] In 2024, Voice Logging Made Simple with iPad Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-instant-access-to-12-high-quality-livestreams/"><u>[Updated] Instant Access to 12 High-Quality Livestreams</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/boost-your-electronics-the-definitive-review-of-the-mighty-beatit-bt-d11-portable-charger/"><u>Boost Your Electronics: The Definitive Review of the Mighty Beatit BT-D11 Portable Charger</u></a></li>
-<li><a href="https://win-able.techidaily.com/defeating-pubg-pc-game-bugs-tips-to-counteract-freezing-and-non-responsive-issues/"><u>Defeating PUBG PC Game Bugs: Tips to Counteract Freezing and Non-Responsive Issues</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-use-luts-in-premiere-pro-for-2024/"><u>How To Use LUTs In Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-enhancing-video-engagement-with-correctly-uploaded-srt-files/"><u>In 2024, Enhancing Video Engagement with Correctly Uploaded SRT Files</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-teaching-tech-trends-the-elite-10-audio-visual-recorders-for-classrooms/"><u>In 2024, Teaching Tech Trends The Elite 10 Audio-Visual Recorders for Classrooms</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-hidden-costs-of-ai-understanding-why-generative-models-may-not-fit-messaging-applications/"><u>The Hidden Costs of AI: Understanding Why Generative Models May Not Fit Messaging Applications</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-cross-platform-content-transfer-youtube-meets-facebook/"><u>[New] 2024 Approved Cross-Platform Content Transfer YouTube Meets Facebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ideal-interactive-interface-for-podcasters/"><u>[New] 2024 Approved Ideal Interactive Interface for Podcasters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-close-up-clarity-mastering-the-art-of-intense-focus/"><u>[New] In 2024, Close-Up Clarity Mastering the Art of Intense Focus</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-premiere-pros-finest-10-text-plans-for-2024/"><u>[Updated] Premiere Pro's Finest 10 Text Plans for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-video-upgrade-with-enhancer-22-for-2024/"><u>[Updated] The Ultimate Video Upgrade with Enhancer 2.2 for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-productivity-with-these-three-tips-on-chatgpt-wolfram-plugin-usage/"><u>Boost Productivity with These Three Tips on ChatGPT-Wolfram Plugin Usage</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-itel-p55-5g-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Itel P55 5G Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-deep-dive-into-using-googles-speech-technology-for-document-editing/"><u>In 2024, Deep Dive Into Using Google's Speech Technology for Document Editing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-se-2022-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone SE (2022) 3 Ways To Unlock</u></a></li>
+<li><a href="https://win11.techidaily.com/methodical-steps-to-scrub-microsofts-defender-traces-on-win-11/"><u>Methodical Steps to Scrub Microsoft’s Defender Traces on Win 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/snag-the-latest-9gen-ipad-for-just-250-after-apples-fresh-reveal-expert-analysis/"><u>Snag the Latest 9Gen iPad for Just $250 After Apple's Fresh Reveal | Expert Analysis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crescent Casts  The Art of Shaping Focal Points with Light\""
-date: 2024-08-27T16:40:42.294Z
-updated: 2024-08-28T16:40:42.294Z
+date: 2024-11-13T16:54:55.743Z
+updated: 2024-11-15T17:09:37.640Z
 tags: 
   - screen-recording
   - ai video
@@ -92,6 +92,13 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -124,8 +131,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-jumpstart-your-photo-editing-essential-pixlr-wisdoms/"><u>[New] 2024 Approved Jumpstart Your Photo Editing Essential Pixlr Wisdoms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-microsofts-glimpse-into-augmented-reality-the-hololens-journey-for-2024/"><u>[New] Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-navigating-through-telegram-web-easily-and-quickly/"><u>[New] Navigating Through Telegram Web Easily and Quickly</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-recording-the-virtual-realm-for-2024/"><u>[New] Recording the Virtual Realm for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-discover-two-hands-on-approaches-to-personalize-snapchat-audio-for-2024/"><u>[Updated] Discover Two Hands-On Approaches to Personalize Snapchat Audio for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-strategies-and-techniques-in-documentary-scriptwriting/"><u>[Updated] In 2024, Strategies and Techniques in Documentary Scriptwriting</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-compilation-of-top-mobile-photo-and-film-editors/"><u>2024 Approved Compilation of Top Mobile Photo & Film Editors</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-infinix-smart-8-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Infinix Smart 8 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://solve-help.techidaily.com/vlc-for-japanese-download-and-installation-guide-for-windows-and-mac-users/"><u>最新版VLC for Japanese: Download & Installation Guide for Windows and Mac Users</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/broadcast-power-play-which-livestream-tool-should-you-use-in-2024/"><u>Broadcast Power Play Which Livestream Tool Should You Use, In 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-sky-surfing-in-hd-with-the-yuneec-drone-review/"><u>In 2024, Sky Surfing in HD with the Yuneec Drone Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->

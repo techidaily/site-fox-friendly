@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Home VR Construct  How to Assemble Your Own Google Cardboard for 2024\""
-date: 2024-11-04T16:01:13.028Z
-updated: 2024-11-05T16:01:25.604Z
+date: 2024-11-14T17:46:18.579Z
+updated: 2024-11-15T17:48:24.680Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -135,22 +135,17 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-foremost-top-5-lightweight-video-capturers-guide/"><u>[New] 2024 Approved Foremost Top 5 Lightweight Video Capturers Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-optimal-method-for-integrating-gopro-footage-into-360-degree-films/"><u>[New] 2024 Approved Optimal Method for Integrating GoPro Footage Into 360-Degree Films</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-game-screen-recorders-for-2024/"><u>[New] Best Game Screen Recorders for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-deciphering-whatsapp-talk-mechanics/"><u>[New] Deciphering WhatsApp Talk Mechanics</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-evaluating-the-skys-new-kid-on-the-block-syma-x5c-review/"><u>[New] Evaluating the Sky's New Kid on the Block – Syma X5C Review</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-free-tools-for-efficient-screen-recording-on-windows-os/"><u>[Updated] 2024 Approved Free Tools for Efficient Screen Recording on Windows OS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-pixel-pilgrimage-journey-through-one-thousand-channels/"><u>[Updated] 2024 Approved Pixel Pilgrimage Journey Through One Thousand Channels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-snap-snip-and-compile-instantaneous-google-image-art/"><u>[Updated] Snap, Snip & Compile Instantaneous Google Image Art</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-iphone-xs-max-by-drfone-ios/"><u>How to Fix Locked Apple ID from iPhone XS Max</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-10-iphone-camera-features-you-should-know-in-ios-11/"><u>In 2024, 10 iPhone Camera Features You Should Know in iOS 11</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-vivo-s17e-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Vivo S17e Phone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-unveiling-cropped-lengths-imovies-automatic-trimming-logic/"><u>In 2024, Unveiling Cropped Lengths IMovie's Automatic Trimming Logic</u></a></li>
-<li><a href="https://fox-links.techidaily.com/instantly-fashion-company-symbols-with-open-source-tools-for-2024/"><u>Instantly Fashion Company Symbols with Open-Source Tools for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/premiere-camera-lineup-for-high-definition-live-concert-videos/"><u>Premiere Camera Lineup for High-Definition Live Concert Videos</u></a></li>
-<li><a href="https://windows11.techidaily.com/streamlining-corporate-controlled-browser-configuration-on-chromeedge/"><u>Streamlining Corporate Controlled Browser Configuration on Chrome/Edge</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-making-your-usb-flash-drive-detectable-again/"><u>Troubleshooting Guide: Making Your USB Flash Drive Detectable Again</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/upgrade-iphone-photographyfilm-expertise-with-essential-gear-for-2024/"><u>Upgrade iPhone Photography/Film Expertise With Essential Gear for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-innovative-virtual-engagement-harnessing-the-power-of-zoom-in-gmail/"><u>[New] In 2024, Innovative Virtual Engagement Harnessing the Power of Zoom in Gmail</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-tamiltunes-handbook-downloading-and-trimming-melodies-for-calls-for-2024/"><u>[New] TamilTunes Handbook Downloading & Trimming Melodies for Calls for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-implementing-instagram-story-opinion-polls-effectively-for-2024/"><u>[Updated] Implementing Instagram Story Opinion Polls Effectively for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-reclaiming-gone-reddit-content-a-time-saving-guide-for-2024/"><u>[Updated] Reclaiming Gone-Reddit Content A Time-Saving Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-videographic-velocity-top-cams-for-smoothly-snapped-slow-motion-for-2024/"><u>[Updated] Videographic Velocity Top Cams for Smoothly Snapped Slow Motion for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-navigating-through-samsungs-digital-picture-editing-app/"><u>2024 Approved Navigating Through Samsung's Digital Picture Editing App</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-nubia-red-magic-8s-pro-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-optimize-windows-10-performance-by-deleting-browser-and-system-cache/"><u>How to Optimize Windows 10 Performance by Deleting Browser and System Cache</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-realme-10t-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-apple-iphone-7-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your Apple iPhone 7 and iPad</u></a></li>
+<li><a href="https://os-tips.techidaily.com/troubleshooting-an-overheated-iphone-identifying-the-reasons-and-implementing-solutions/"><u>Troubleshooting an Overheated iPhone: Identifying the Reasons & Implementing Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/visionplay-app-feedback-summary/"><u>VisionPlay App Feedback Summary</u></a></li>
 </ul></div>
 

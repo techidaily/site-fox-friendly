@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Tips  TikTok Age Authentication\""
-date: 2024-11-02T16:15:07.317Z
-updated: 2024-11-05T16:12:15.507Z
+date: 2024-11-11T19:45:04.383Z
+updated: 2024-11-15T20:16:49.922Z
 tags: 
   - screen-recording
   - ai video
@@ -35,13 +35,6 @@ The 13-year age restriction on TikTok is not only to protect minors from the har
 
 It has also made all the accounts of those under 16 privates. If your account has been age-restricted by mistake, below are two possible methods on **how** **to edit age on TikTok**.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Way 1: Contact TikTok Support Team to Change Your Age (Recommended)
 
 Since TikTok has removed the feature to edit your birthdate from its app, you will need to contact their support team to change your age. You can contact support through the app if your account is still working. Otherwise, you will need to contact them through email. Below are the steps to contact support for changing your age through the TikTok app on your smartphone:
@@ -51,10 +44,10 @@ Since TikTok has removed the feature to edit your birthdate from its app, you wi
 ![select settings and privacy](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Now navigate to the "Support & About" section and tap “Report a Problem.” Press "Account and Profile" on the next screen and tap "Editing Profile."
@@ -66,16 +59,10 @@ Since TikTok has removed the feature to edit your birthdate from its app, you wi
 ![tap on need more help](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Way 2: Create a New TikTok Account to Change Your Age (Not-Recommended)
@@ -89,10 +76,16 @@ If you are underage, you should not try to create a new account with a false age
 ![access the profile tab](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** If you choose “Email or Phone,” you will need to provide your “Email” or “Phone” on the next screen. You will need to go through a verification CAPTCHA and, on the next screen, create a password for your account. Provide your correct birthdate and press "Next" to complete the account creation.
@@ -102,6 +95,20 @@ If you are underage, you should not try to create a new account with a false age
 **Step 3:** You can also use your Google, Facebook, Apple, or Twitter account to create your TikTok account. Pressing any of these will take you to the respective app for login verification. Provide the confirmation, and your TikTok account will be created.
 
 ![select social media to sign up](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: TikTok Video Editor – Filmora for Mobile
 
@@ -115,19 +122,11 @@ With its help, you can trim clips, add transition effects, insert music, and cha
 
 We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
 
-## Conclusion
-
-Protecting underage teens and kids from the negative side of the internet is important. A simple online search can show many examples where harmful TikTok content affected minors to the extent of severe physical injuries. Thus, you should only learn **how to change your age on TikTok** if you are older than 16.
-
-![filmora for mobile features](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-8.jpg)
-
-We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -146,12 +145,13 @@ Protecting underage teens and kids from the negative side of the internet is imp
 
 We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+## Conclusion
+
+Protecting underage teens and kids from the negative side of the internet is important. A simple online search can show many examples where harmful TikTok content affected minors to the extent of severe physical injuries. Thus, you should only learn **how to change your age on TikTok** if you are older than 16.
+
+![filmora for mobile features](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-8.jpg)
+
+We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
 
 ## Conclusion
 
@@ -181,20 +181,21 @@ Protecting underage teens and kids from the negative side of the internet is imp
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-comprehensive-survey-life-through-the-spinning-sphere-of-samsung/"><u>[New] In 2024, Comprehensive Survey Life Through the Spinning Sphere of Samsung</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-proficient-use-of-audacity-for-high-quality-recordings/"><u>[New] In 2024, Proficient Use of Audacity for High-Quality Recordings</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-gamers-crossroads-oculus-or-playstation-vr/"><u>[New] The Ultimate Gamer’s Crossroads Oculus or PlayStation VR?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-total-environmental-immersion-in-media-creation/"><u>[New] Total Environmental Immersion in Media Creation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-quantum-hdr-phenomenon-in-digital-photography/"><u>[Updated] 2024 Approved Quantum HDR Phenomenon in Digital Photography</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-boosting-sales-through-effective-strategies-for-channel-trailer-creation/"><u>[Updated] Boosting Sales Through Effective Strategies for Channel Trailer Creation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-humorhatchery-studio/"><u>[Updated] HumorHatchery Studio</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-time-tested-tactics-storing-slides-in-ppt/"><u>[Updated] In 2024, Time-Tested Tactics Storing Slides in PPT</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ceramic-coatings-are-highly-resistant-to-acidic-environments-but-may-be-less-effective-in-situations-requiring-high-impact-resistance/"><u>Ceramic Coatings Are Highly Resistant to Acidic Environments but May Be Less Effective in Situations Requiring High Impact Resistance.</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-apples-latest-creation-the-exciting-launch-of-a-brand-new-iphone/"><u>Discover Apple's Latest Creation: The Exciting Launch of a Brand New iPhone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-exploring-per-view-money-flow-among-youtubers/"><u>In 2024, Exploring Per-View Money Flow Among YouTubers</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-skyrocket-to-your-youtube-audience-goal-1kplus/"><u>In 2024, Skyrocket to Your YouTube Audience Goal 1K+</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-vivo-y77t-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Vivo Y77t Phone Network-Ready</u></a></li>
-<li><a href="https://os-tips.techidaily.com/top-5-fixes-for-non-functioning-ipados-17-widgets-a-comprehensive-guide/"><u>Top 5 Fixes for Non-Functioning iPadOS 17 Widgets: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/your-ultimate-guide-to-capturing-underwater-wonders-for-2024/"><u>Your Ultimate Guide to Capturing Underwater Wonders for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unleash-potential-transforming-vhs-photos-through-technology/"><u>[New] 2024 Approved Unleash Potential Transforming VHS Photos Through Technology</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-grasping-the-greener-side-of-valheim-top-seeds-list-for-2024/"><u>[New] Grasping the Greener Side of Valheim Top Seeds List for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-essential-path-to-prodigious-smm-results-delivered-in-10-steps/"><u>[New] In 2024, The Essential Path to Prodigious SMM Results, Delivered in 10 Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-join-the-social-gaming-movement-xbox-and-fb-livestreams-for-2024/"><u>[New] Join the Social Gaming Movement Xbox & FB Livestreams for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-transform-live-streams-with-obsplusstreamlabs-mac/"><u>[New] Transform Live Streams with OBS+Streamlabs (Mac)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-highest-quality-images-10-premium-4k-cameras-in-smartphones/"><u>[Updated] 2024 Approved Highest Quality Images 10 Premium 4K Cameras in Smartphones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-exploring-the-capabilities-of-logitechs-4k-pro-webcam-for-2024/"><u>[Updated] Exploring the Capabilities of Logitech's 4K Pro Webcam for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/budget-friendly-dash-cams-in-depth-review-of-the-pruveeo-f5-1080p-camera/"><u>Budget-Friendly Dash Cams: In-Depth Review of the Pruveeo F5 1080P Camera</u></a></li>
+<li><a href="https://change-location.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/future-proof-your-data-with-top-30-free-unlimited-1tbplus-options-for-2024/"><u>Future-Proof Your Data with Top 30 Free, Unlimited (1TB+) Options for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-se-2020-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone SE (2020) to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-premium-audio-visual-leading-blu-ray-devices/"><u>In 2024, Premium Audio, Visual Leading Blu-Ray Devices</u></a></li>
+<li><a href="https://fox-search.techidaily.com/losungsansatze-fur-das-unerwartete-schliessen-von-windows-11-auf-ihrem-pc/"><u>Lösungsansätze Für Das Unerwartete Schließen Von Windows 11 Auf Ihrem PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maxoak-185wh50000mah-battery-pack-review/"><u>MaxOak 185Wh/50000mAh Battery Pack Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/sj7s-latest-4k-star-cam-a-revolutionary-action-recorder-for-2024/"><u>SJ7's Latest 4K Star Cam - A Revolutionary Action Recorder for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-essentials-of-professional-level-audio-crossfade-for-2024/"><u>The Essentials of Professional-Level Audio Crossfade for 2024</u></a></li>
 </ul></div>
 
