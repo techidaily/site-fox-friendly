@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Undersea Video  7 Easy-to-Follow Techniques\""
-date: 2024-08-27T16:36:10.822Z
-updated: 2024-08-28T16:36:10.822Z
+date: 2024-11-20T03:49:34.569Z
+updated: 2024-11-24T20:28:30.585Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
 
  There are many tips you can learn from to get the results that you require, so read on to find out more about what you can do to shoot underwater video with ease.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -39,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -68,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
@@ -87,6 +99,14 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -125,8 +145,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-revolutionize-your-editing-with-fcps-premier-tools/"><u>[New] 2024 Approved Revolutionize Your Editing with FCP's Premier Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-youtube-conversion-pros-10-best-practices-unveiled-for-2024/"><u>[New] YouTube Conversion Pros 10 Best Practices Unveiled for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-fine-art-of-focusing-enhanced-zoom-on-roblox-games/"><u>[Updated] In 2024, The Fine Art of Focusing Enhanced Zoom on Roblox Games</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-master-the-art-of-podcast-writing-with-expert-guidance-for-2024/"><u>[Updated] Master the Art of Podcast Writing with Expert Guidance for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-select-selections-elite-mac-video-grabbers-reviewed/"><u>[Updated] Select Selections Elite Mac Video Grabbers Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-essential-guide-for-instagram-video-uploads-from-pcmac-for-2024/"><u>[Updated] The Essential Guide for Instagram Video Uploads From PC/Mac for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-understanding-luts-in-the-realm-of-photographic-mastery/"><u>2024 Approved Understanding LUTs in the Realm of Photographic Mastery</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-start-and-sustain-an-indie-podcast-hit-for-2024/"><u>How to Start & Sustain an Indie Podcast Hit for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2020-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2020) To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-between-iphone-and-android-selecting-the-best-fit-for-your-needs/"><u>Navigating Between iPhone and Android: Selecting the Best Fit For Your Needs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/step-by-step-to-maximizing-adobe-storages-and-exploring-more-for-2024/"><u>Step-by-Step to Maximizing Adobe Storages and Exploring More for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-top-performing-gadgets-with-toms-hardware-guide/"><u>Unveiling Top-Performing Gadgets with Tom's Hardware Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->

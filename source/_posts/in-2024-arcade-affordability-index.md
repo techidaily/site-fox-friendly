@@ -1,7 +1,7 @@
 ---
 title: "In 2024, ARCADE AFFORDABILITY INDEX"
-date: 2024-08-27T16:36:26.093Z
-updated: 2024-08-28T16:36:26.093Z
+date: 2024-11-24T07:00:10.589Z
+updated: 2024-11-25T00:49:03.192Z
 tags: 
   - screen-recording
   - ai video
@@ -53,9 +53,14 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 * Users can access keyboard shortcuts for subtitles, contrast, brightness, volume, zooming and seeking.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Pros and Cons of POT Player
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Good
 
@@ -64,13 +69,18 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 * User defined shortcuts makes controlling much easier.
 * It creates minimal loads of memory and CPU.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Bad
 
 * Beginners may find its setup quite difficult with loads of advanced settings.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The Truth
 
  The truth behind its classic design is that POT player is basically dedicated to advanced or professional users. Those who demand higher controls over customization and want to explore wide range of media file formats can enjoy great viewing experience over POT Player.
@@ -85,12 +95,6 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
 ![ pot-add-files](https://images.wondershare.com/filmora/article-images/pot-add-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Playing Audio Files
 
  When you are ready to enjoy playbacks then it is also possible to pair up content with equalizers in order to have rich sound quality. When this paired up connection is dragged into timeline, they work in perfect synchronism and if you want to separate them at any moment then simply drag the playlist.
@@ -102,8 +106,9 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 ![pot-play-audio ](https://images.wondershare.com/filmora/article-images/pot-play-audio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Playing Video Files
 
  Generally, the video frame appears on left portion of screen and right one stays cluttered with playlist but you can simply close it by pressing the little arrow head on right most corner of screen. In order to bring video to the full screen mode, you need to double click over it. Return back to small window by pressing Esc or double click again.
@@ -112,9 +117,6 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
 ![pot-play-video ](https://images.wondershare.com/filmora/article-images/pot-play-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -140,4 +142,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-infuse-rhythms-into-your-whatsapp-story/"><u>[New] 2024 Approved Infuse Rhythms Into Your WhatsApp Story</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-boost-photographic-vision-get-free-and-paid-lut-upgrades/"><u>[New] In 2024, Boost Photographic Vision - Get FREE & Paid LUT Upgrades</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-experience-the-next-level-of-virtual-reality-with-htcs-vive-headset/"><u>[New] In 2024, Experience the Next Level of Virtual Reality with HTC's Vive Headset</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-investigating-the-realm-of-virtual-sticker-decoration/"><u>[New] In 2024, Investigating the Realm of Virtual Sticker Decoration</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-guide-to-free-image-editor-apps/"><u>[New] In 2024, The Ultimate Guide to Free Image Editor Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-ppt-presentations-merging-audio-and-imagery-fluently-for-2024/"><u>[New] PPT Presentations Merging Audio & Imagery Fluently for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-picks-for-perfect-stabilization-in-dslr-and-mirrorless-for-2024/"><u>[New] Top Picks for Perfect Stabilization in DSLR & Mirrorless for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-full-overview-of-installing-wm6/"><u>[Updated] 2024 Approved Full Overview of Installing WM6</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-compelling-freefire-vids-with-strategy-guide/"><u>[Updated] Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/digital-game-highlights-6-pc-snapshot-strategies/"><u>Digital Game Highlights 6 PC Snapshot Strategies</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-and-set-up-your-linksys-wusb63e-wi-fi-usb-adapter-drivers-a-comprehensive-guide/"><u>How to Get & Set Up Your Linksys WUSB63e Wi-Fi USB Adapter Drivers: A Comprehensive Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-reimagining-video-production-with-screenflow-a-mac-users-guide/"><u>In 2024, Reimagining Video Production with ScreenFlow – A Mac User's Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Infinix Note 30 VIP | Dr.fone</u></a></li>
+</ul></div>
 

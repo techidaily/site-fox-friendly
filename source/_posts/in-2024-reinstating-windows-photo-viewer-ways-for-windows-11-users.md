@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Reinstating Windows Photo Viewer  Ways for Windows 11 Users\""
-date: 2024-11-12T22:10:45.365Z
-updated: 2024-11-15T18:51:20.296Z
+date: 2024-11-17T16:33:07.025Z
+updated: 2024-11-25T04:31:51.077Z
 tags: 
   - screen-recording
   - ai video
@@ -60,7 +60,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -88,35 +96,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -128,10 +117,7 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,16 +145,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-smart-strategies-for-iphone-podcast-acquisition/"><u>[New] Smart Strategies for iPhone Podcast Acquisition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-video-traffic-triumph-key-youtube-seo-tools/"><u>[Updated] Video Traffic Triumph - Key YouTube SEO Tools</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-discover-the-5-best-android-photo-editors-for-enhanced-images/"><u>2024 Approved Discover the 5 Best Android Photo Editors for Enhanced Images</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-polaroid-cubeplus-action-camera-review/"><u>2024 Approved Polaroid Cube+ Action Camera Review</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchat-boomerangs-demystified-your-comprehensive-guide/"><u>2024 Approved Snapchat Boomerangs Demystified Your Comprehensive Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y77t-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y77t Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-9-risks-relying-on-artificial-intelligence-instead-of-professional-mental-health-support/"><u>Top 9 Risks: Relying on Artificial Intelligence Instead of Professional Mental Health Support</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/transforming-sportscasting-with-yis-4k-camera-prowess-for-2024/"><u>Transforming Sportscasting with Yi's 4K Camera Prowess for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlock-the-secret-secure-your-apple-watch-series-10-from-best-buy-starting-at-just-99-with-our-exclusive-preorder-guide-read-now-on-zdnet/"><u>Unlock the Secret: Secure Your Apple Watch Series 10 From Best Buy Starting at Just $99 with Our Exclusive Preorder Guide – Read Now on ZDNet!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-full-review-of-lg-bp350-from-screen-brightness-to-audio-output-for-2024/"><u>[New] Full Review of LG BP350 - From Screen Brightness to Audio Output for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-beyond-ustream-live-streaming-choices/"><u>[New] In 2024, Beyond Ustream Live Streaming Choices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-lightning-timelapses-on-iphone-reducing-delay-for-2024/"><u>[New] Lightning Timelapses on iPhone Reducing Delay for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-creative-techniques-for-incorporating-alternate-shots-for-2024/"><u>[Updated] Creative Techniques for Incorporating Alternate Shots for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-gear-selection-guide-for-global-filmmakers/"><u>[Updated] Gear Selection Guide for Global Filmmakers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-logging-live-video-conversations-for-2024/"><u>[Updated] Logging Live Video Conversations for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-patching-the-full-screen-problem-in-obs/"><u>[Updated] Patching the Full-Screen Problem in OBS</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-techniques-for-elongated-iphone-photography/"><u>[Updated] Techniques for Elongated iPhone Photography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unleash-the-potential-latest-win11-applications-and-games/"><u>[Updated] Unleash the Potential Latest Win11 Applications and Games</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-prevent-xcom-2-from-crashing-on-your-pc-tips-and-tricks/"><u>How to Prevent XCOM 2 From Crashing on Your PC - Tips & Tricks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-crystalline-speed-highlighting-moments-from-the-coldest-games-on-earth/"><u>In 2024, Crystalline Speed Highlighting Moments From the Coldest Games on Earth</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-elite-hd-visuals-selecting-top-quality-recorders/"><u>In 2024, Elite HD Visuals Selecting Top Quality Recorders</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-the-ultimate-playlist-composing-music-for-visuals-in-the-modern-era/"><u>New The Ultimate Playlist Composing Music for Visuals in the Modern Era</u></a></li>
 </ul></div>
 
