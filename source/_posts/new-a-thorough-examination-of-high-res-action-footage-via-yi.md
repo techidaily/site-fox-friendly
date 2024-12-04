@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Thorough Examination of High-Res Action Footage via Yi\""
-date: 2024-11-19T20:45:56.686Z
-updated: 2024-11-25T06:23:33.468Z
+date: 2024-11-28T21:57:15.289Z
+updated: 2024-12-04T02:00:35.214Z
 tags: 
   - screen-recording
   - ai video
@@ -115,7 +115,7 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,7 +125,7 @@ Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolutio
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,16 +153,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-the-airwaves-dji-drones-and-social-media-live-for-2024/"><u>[New] Mastering the Airwaves DJI Drones and Social Media Live for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-best-scripting-solutions-for-ae/"><u>[Updated] Best Scripting Solutions for AE</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-10-superior-approaches-to-live-cricket-broadcasting/"><u>2024 Approved 10 Superior Approaches to Live Cricket Broadcasting</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-average-podcast-income-whats-the-payoff/"><u>2024 Approved Average Podcast Income What's the Payoff?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-eliminating-nausea-in-virtual-worlds/"><u>2024 Approved Eliminating Nausea in Virtual Worlds</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-superior-settings-visuals-that-stick-with-viewers/"><u>2024 Approved Superior Settings Visuals that Stick With Viewers</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/analyzing-the-distinctions-between-windows-terminal-and-powershell/"><u>Analyzing The Distinctions Between Windows Terminal and PowerShell</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-change-mp3-files-into-m4a-format-with-ease/"><u>Free Online Converter - Change MP3 Files Into M4A Format with Ease</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solve-your-netflix-woes-19-proven-tips-for-troubleshooting-lg-tv-issues/"><u>Solve Your Netflix Woes: 19 Proven Tips for Troubleshooting LG TV Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dawn-of-metas-enigmatic-ai-goliath/"><u>The Dawn of Meta's Enigmatic AI Goliath</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/1719021545172-top-iphone-ios-vr-games-you-should-try/"><u>Top Iphone IOS VR Games You Should Try</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-estimating-total-seconds-a-20mb-sized-video/"><u>[New] 2024 Approved Estimating Total Seconds A 20MB-Sized Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-shedding-light-on-brighter-hdr-approaches-with-high-quality-luminosity/"><u>[New] 2024 Approved Shedding Light on Brighter HDR Approaches with High-Quality Luminosity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-ranked-mac-pro-video-maker-plus-audio/"><u>[New] 2024 Approved Top-Ranked Mac Pro Video Maker Plus Audio</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-get-creative-a-comprehensive-guide-to-the-best-free-slideshow-patterns-for-2024/"><u>[New] Get Creative A Comprehensive Guide to the Best Free Slideshow Patterns for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-high-flying-rivals-dji-drone-vs-gopro/"><u>[New] High-Flying Rivals DJI Drone vs GoPro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-exclusive-roundup-best-hdmi-21-tvs-compared-directly/"><u>[New] In 2024, Exclusive Roundup Best HDMI 2.1 TVs Compared Directly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebook-video-treasures-top-5-list/"><u>[New] In 2024, Facebook Video Treasures - Top 5 List</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-promotional-planning-perfection/"><u>[New] Promotional Planning Perfection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-secrets-to-choosing-the-ultimate-free-online-srt-translators-for-2024/"><u>[Updated] Secrets to Choosing the Ultimate Free Online SRT Translators for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-content-for-insta-clout-a-9-step-playbook-for-fame/"><u>2024 Approved Crafting Content for Insta Clout A 9-Step Playbook for Fame</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-mastering-remote-conferences-with-5-elite-recorders/"><u>2024 Approved Mastering Remote Conferences with 5 Elite Recorders</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-iphone-photos-discover-prime-angles-for-perfect-shots-for-2024/"><u>Mastering iPhone Photos Discover Prime Angles for Perfect Shots for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-viewer-interest-6-essential-video-formats-for-2024/"><u>Mastering Viewer Interest 6 Essential Video Formats for 2024</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/1728510199890-pc/"><u>PC用シンプルデータ転送ガイドライン - 一発で完了する方法</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-xiaomi-redmi-note-13-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Xiaomi Redmi Note 13 5G</u></a></li>
 </ul></div>
 

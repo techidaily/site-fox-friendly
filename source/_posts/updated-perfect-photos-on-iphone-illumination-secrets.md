@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfect Photos on IPhone  Illumination Secrets\""
-date: 2024-08-27T16:29:26.141Z
-updated: 2024-08-28T16:29:26.141Z
+date: 2024-11-30T23:46:39.456Z
+updated: 2024-12-03T17:12:53.237Z
 tags: 
   - screen-recording
   - ai video
@@ -35,11 +35,19 @@ Being a photographer means that you must be able to use light to your own advant
 * [Part 1: Tips for Outdoor iPhone Photographers](#part1)
 * [Part 2: Tips for Indoor iPhone Photography Sessions](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tips for Outdoor iPhone Photographers
 
 **1\. Golden hour:** Diffused light is much more pleasant for taking photos and the softest natural light can be found during the sunrise and sunset. The hour before the sun sets or rises is called the golden hour and it is one of the best times of the day for photography in terms of the quality of light that is available. Colors on photos taken during the golden hour appear warm and pictures have a lot of red, yellow or orange due to the low position of the sun on the horizon. Sunrise and sunset are also a perfect time of the day to capture silhouette photos or breathtaking landscapes.
 
 ![golden-hour-photo](https://images.wondershare.com/filmora/article-images/golden-hour-photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Constractly
 
@@ -54,6 +62,10 @@ Holding your phone in your hand while taking pictures during the blue hour may r
 **3\. Midday:** One hour before and after the noon and the Sun is at its highest point, which means that during this period of the day it provides the most light. The type of light the Sun produces at this time of the day is called direct light, that is much less diffused than the light in the morning. Even though there is enough light to take pictures while holding your iPhone, too much light can also create problems if you are using automatic settings.
 
 ![midday-lighting](https://images.wondershare.com/filmora/article-images/midday-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: flickr
 
@@ -73,6 +85,10 @@ Color photos of a cloudy sky look better if the sky is clear and there are only 
 
 ![mist-fog-lighting](https://images.wondershare.com/filmora/article-images/mist-fog-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: Digital Photo Secrets
 
 As rewarding as they may be, mist creates a lot of problems for iPhone photographers, because finding a focus point is more difficult than it is under normal light conditions. The light you can capture through the mist is truly magical, but it is often difficult to come across this type of light.
@@ -89,34 +105,26 @@ All you need to do in order to capitalize on backlight is to place the subject o
 
 ![artificial-light-outdoor](https://images.wondershare.com/filmora/article-images/artificial-light-outdoor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: Efram Goldberg Photography
 
 Rain creates reflections of artificial light on the streets at night, which is why if you like night photography, taking pictures at night after the rain is one of the best times for long exposure pictures. iPhones can capture amazing night shots, but they do need additional photo equipment to achieve their best results.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Tips for Indoor iPhone Photography Sessions
 
 Indoor photography often includes the use of artificial light, but during the day iPhone photographers can also take advantage of the light that comes through the windows. The light that falls at an angle produces shadows that add a sense of depth to the photo, thus creating an opportunity to take an artistic photo indoors.
 
 ![artificial-light](https://images.wondershare.com/filmora/article-images/artificial-light.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 However, artificial sources of light are usually a better option if you want to take interior photos since the natural sources of light are scarce and unreliable. Using a flash on your iPhone is also an option but its strong light will completely change the light setting of the scene.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -140,4 +148,17 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/-taste-of-film-home-cooks-visual-journey/"><u>[New] A Taste of Film Home Cook's Visual Journey</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-understanding-and-utilizing-windows-11-auto-hdr-functionality/"><u>[New] In 2024, Understanding and Utilizing Windows 11 Auto HDR Functionality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-skyward-haven-of-the-pennywise-clouds-for-2024/"><u>[New] Skyward Haven of the Pennywise Clouds for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-navigating-non-facebook-activities-exploration/"><u>[Updated] 2024 Approved Navigating Non-Facebook Activities Exploration</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/exclusive-review-of-top-mp4-players-for-2024/"><u>Exclusive Review of Top MP4 Players for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/guide-to-restoring-obs-recorded-sound-on-your-computer-screen/"><u>Guide to Restoring OBS Recorded Sound on Your Computer Screen</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-comprehensive-guide-to-effective-multiframe-use-in-edge/"><u>In 2024, Comprehensive Guide to Effective Multiframe Use in Edge</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionizing-home-cinema-latest-on-samsungs-ubd-k850u/"><u>In 2024, Revolutionizing Home Cinema Latest on Samsung’s UBD-K850U</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210014237-monitor-not-responding-fix-unsupported-signal-timings-now/"><u>Monitor Not Responding? Fix Unsupported Signal Timings Now</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211436055-9798330284610-pearls-on-a-string/"><u>Pearls On A String | Free Book</u></a></li>
+</ul></div>
 

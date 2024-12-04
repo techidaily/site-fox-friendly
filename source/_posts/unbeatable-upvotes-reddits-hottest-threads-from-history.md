@@ -1,7 +1,7 @@
 ---
 title: "\"Unbeatable Upvotes  Reddit's Hottest Threads From History\""
-date: 2024-11-24T08:10:20.198Z
-updated: 2024-11-25T06:16:20.140Z
+date: 2024-11-26T21:06:14.411Z
+updated: 2024-12-04T07:08:21.009Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ Here they are!
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When writing the article (Nov., 2022), this Reddit post features over 400k votes. 97% of those users Upvoted. This percentage made it the most upvoted Reddit post until another overtook it.
 
 (r/wallstreetbets)
@@ -80,11 +84,19 @@ If you know the famous song "Never Gonna Give You Up, " you know who this is. We
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
 
 The image depicts the New York spirit as an excited cab driver shows off his cab in the 2018 New York Taxi Driver calendar.
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
@@ -122,10 +134,6 @@ That's all there is to it. No politics, no serious issues, and so on. Just a fro
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
@@ -139,10 +147,6 @@ Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Sco
 Well, a Reddit user made an edit of this clip and now it looks as if Will juggled four balls... then five.
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
@@ -161,10 +165,6 @@ The Reddit post has over 4k comments, many of which feature thousands of upvotes
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
 Apart from what been introduced to you above, we also prepared a video about the most upvoted posts on Reddit. If you have any interests, you can watch it and get a deeper understanding of why these posts are so popular.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -193,7 +193,7 @@ Its purpose is quite ironic. The point was to make this image of Chancellor Palp
 Sadly, the attempt failed but still received a lot of attention.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
@@ -204,10 +204,6 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
@@ -215,10 +211,6 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
@@ -234,6 +226,10 @@ What's even more interesting is that the driver commented on this Reddit post, l
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
 
 This one, for example, features 269k votes. 98% of them Upvoted, all probably enthusiastic gamers themselves.
@@ -246,6 +242,10 @@ You understand the pain if you've gone through something like this.
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
 The phrase "this is extremely dangerous to our democracy" is repeated repeatedly in every news broadcast from these news stations.
@@ -257,7 +257,7 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Some things on Reddit don't have to make sense to get a lot of attention.
@@ -271,16 +271,12 @@ That's all there is to it. No politics, no serious issues, and so on. Just a fro
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
 
@@ -306,12 +302,16 @@ After an attempt by Union Troops to recover his body, they received a letter fro
 
 The Reddit post has over 4k comments, many of which feature thousands of upvotes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
 Apart from what been introduced to you above, we also prepared a video about the most upvoted posts on Reddit. If you have any interests, you can watch it and get a deeper understanding of why these posts are so popular.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -348,20 +348,22 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-mastering-the-art-of-using-telegram-online/"><u>[New] 2024 Approved Mastering the Art of Using Telegram Online</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-omni-directional-vision-and-its-distinctive-features-for-2024/"><u>[New] Omni-Directional Vision and Its Distinctive Features for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-inspirational-cinema-collection-10-movie-gems/"><u>[Updated] 2024 Approved Inspirational Cinema Collection 10 Movie Gems</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-complete-circular-imaging-and-its-distinct-characteristics-for-2024/"><u>[Updated] Complete Circular Imaging and Its Distinct Characteristics for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-kinemaster-android-an-in-depth-gaming-guide-review/"><u>[Updated] KineMaster Android An In-Depth Gaming Guide Review</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-creators-lab-building-an-unstoppable-channel/"><u>[Updated] The Creator's Lab Building an Unstoppable Channel</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-y28-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo Y28 5G | Dr.fone</u></a></li>
-<li><a href="https://win-lab.techidaily.com/como-criar-um-clone-do-drive-em-servidores-windows-estrategias-para-o-sistema-2016/"><u>Como Criar Um Clone Do Drive Em Servidores Windows: Estratégias Para O Sistema 2016</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/elevate-visual-stories-editing-music-for-canva-clips-for-2024/"><u>Elevate Visual Stories Editing Music for Canva Clips for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-tecno-pova-6-pro-5g-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Tecno Pova 6 Pro 5G to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-swift-solution-mastering-the-art-of-image-to-thumbnail-transformation/"><u>In 2024, Swift Solution Mastering the Art of Image-To-Thumbnail Transformation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/mastering-median-computation-a-step-by-step-guide-using-microsoft-excel/"><u>Mastering Median Computation: A Step-by-Step Guide Using Microsoft Excel</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/prime-7-cameras-unbeatable-in-underwater-shooting/"><u>Prime 7 Cameras Unbeatable In Underwater Shooting</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/troubleshooting-overcoming-ai-assistant-chatgpts-server-troubles-and-usual-error-snags/"><u>Troubleshooting: Overcoming AI Assistant ChatGPT's Server Troubles and Usual Error Snags</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unresponsive-fingerprint-reader-on-win-os/"><u>Unresponsive Fingerprint Reader on Win OS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-perfecting-the-art-of-online-broadcasts-utilizing-zoom-and-youtube/"><u>[New] 2024 Approved Perfecting the Art of Online Broadcasts Utilizing Zoom and YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-digital-storyboard-studio-for-2024/"><u>[New] Digital Storyboard Studio for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-efficiently-conducting-virtual-meetings-via-zoom-in-win10-for-2024/"><u>[New] Efficiently Conducting Virtual Meetings via Zoom in Win10 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-enhancing-your-gaming-groundwork-perfecting-video-chats-on-xbox-one-for-2024/"><u>[New] Enhancing Your Gaming Groundwork - Perfecting Video Chats on Xbox One for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-gently-ebbing-sounds-with-logic-pros-dimming-function-for-2024/"><u>[New] Gently Ebbing Sounds with Logic Pro's Dimming Function for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-best-practices-for-high-impact-customer-endorsements/"><u>[New] In 2024, Best Practices for High-Impact Customer Endorsements</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-glare-free-guide-to-stellar-gopro-videos-for-2024/"><u>[New] The Glare-Free Guide to Stellar GoPro Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-video-on-ios-top-10-applications-to-watch/"><u>[Updated] 2024 Approved Mastering Video on iOS Top 10 Applications to Watch</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unraveling-robloxs-close-up-mysteries-for-gamers/"><u>[Updated] Unraveling Roblox's Close-Up Mysteries for Gamers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-claim-the-crown-strategies-for-staff-picked-videos-at-vimeo/"><u>2024 Approved Claim the Crown Strategies for Staff-Picked Videos at Vimeo</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-crafting-a-viral-video-journey-6-key-strategies-on-youtube/"><u>2024 Approved Crafting a Viral Video Journey 6 Key Strategies on YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-digital-laughter-lab/"><u>In 2024, Digital Laughter Lab</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-top-6-video-editing-apps-for-macos-big-sur-11/"><u>In 2024, Top 6 Video Editing Apps for macOS Big Sur 11</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/les-15-meilleurs-converters-de-videos-en-4k-gratuit-pour-windows-et-mac-guide-complet-pour-downgrader-1080p-a-4k/"><u>Les 15 Meilleurs Converters De Vidéos en 4K Gratuit Pour Windows Et Mac : Guide Complet Pour Downgrader 1080P À 4K</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-dock-fix-lenovo-usb-c-driver-update/"><u>Quick Dock Fix: Lenovo USB-C Driver Update</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbelievably-affordable-the-top-rated-ultra-resilient-smartwatch-you-dont-want-to-miss/"><u>Unbelievably Affordable: The Top-Rated, Ultra-Resilient Smartwatch You Don't Want to Miss</u></a></li>
 </ul></div>
 

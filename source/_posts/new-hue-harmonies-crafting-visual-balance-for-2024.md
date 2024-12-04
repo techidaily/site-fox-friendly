@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Hue Harmonies  Crafting Visual Balance for 2024\""
-date: 2024-08-27T16:31:52.210Z
-updated: 2024-08-28T16:31:52.210Z
+date: 2024-12-02T08:17:26.647Z
+updated: 2024-12-04T05:21:19.613Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -30,9 +34,17 @@ In cinematography, color grading refers to the manipulation of film and video im
 
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
@@ -64,9 +76,6 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
@@ -74,8 +83,9 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
@@ -98,9 +108,6 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ##### Step2Select the specific video portion
 
 #####
@@ -109,13 +116,6 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
@@ -124,9 +124,6 @@ No advertising on the website.
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 You will notice that the color changes depending on your selected preset.
 
 In the Presets tab, there are different templates, including Common, 3D LUT, Vignette, and Film. While in Adjust tab, you can modify the white balance, such as color tint and color temperature, 3D LUT, Color, Light, HSL, and Vignette, etc.
@@ -137,9 +134,6 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Using the Color Panel Window**
 
 ##### Step1To perform color correction in Filmora, switch to the Color tab
@@ -147,6 +141,10 @@ Once you've finished correcting the video color, press Play and go over the whol
 You can modify the temperature, tint, white balance, contrast, saturation, and brightness and apply 3D LUT directly and quickly in this editing panel.
 
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step2Color grading with Wondershare Filmora
 
@@ -218,4 +216,26 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-master-your-sketches-with-the-ultimate-mac-apps/"><u>[New] 2024 Approved Master Your Sketches with the Ultimate Mac Apps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-best-economical-choice-high-performance-asmr-mic-picks/"><u>[New] Best Economical Choice High-Performance ASMR Mic Picks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-master-the-art-of-clean-up-a-guide-to-bg-elimination-for-2024/"><u>[New] Master the Art of Clean-Up A Guide to BG Elimination for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-lgs-monitor-magic-a-comprehensible-review-of-4k-tech-for-2024/"><u>[New] Unveiling LG's Monitor Magic A Comprehensible Review of 4K Tech for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-battle-of-av1-and-vp9-outcomes-revealed/"><u>[Updated] 2024 Approved The Battle of AV1 and VP9 Outcomes Revealed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-full-capability-assessment-of-sony-fdr-x1000-videography-for-2024/"><u>[Updated] Full Capability Assessment of Sony FDR-X1000 Videography for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-enhance-gaming-bliss-ps5xbox-series-x-screen-revelations/"><u>[Updated] In 2024, Enhance Gaming Bliss PS5/Xbox Series X Screen Revelations</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/elevate-your-photo-game-with-these-six-tips-to-find-the-best-selfie-extender/"><u>Elevate Your Photo Game with These Six Tips to Find the Best Selfie Extender</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/first-time-periscope-income-strategies-for-success/"><u>First-Time Periscope Income Strategies for Success</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/from-frames-to-frequencies-the-video-transformation-for-2024/"><u>From Frames to Frequencies The Video Transformation for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-visual-communication-adding-instagram-video-descriptions/"><u>In 2024, Elevate Your Visual Communication Adding Instagram Video Descriptions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-photos-with-samsungs-latest-toolkit/"><u>Mastering Photos with Samsung's Latest Toolkit</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/obs-camera-not-working-problem-solved-for-2024/"><u>OBS Camera Not Working Problem [Solved] for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/premier-auditory-options-for-iphones-for-2024/"><u>Premier Auditory Options for iPhones for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/rotate-your-videos-with-ease-10-top-online-tools-for-2024/"><u>Rotate Your Videos with Ease 10 Top Online Tools for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-updating-your-audio-technica-sound-card-driver/"><u>Step-by-Step Guide: Updating Your Audio-Technica Sound Card Driver</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-insiders-guide-to-time-lagged-masterpieces-with-your-android-phone/"><u>The Insider's Guide to Time-Lagged Masterpieces with Your Android Phone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-significance-of-the-latest-ios-update-unveiling-why-ios-18-matters/"><u>The Significance of the Latest iOS Update: Unveiling Why iOS 18 Matters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unlock-video-quality-with-apple-music-addition-for-2024/"><u>Unlock Video Quality with Apple Music Addition for 2024</u></a></li>
+</ul></div>
 

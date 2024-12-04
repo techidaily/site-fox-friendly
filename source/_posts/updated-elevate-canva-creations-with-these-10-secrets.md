@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Canva Creations with These 10 Secrets"
-date: 2024-11-22T06:16:32.180Z
-updated: 2024-11-25T07:20:18.636Z
+date: 2024-12-01T04:29:16.010Z
+updated: 2024-12-04T11:12:44.418Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ This article will include some valuable tips that you can apply through a profes
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: 10 Helpful Tips for Using Canva Photo Editor
@@ -52,7 +52,11 @@ Other interesting effects include BadTV, through which you can add cinematic and
 ![search and apply filters](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add Text to Images
@@ -63,6 +67,14 @@ You can also manage the size of your text to make it look appropriate and suitab
 
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Add Frames to the Image
 
 Do you know that adding a single frame to your photo can change the whole dynamic? Canva photo editor has an immense range of frames like polaroid black, polaroid white, film 1, film 2, and many more. You can add an artistic touch to your photos through polaroid frames without capturing them on polaroid cameras.
@@ -70,10 +82,6 @@ Do you know that adding a single frame to your photo can change the whole dynami
 On the other hand, frames like film 1 and film 2 are extremely trendy, and many social media influencers apply them to their photos. You can also utilize other classic frames according to your choice to give a new look to your favorite photos. Isn’t this good?
 
 ![use different canva photo frames](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Create YouTube Thumbnails
 
@@ -91,10 +99,6 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Make Photo Collage
 
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
@@ -102,11 +106,7 @@ Photo collage combines all of our favorite and preferred photos in a single fram
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Design Mockups
@@ -115,6 +115,10 @@ If you are editing images for a product shoot, clothing brand, or any other proj
 
 ![design mockups through canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Use Auto Focus and Blur
 
 Professional photographers use the features like auto-focus and blur to give depth or shallow of the field to the images. Canva photo editor has an option of “Auto Focus” to automatically adjust the focus of your photo to make it look sharp in high quality. On the other hand, using the option of "Blur" on this editor, you can blur certain parts of the image, such as the background or subjects of the picture.
@@ -122,10 +126,6 @@ Professional photographers use the features like auto-focus and blur to give dep
 By combining both of these features, you can easily craft a professional illustration through your images with a few retouches. This is great!
 
 ![auto blur effect applied](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. Mix the Colors
 
@@ -136,7 +136,7 @@ Moreover, you can use filters and color palettes that match well with your theme
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,20 +167,21 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-beauty-blogging-101-starting-up-as-an-aesthetic-vlogger/"><u>[New] 2024 Approved Beauty Blogging 101 Starting Up as an Aesthetic Vlogger</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-blend-into-black-premiere-pro-trick/"><u>[New] Blend Into Black Premiere Pro Trick</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/egality-of-capturing-and-reproducing-youtube-video-playbacks-for-2024/"><u>[New] Legality of Capturing and Reproducing YouTube Video Playbacks for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-stand-out-with-style-ios-and-androids-best-apps-for-adding-stickers-for-2024/"><u>[New] Stand Out with Style IOS and Android's Best Apps for Adding Stickers for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-discontinues-premium-finewoven-case-collection-introduces-new-beats-branded-alternatives-insights/"><u>Apple Discontinues Premium FineWoven Case Collection, Introduces New Beats-Branded Alternatives - Insights</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/assemble-movies-into-efficient-watchlists/"><u>Assemble Movies Into Efficient Watchlists</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/attracting-audiences-hook-up-hacks-for-hosts/"><u>Attracting Audiences Hook-Up Hacks for Hosts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/behind-glasses-and-screens-vrs-evolutionary-tale-for-2024/"><u>Behind Glasses and Screens VR’s Evolutionary Tale for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/beyond-saturation-and-contrast-hdrs-role-in-quality-enhancement/"><u>Beyond Saturation and Contrast HDR's Role in Quality Enhancement</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/close-up-mastery-in-film-production/"><u>Close-Up Mastery in Film Production</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/crafting-your-future-in-the-art-of-visuals/"><u>Crafting Your Future in the Art of Visuals</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/cutting-edge-design-practices-for-career-advancement-for-2024/"><u>Cutting-Edge Design Practices for Career Advancement for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/dyson-unveils-revolutionary-ontrac-wireless-earbuds-a-formidable-rival-to-apples-airpods-pro-zdnet/"><u>Dyson Unveils Revolutionary OnTrac Wireless Earbuds, a Formidable Rival to Apple's AirPods Pro - ZDNet</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-unlock-chromecasts-full-potential-streaming-local-videos-from-windows-mac-android-and-ios-devices/"><u>New Unlock Chromecasts Full Potential Streaming Local Videos From Windows, Mac, Android, and iOS Devices</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/quick-recording-techniques-for-firaxis-age-of-empires-ii/"><u>Quick Recording Techniques for Firaxis' Age of Empires II</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-budget-blueprint-for-creating-musical-cinematic-pieces-for-2024/"><u>[New] Budget Blueprint for Creating Musical Cinematic Pieces for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-effortlessly-access-and-apply-instagrams-best-filters/"><u>[New] How to Effortlessly Access and Apply Instagram's Best Filters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-cutting-edge-cost-free-after-effects-packages/"><u>[New] In 2024, Cutting-Edge, Cost-Free After Effects Packages</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-100-virtual-bicycle-escapades-to-experience/"><u>[New] Top 100 Virtual Bicycle Escapades to Experience</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-professionals-secret-utilizing-windows-movie-maker-expertly-in-windows-8-systems/"><u>[Updated] 2024 Approved The Professional's Secret Utilizing Windows Movie Maker Expertly in Windows 8 Systems</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-high-stakes-gopro-matchup-hero5b-and-hero5-session-edition/"><u>[Updated] High-Stakes GoPro Matchup Hero5B & Hero5 Session Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-toolwiz-photosapp-overview-a-complete-analysis-and-future-prospects/"><u>[Updated] In 2024, Toolwiz PhotosApp Overview - A Complete Analysis and Future Prospects</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-excellent-video-recorders-for-desktops/"><u>2024 Approved Excellent Video Recorders for Desktops</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/watch-dynamics-navigating-youtube-in-parallel-for-2024/"><u>Dual-Watch Dynamics Navigating YouTube in Parallel for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elevate-your-skies-top-11-extra-add-ons-for-phantom-4/"><u>Elevate Your Skies Top 11 Extra Add-Ons for Phantom 4</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-8-plus-to-other-iphone-14-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 8 Plus to other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-guides-to-quick-webinar-recording-with-macos-and-windows/"><u>In 2024, Guides to Quick Webinar Recording with macOS and Windows</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/secrets-to-uncovering-missed-confidential-images/"><u>Secrets to Uncovering Missed Confidential Images</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/strategies-for-penning-persuasive-vlogger-content-for-2024/"><u>Strategies for Penning Persuasive Vlogger Content for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tips-to-fix-and-optimize-your-computers-overbearing-cooling-system/"><u>Tips to Fix and Optimize Your Computer's Overbearing Cooling System</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-motorola-g54-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Motorola G54 5G Phone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Raw to Stunning  The Role of LUTs in Premiere Editing\""
-date: 2024-11-21T02:55:37.563Z
-updated: 2024-11-25T05:45:46.254Z
+date: 2024-11-26T20:55:30.102Z
+updated: 2024-12-04T07:33:25.603Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. How to add LUTs to your footage
@@ -52,7 +52,7 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Why use LUTs in your project?
@@ -66,7 +66,7 @@ Because of this, some designers employ look-up tables (LUTs) that they have crea
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Can you adjust the strength of the LUT?
@@ -76,10 +76,6 @@ There are no such modifications that can be made in a certain LUT or Look, and t
 The entire color panel in Premiere Pro is packed with all of the color grading tools that are required to adjust your film in the appropriate way. Investigating them can provide you with some understanding of how they function. You can get a sense of how these LUTs function by using the pre-installed LUTs that are accessible in Premiere Pro, which you can use at first to get a feel for the LUTs before moving on to using paid or free Color Grading profiles.
 
 The end outcome does not vary by a substantial amount, but how it looks can change depending on the LUT you use. In the event that something seems to be lacking, you can always modify the color grading.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Export LUTs
 
@@ -94,7 +90,7 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Where can you find LUTs?
@@ -109,6 +105,10 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Complete Cinema LUTs
 * Filmic Tone LUTs
 * Urban Dark Creative LUTs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -146,24 +146,22 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-taringaid-profile-image-details-pixel-count-codec-time-span/"><u>[New] TaringaID Profile Image Details Pixel Count, Codec, Time Span</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-art-of-podcast-logo-design-for-maximum-impact/"><u>[New] The Art of Podcast Logo Design for Maximum Impact</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-silent-voices-in-the-social-media-arena-ig-live-edition-for-2024/"><u>[Updated] Silent Voices in the Social Media Arena - IG Live Edition for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-achieving-high-quality-tiktok-videos-the-zoom-method/"><u>2024 Approved Achieving High-Quality TikTok Videos The Zoom Method</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-audio-formatting-guide-from-srt-to-xmlssa-ttml-etc/"><u>2024 Approved Audio Formatting Guide From SRT to XML/SSA, TTML, Etc</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-detailed-look-at-the-latest-lg-360-camera-tech/"><u>2024 Approved Detailed Look at the Latest LG 360 Camera Tech</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-fps-fanatics-resource-for-fast-controls-and-extensions/"><u>2024 Approved FPS Fanatics' Resource for Fast Controls and Extensions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-download-vlc-player-for-free-and-safe-on-mac/"><u>2024 Approved How to Download VLC Player for Free and Safe on Mac?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-photodirector-masterclass-review/"><u>2024 Approved PhotoDirector Masterclass Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-pixel-power-the-top-10-cameras-for-clear-images/"><u>2024 Approved Pixel Power The Top 10 Cameras for Clear Images</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unveiling-leading-edge-vr-developers/"><u>2024 Approved Unveiling Leading-Edge VR Developers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/a-compreomed-approach-for-making-tiktok-songs-your-ringtone-for-2024/"><u>A Compreomed Approach for Making TikTok Songs Your Ringtone for 2024</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/explore-the-power-of-vue-plus-laravel-for-robust-ui-dashboards-professional-pro-tutorial-using-json-api-inspired-by-creative-tim/"><u>Explore the Power of Vue + Laravel for Robust UI Dashboards: Professional PRO Tutorial Using JSON API | Inspired by Creative Tim</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-note-12-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi Note 12 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-basics-in-the-realm-of-tale-construction/"><u>In 2024, Basics in the Realm of Tale Construction</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Infinix Note 30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-yt-treasure-hunt-accessing-previously-deleted-content/"><u>In 2024, YT Treasure Hunt Accessing Previously Deleted Content</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/master-the-art-of-online-presence-using-manycam-professional-live-video-tools-and-fake-webcams/"><u>Master the Art of Online Presence Using ManyCam - Professional Live Video Tools & Fake Webcams</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/smooth-transition-to-chatgpt-android-integration/"><u>Smooth Transition to ChatGPT Android Integration</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-bright-ideas-for-android-video-mastery/"><u>[New] 2024 Approved Bright Ideas for Android Video Mastery</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-smiling-screens-top-15-funny-mobile-photography-tools/"><u>[New] 2024 Approved Smiling Screens Top 15 Funny Mobile Photography Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-benq-sw320-review-a-gateway-to-true-high-definition-for-2024/"><u>[New] BenQ SW320 Review A Gateway to True High Definition for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-capturing-action-on-faces-using-picsarts-blur-feature-for-2024/"><u>[New] Capturing Action on Faces Using Picsart's Blur Feature for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-precise-approach-to-blend-gopro-videos-with-surrounding-virtual-landscapes/"><u>[New] In 2024, Precise Approach to Blend GoPro Videos with Surrounding Virtual Landscapes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-spotlight-subject-erase-bg-in-photo-editing/"><u>[New] In 2024, Spotlight Subject, Erase Bg in Photo Editing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-premier-choices-high-quality-free-screen-recorder-software-for-2024/"><u>[Updated] Premier Choices High-Quality Free Screen Recorder Software for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fusing-images-online-and-desktop-harmoniously/"><u>2024 Approved Fusing Images Online & Desktop Harmoniously</u></a></li>
+<li><a href="https://win-blog.techidaily.com/conversion-libre-dun-fichier-au-format-wmv-en-ligne-tutoriel-de-movavi/"><u>Conversion Libre D'un Fichier Au Format WMV en Ligne - Tutoriel De Movavi</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-insiders-guide-to-uploading-with-google/"><u>In 2024, The Insider’s Guide to Uploading with Google</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-perfect-blur-techniques-for-smoother-photo-edits/"><u>In 2024, The Perfect Blur Techniques for Smoother Photo Edits</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-unlocking-drone-knowledge-must-know-before-making-a-deal/"><u>In 2024, Unlocking Drone Knowledge Must-Know Before Making a Deal</u></a></li>
+<li><a href="https://driver-install.techidaily.com/next-level-updates-acer-drivers-and-win11-synergy/"><u>Next-Level Updates: Acer Drivers & Win11 Synergy</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-alter-your-windows-cursor-on-pc/"><u>Steps to Alter Your Window's Cursor on PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-future-of-flirting-gpt-powered-dating/"><u>The Future of Flirting: GPT-Powered Dating</u></a></li>
 </ul></div>
 

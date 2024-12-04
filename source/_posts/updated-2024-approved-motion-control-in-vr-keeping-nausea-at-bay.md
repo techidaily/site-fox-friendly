@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Motion Control in VR  Keeping Nausea at Bay\""
-date: 2024-08-27T16:28:44.027Z
-updated: 2024-08-28T16:28:44.027Z
+date: 2024-12-02T03:36:48.515Z
+updated: 2024-12-03T18:59:32.195Z
 tags: 
   - screen-recording
   - ai video
@@ -26,9 +26,17 @@ thumbnail: https://thmb.techidaily.com/fa44e4072bbca8fffcfb2ff9a75f7dc0fad47a3e6
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What HTC does to reduce motion sickness
 
  HTC Vive is aiming at giving its customers the virtual reality experience so real and sick-free that they can fully have fun with the technology and make their money and time spent well. In spite of improvements to game technology in recent years, HTC is focusing heavily these days on making sure users feel correctly oriented. HTC is also at work on boosting the frame rate to match with the body movements and to clear up that nausea-inducing mismatch. The game developers are coming up with a variety of solutions to solve the problem, or at least minimize it. A new technology introduced by the Mayo Clinic is a good hope for HTC Vive to bring its headsets to a whole new level. The hospital has developed algorithms that, when paired with galvanic vestibular stimulation (GVS), can trick the brain into syncing what you're seeing in VR with physical stimulation within a tenth of a second.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8 Tips to reduce motion sickness
 
@@ -46,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/fa44e4072bbca8fffcfb2ff9a75f7dc0fad47a3e6
 **Warning:**These quick remedies work from person to person. Thus the best thing to do as soon as you feel the slightest tinge of nausea, stop what you're doing and remove the headset. Don't re-enter VR until you aren't feeling sick anymore. Thinking you can "tough it out" will leave you feeling dizzy and nauseated for hours and trust me it’s not worth it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -70,8 +82,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-conquer-youtubes-default-snippet-feature-for-2024/"><u>[New] Conquer YouTube's Default Snippet Feature for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-flapping-flamenco-finch/"><u>[New] Flapping Flamenco Finch</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-hero4-meets-hero5-a-camera-battle/"><u>[New] In 2024, Hero4 Meets Hero5 A Camera Battle</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-solo-stream-triumph-strategies-for-clear-consistent-broadcasts/"><u>[New] Solo Stream Triumph Strategies for Clear, Consistent Broadcasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-in-pursuit-of-perfection-stepwise-processes-for-outstanding-educational-content-on-youtube/"><u>[Updated] 2024 Approved In Pursuit of Perfection Stepwise Processes for Outstanding Educational Content on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-hero5-review-capturing-extreme-sports/"><u>[Updated] Hero5 Review Capturing Extreme Sports</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-text-trends-top-10-modern-effects-for-2024/"><u>[Updated] Text Trends Top 10 Modern Effects for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-youtubers-guide-to-ergonomic-stabilizers-for-cutting-edge-cinematography-for-2024/"><u>[Updated] YouTubers' Guide to Ergonomic Stabilizers for Cutting-Edge Cinematography for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/advanced-protection-measures-against-the-notorious-202n4-exception-access-violation-in-computer-systems/"><u>Advanced Protection Measures Against the Notorious 202N4 Exception Access Violation in Computer Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-story-stealth-mode-accessible-for-everyone-without-link-sharing-for-2024/"><u>Instagram Story Stealth Mode Accessible for Everyone without Link Sharing for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-repeat-and-replay-10-best-free-online-video-loopers/"><u>New Repeat and Replay 10 Best Free Online Video Loopers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/premium-screen-recording-selections/"><u>Premium Screen Recording Selections</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pro-tools-for-windows-users-mastering-command-line-shortcuts/"><u>Pro Tools for Windows Users: Mastering Command-Line Shortcuts</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-guide-resolving-the-windows-failed-to-start-problem/"><u>Ultimate Guide: Resolving the 'Windows Failed to Start' Problem</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unbeatable-upvotes-reddits-hottest-threads-from-history/"><u>Unbeatable Upvotes Reddit's Hottest Threads From History</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

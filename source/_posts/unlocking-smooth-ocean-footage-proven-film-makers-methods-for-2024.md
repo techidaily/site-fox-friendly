@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking Smooth Ocean Footage  Proven Film-Maker's Methods for 2024\""
-date: 2024-08-27T16:28:42.793Z
-updated: 2024-08-28T16:28:42.793Z
+date: 2024-12-01T01:22:33.079Z
+updated: 2024-12-04T10:13:08.889Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Get closer
 
  You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -68,11 +76,19 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\. Wide angle
 
@@ -100,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -125,8 +145,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-enriched-visuals-and-melodies-the-art-of-integrating-filters-and-music-windows-photos/"><u>[New] 2024 Approved Enriched Visuals & Melodies The Art of Integrating Filters & Music (Windows Photos)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-the-full-screen-fusion-potential-with-sierras-multimedia-capabilities/"><u>[New] Discover the Full-Screen Fusion Potential with Sierra's Multimedia Capabilities</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-easy-and-swift-face-blur-on-piscart-tools-at-hand/"><u>[New] Easy and Swift Face-Blur on PiscArt Tools at Hand</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-enjoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors/"><u>[New] In 2024, Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-top-10-must-haves-action-cameras-unleashed/"><u>[New] In 2024, Top 10 Must-Haves Action Cameras Unleashed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-how-to-quickly-capture-iphone-screens-on-the-fly/"><u>[Updated] 2024 Approved How to Quickly Capture iPhone Screens on the Fly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-leveraging-adobes-tools-to-add-music-to-your-videos/"><u>[Updated] 2024 Approved Leveraging Adobe's Tools to Add Music to Your Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-expert-routines-for-volume-balancing-in-fl-studio/"><u>[Updated] Expert Routines for Volume Balancing in FL Studio</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-craft-standout-videos-mastery-of-youtube-thumbnail-dimensions-for-2024/"><u>[Updated] How to Craft Standout Videos Mastery of YouTube Thumbnail Dimensions for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-djis-aesthetics-first-20-no-cost-drone-vfx-trials/"><u>[Updated] In 2024, Explore DJI's Aesthetics – First 20 No-Cost Drone VFX Trials</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-revolutionize-your-marketing-campaigns-for-maximum-roi/"><u>Cookiebot: Revolutionize Your Marketing Campaigns for Maximum ROI</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-how-ai-can-elevate-your-storytelling-experience/"><u>Discover How AI Can Elevate Your Storytelling Experience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/i-metodi-piu-efficienti-per-la-trasformazione-di-file-mts-in-formato-mp4-soluzione-libera/"><u>I Metodi Più Efficienti per La Trasformazione Di File MTS in Formato MP4 - Soluzione Libera!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-audiophiles-choice-best-microphones-for-podcasting/"><u>In 2024, Audiophile's Choice Best Microphones for Podcasting</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-how-to-add-custom-emoji-on-discord-status-pc-and-mobile-solution/"><u>In 2024, How to Add Custom Emoji on Discord Status? [PC and Mobile Solution]</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Motorola Moto E13? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-se-2022-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone SE (2022) with IMEI Code?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-top-picks-for-faith-based-ringtones-online/"><u>In 2024, Top Picks for Faith-Based Ringtones Online</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->

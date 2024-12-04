@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Optimizing Visuals  Editing Videos with StoryRemix and Windows 11 Photos\""
-date: 2024-11-23T21:11:03.219Z
-updated: 2024-11-25T07:05:07.355Z
+date: 2024-12-02T03:04:56.556Z
+updated: 2024-12-04T03:22:45.906Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,6 @@ Moreover, creating own videos is also possible with this tool.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to download Story Remix in Windows
 
 In case you want to download Story Remix, we must tell you it is not a standalone product. It is bundled within the Windows Photos App.
@@ -59,6 +55,10 @@ Downloading Photos App will add Story Remix to your system for brilliant video e
 Go to **Start** menu and open **Windows Photos**. you can see videos and photos saved under the default **Pictures** folder organized by the Photos App. Tap on the ‘Create’ button on the top menu to discover **Story Remix**.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to create Story Remix automatically and randomly
 
@@ -72,17 +72,13 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/start-remix-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
    2. You can rearrange the content by tapping **Remix it for me** button.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to create a Story Remix project from scratch
@@ -98,15 +94,15 @@ Here is the guide –
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to edit a Story Remix video
 
 Story Remix has 3 major sections namely, media bin consists of files already included in your card-based timeline and files that you chose in previous steps; preview section with recent changes and timeline shows the card with a running video; and the timeline having the option to drag and drop cards from the media bin.
 
 In the following sections, we have segregated each editing feature of Story Mix for you to explore –
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Adding a new theme
 
@@ -118,7 +114,7 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Adding image duration
@@ -130,7 +126,7 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Adding custom text
@@ -141,12 +137,20 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
 2. Preview the changes and click ‘Done’.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Trimming video clips
 
@@ -163,10 +167,6 @@ Adding 3D special effects to video clips is one of the lucrative features of Pho
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-effects-min.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 6: How to export a Story Remix video
 
 Now that you have learnt how to edit videos in Story Remix, let’s see how can you export or share them with the world. You can directly share from Photos or use a USB drive to do the needful.
@@ -182,6 +182,10 @@ Now, pick the app or contact and send the video.
 
 Recent videos are found on ‘Collections’ section if they are auto created. Otherwise, all the Story Remix files are located permanently on ‘Creations’ section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From this article, we are sure that you have got plenty to learn about Story Remix. This wonderful feature from Windows 10 Photos is going to win hearts.
@@ -193,10 +197,6 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -223,22 +223,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-future-of-filming-xs-100is-bold-journey/"><u>[New] 2024 Approved The Future of Filming XS 100I's Bold Journey</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unraveling-virtual-realitys-interactive-gear/"><u>[New] 2024 Approved Unraveling Virtual Reality's Interactive Gear</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-decreasing-decibels-a-step-by-step-guide-to-softening-sound-in-premiere-pro-for-2024/"><u>[New] Decreasing Decibels A Step-by-Step Guide to Softening Sound in Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-10-apps-to-add-stickers-to-photos-for-iphone-and-android/"><u>[Updated] 2024 Approved Best 10 Apps to Add Stickers to Photos for iPhone and Android</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-ultimate-experts-handbook-for-voice-alteration-via-morphvox/"><u>[Updated] 2024 Approved The Ultimate Expert's Handbook for Voice Alteration via MorphVOX</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-xvideo-studio-dissected-full-analysis-guide/"><u>[Updated] 2024 Approved XVideo Studio Dissected Full Analysis Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-elite-gopro-hero5-black-charger-kits-genuine-and-counterparts-for-2024/"><u>[Updated] Elite GoPro Hero5 Black Charger Kits, Genuine and Counterparts for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-exclusive-insights-into-making-memorable-instagram-movies/"><u>[Updated] Exclusive Insights Into Making Memorable Instagram Movies</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-premium-notebooks-select-the-best-for-professional-edits/"><u>[Updated] Premium Notebooks Select the Best for Professional Edits</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-synthesize-music-with-images-in-ppts/"><u>[Updated] Synthesize Music with Images in PPTs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/descargar-conversor-swf-free-online-movavi/"><u>Descargar Conversor SWF FREE Online - Movavi</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-apple-iphone-8-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix Apple iPhone 8 Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-tecno-pova-6-pro-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Tecno Pova 6 Pro 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-resolving-poor-image-quality-on-facebook-live-feeds/"><u>In 2024, Resolving Poor Image Quality on Facebook Live Feeds</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-fundamentals-of-youtube-video-archiving/"><u>In 2024, The Fundamentals of YouTube Video Archiving</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mouthwatering-movies-how-to-make-your-food-videography-shine/"><u>Mouthwatering Movies How to Make Your Food Videography Shine</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/optimizing-viewing-experience-video-filters-for-all-screens/"><u>Optimizing Viewing Experience Video Filters for All Screens</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-action-unleashed-the-latest-in-filmmaking-from-polaroids-xs-for-2024/"><u>[New] Action Unleashed The Latest in Filmmaking From Polaroid's XS for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ackward-glance-decoding-youtube-video-reversals/"><u>[New] Backward Glance Decoding YouTube Video Reversals</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-enhancing-experience-best-audio-sources-for-unpack-videos-for-2024/"><u>[New] Enhancing Experience Best Audio Sources for Unpack Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-how-to-smoothly-add-apods-episodes-on-devices-for-2024/"><u>[New] How to Smoothly Add APods Episodes on Devices for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-guide-to-no-charge-subtitle-makers-srt/"><u>[New] In 2024, The Ultimate Guide to No-Charge Subtitle Makers (SRT)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-guffaw-gallery-your-free-high-quality-memes/"><u>[Updated] 2024 Approved Guffaw Gallery Your Free, High-Quality Memes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-gameplay-in-focus-scrutinizing-screen-recorders-for-2024/"><u>[Updated] Gameplay in Focus Scrutinizing Screen Recorders for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ios-slide-show-tools-tailored-for-high-end-models/"><u>[Updated] IOS Slide Show Tools Tailored for High-End Models</u></a></li>
+<li><a href="https://extra-information.techidaily.com/discover-the-premier-10-vectors-online-stores/"><u>Discover the Premier 10 Vectors Online Stores</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-meizu-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Meizu Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-content-delivery-assessment/"><u>In 2024, Exclusive Content Delivery Assessment</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-realme-c33-2023-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Realme C33 2023 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unveiling-the-magic-crafting-animated-gifs-with-ease-for-2024/"><u>Unveiling the Magic Crafting Animated GIFs with Ease for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/world-of-tanks-blitz-crash-fix-unravel-secrets-to-a-smooth-gaming-experience/"><u>World of Tanks Blitz Crash Fix – Unravel Secrets to a Smooth Gaming Experience</u></a></li>
 </ul></div>
 

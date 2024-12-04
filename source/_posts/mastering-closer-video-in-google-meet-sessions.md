@@ -1,7 +1,7 @@
 ---
 title: "Mastering Closer Video in Google Meet Sessions"
-date: 2024-08-27T16:28:57.178Z
-updated: 2024-08-28T16:28:57.178Z
+date: 2024-12-03T09:54:22.724Z
+updated: 2024-12-04T07:29:26.236Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ Step1 Set up a video conferencing setup and start a conference in your web brows
 
 ![setup google meet](https://images.wondershare.com/filmora/article-images/2022/07/setup-google-meet.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Hover over the shared screen and click the Pin symbol to save it. Go to the "Webcam Settings" window, pick the "Camera Control" option at the top, then select the webcam from the drop-down list.
 
 ![google meeting settings panel](https://images.wondershare.com/filmora/article-images/2022/07/google-meeting-settings-panel.jpg)
@@ -46,6 +50,10 @@ Step3 The "Layout" option is next to the slider; click it. Adjust it in the dire
 
 ![layout options google meet](https://images.wondershare.com/filmora/article-images/2022/07/layout-options-google-meet.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Change your Layout to "Focus" in the Meet Menu (three dots). By repeatedly hitting CTRL+ minus (-), you can zoom out (!). The Meet controls at the bottom get smaller as a result. With CTRL+0, you may subsequently reverse your zoom.
 
 Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full screen mode may be ended.
@@ -53,8 +61,13 @@ Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full sc
 ![full screen mode google meet](https://images.wondershare.com/filmora/article-images/2022/07/full-screen-mode-google-meet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. Tips and tricks to use Google Meet
 
 Those who have a Google Account are able to start a meeting. It's simple to make one if you don't already have one. Especially if you have a Gmail account, you undoubtedly already have one. The sooner you learn how to use them, the sooner you'll be an expert on Meet calls. Google has numerous handy keyboard shortcuts built in, including a keyboard shortcut to display you all of the keyboard shortcuts. Start using these methods without ever taking your eyes off your camera if you truly want to wow your colleagues on your next Google Meet conversation.
@@ -69,8 +82,9 @@ Those who have a Google Account are able to start a meeting. It's simple to make
 * Users of Google Meet will be able to pin many individuals to the top of their tiled screen. This will be especially useful if you have meetings where two or three people talk the majority of the time.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 You may show additional information on your Google Meet by zooming in and out. On a slideshow map, for instance, zooming out reveals more of the region around your position. When dealing with many documents, zooming out might help you fit everything on one screen so you can see it all at once. You may fit more on your screen by zooming out. You may just need to zoom in or out on a Google Meet momentarily. You can rapidly get your screen back to its original perspective after zooming in or out.
@@ -103,4 +117,18 @@ You may show additional information on your Google Meet by zooming in and out. O
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-advanced-techniques-in-final-cut-pro-for-2024/"><u>[New] Advanced Techniques in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-expert-analysis-the-full-spectrum-of-bublcam-360/"><u>[New] In 2024, Expert Analysis The Full Spectrum of Bublcam 360</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-lowering-audio-amplitude-progressively-using-lumafusion/"><u>[Updated] 2024 Approved Lowering Audio Amplitude Progressively Using Lumafusion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-standout-moments-of-snowspeedcross-22/"><u>[Updated] 2024 Approved Standout Moments of Snowspeedcross '22</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-step-by-step-guide-to-mastering-magix-video-pro-x-for-2024/"><u>[Updated] A Step-by-Step Guide to Mastering Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/einfache-methoden-zur-einfachen-datentransferierung-zwischen-zwei-computern/"><u>Einfache Methoden Zur Einfachen Datentransferierung Zwischen Zwei Computern</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-crafting-podcast-descriptions-that-stick-strategies-and-samples/"><u>In 2024, Crafting Podcast Descriptions That Stick Strategies and Samples</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-vimeo-video-integration-in-ppts/"><u>In 2024, Mastering Vimeo Video Integration in PPTs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/microsoft-surface-duo-evaluation-an-unpolished-glitch-ridden-pricey-device/"><u>Microsoft Surface Duo Evaluation: An Unpolished, Glitch-Ridden, Pricey Device</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-oppo-f23-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Oppo F23 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/windows-script-host-error-solutions-on-windows-11/"><u>Windows Script Host Error Solutions on Windows 11</u></a></li>
+</ul></div>
 

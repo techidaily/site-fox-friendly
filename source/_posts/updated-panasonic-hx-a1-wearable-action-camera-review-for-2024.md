@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Panasonic HX-A1 Wearable Action Camera Review for 2024\""
-date: 2024-11-17T16:23:54.458Z
-updated: 2024-11-24T19:42:24.263Z
+date: 2024-12-01T07:48:47.836Z
+updated: 2024-12-03T18:14:56.200Z
 tags: 
   - screen-recording
   - ai video
@@ -37,18 +37,18 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specification
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -117,10 +117,6 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Features
 
 #### **1. Video and photo quality**
@@ -150,7 +146,7 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -160,6 +156,10 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -186,17 +186,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/10-essential-cam-shields-for-privacy/"><u>10 Essential Cam Shields for Privacy</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-capture-still-shots-from-video-using-photos-on-windows-10/"><u>2024 Approved Capture Still Shots From Video Using Photos on Windows 10</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-media-projects-engaging-with-windows-11-movie-maker/"><u>2024 Approved Elevate Media Projects Engaging with Windows 11 Movie Maker</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-zoom-photos-and-videos-on-snapchat/"><u>2024 Approved How to Zoom Photos and Videos on Snapchat</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-hues-harmonized-implementing-color-strategies/"><u>2024 Approved Hues Harmonized Implementing Color Strategies</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-melding-melodies-with-memories-in-cyberspace/"><u>2024 Approved Melding Melodies with Memories in Cyberspace</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-visionary-aiartisan-image-crafting-tools/"><u>2024 Approved Visionary AiArtisan Image Crafting Tools</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-12-pro-max-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 12 Pro Max without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-best-20-anime-song-opens-in-ranking/"><u>In 2024, Best 20 Anime Song Opens in Ranking</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-google-pixel-fold-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Google Pixel Fold to Protect Your Individual Information</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-price-point-in-online-advertising-for-2024/"><u>The Price Point in Online Advertising for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-advancing-audible-experience-safely-on-spotify-platforms/"><u>[New] Advancing Audible Experience Safely on Spotify Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-capture-clash-comparing-the-latest-gopro-and-virb-models/"><u>[New] Capture Clash Comparing the Latest GoPro and VIRB Models</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-ideal-summertime-screens-top-10-family-vacay-movies-for-2024/"><u>[New] Ideal Summertime Screens Top 10 Family Vacay Movies for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-engaging-with-srt-soundfiles-on-pc-and-mac/"><u>[Updated] 2024 Approved Engaging with SRT Soundfiles on PC & Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-direct-linking-of-photos-and-videos-between-devices/"><u>[Updated] Direct Linking of Photos & Videos Between Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-make-text-talk-on-screen-without-spending-for-2024/"><u>[Updated] How to Make Text Talk on Screen Without Spending for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-quick-launch-lines-a-practical-roadmap-for-product-review-channel-founders/"><u>2024 Approved Quick Launch Lines A Practical Roadmap for Product Review Channel Founders</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-you-safely-leave-your-wallet-to-bots/"><u>Can You Safely Leave Your Wallet to Bots?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-honor-x9b-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Honor X9b to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-creative-openings-just-a-click-away/"><u>In 2024, Creative Openings, Just a Click Away</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/leguminous-plants-and-nitrogen-fixing-bacteria-form-a-mutualistic-relationship-where-the-bacteria-convert-atmospheric-nitroebgen-into-usable-forms-for-the-p502/"><u>Leguminous Plants and Nitrogen-Fixing Bacteria Form a Mutualistic Relationship Where the Bacteria Convert Atmospheric Nitroebgen Into Usable Forms for the Plant, Benefiting Both Organisms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/speedy-scripts-top-1-written-game-experiences-on-devices-for-2024/"><u>Speedy Scripts Top 1 Written Game Experiences on Devices for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/worth-your-money-unpacking-benefits-of-chatgpt-plus/"><u>Worth Your Money? Unpacking Benefits of ChatGPT Plus</u></a></li>
 </ul></div>
 
