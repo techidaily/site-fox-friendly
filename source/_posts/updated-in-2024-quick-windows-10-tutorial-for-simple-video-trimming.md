@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Windows 10 Tutorial for Simple Video Trimming"
-date: 2024-11-27T23:44:56.457Z
-updated: 2024-12-04T11:20:36.120Z
+date: 2024-12-08T01:17:30.097Z
+updated: 2024-12-11T02:35:44.295Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -55,16 +51,12 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
@@ -80,11 +72,19 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -93,13 +93,13 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-essential-windows-10-audio-handbook/"><u>[New] 2024 Approved The Essential Windows 10 Audio Handbook</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-flight-in-depth-analysis-of-dji-phantom-4/"><u>[New] 2024 Approved Unveiling Flight In-Depth Analysis of DJI Phantom 4</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-practices-for-designing-an-engaging-youtube-teaser-for-2024/"><u>[Updated] Best Practices for Designing an Engaging YouTube Teaser for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-inside-track-understanding-sound-rights-on-instagram/"><u>[Updated] In 2024, Inside Track Understanding Sound Rights on Instagram</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-spin-cycle-in-the-ice-arena-of-22/"><u>[Updated] In 2024, Spin Cycle in the Ice Arena of '22</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-perfect-pixels-with-pro-android-tips/"><u>[Updated] Perfect Pixels with Pro Android Tips</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/cinema-journey-iphone-users-best-choice-for-films/"><u>Cinema Journey IPhone Users' Best Choice for Films</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/generations-spezifische-robotersupport-in-abbyy-study-sei-bei-bedarf-gerne-automatisiert/"><u>Generations-Spezifische Robotersupport in ABBYY Study - Sei Bei Bedarf Gerne Automatisiert!</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-14-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 14 by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-craft-the-perfect-picture-on-android-with-these-5-best-apps/"><u>In 2024, Craft the Perfect Picture on Android with These 5 Best Apps</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-11-complete-guide-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone 11? Complete Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/labor-day-bargain-alert-uncover-the-reasons-behind-my-top-pick-apple-watch-ultra-2-insider-tips-on-wearables/"><u>Labor Day Bargain Alert! Uncover the Reasons Behind My Top Pick: Apple Watch Ultra 2 | Insider Tips on Wearables</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-kickstart-cinematic-craft-install-xp-movie-maker/"><u>[New] 2024 Approved Kickstart Cinematic Craft Install XP Movie Maker</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-transform-your-snaps-into-art-with-snapseed-basics/"><u>[New] In 2024, Transform Your Snaps Into Art with Snapseed Basics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-pinpointing-premium-hdr-camera-brands/"><u>[Updated] 2024 Approved Pinpointing Premium HDR Camera Brands</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-are-sellers-involved-in-monetizing-review-content/"><u>[Updated] Are Sellers Involved in Monetizing Review Content?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-lolkit-rapid-meme-and-image-creation-app/"><u>[Updated] LolKit Rapid Meme and Image Creation App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-best-mp4-devices-roundup-for-2024/"><u>[Updated] The Best MP4 Devices Roundup for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-easy-guide-to-enhancing-images-via-iphone-cropping/"><u>[Updated] The Easy Guide to Enhancing Images via iPhone Cropping</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-ai-is-shaping-the-future-exploring-its-influence-on-our-lives/"><u>How AI Is Shaping the Future: Exploring Its Influence on Our Lives</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-realme-narzo-60-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Realme Narzo 60 Pro 5G Devices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prime-streaming-services-ranked-a-comparison-analysis/"><u>In 2024, Prime Streaming Services Ranked A Comparison Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms</u></a></li>
+<li><a href="https://win-answers.techidaily.com/optimize-your-play-eradicate-crashes-and-stuttering-in-serious-sam-4-for-windows/"><u>Optimize Your Play: Eradicate Crashes and Stuttering in Serious Sam 4 for Windows</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionize-your-research-game-in-academia-using-these-n-ai-powered-approaches/"><u>Revolutionize Your Research Game in Academia Using These N AI-Powered Approaches</u></a></li>
 </ul></div>
 

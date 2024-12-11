@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick & Convenient Video Edits in Windows 11 Photos"
-date: 2024-11-30T09:18:06.978Z
-updated: 2024-12-03T16:30:23.798Z
+date: 2024-12-03T16:14:49.755Z
+updated: 2024-12-10T19:35:53.487Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to trim video in Windows 10 Photos
@@ -55,16 +55,12 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
@@ -80,10 +76,6 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -91,7 +83,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -100,7 +92,15 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,20 +127,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-cut-to-the-chase-how-to-zoom-effectively-in-minecraft-for-2024/"><u>[New] Cut to the Chase How to Zoom Effectively in Minecraft for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-inside-the-top-10-virtual-reality-smartphone-gaming/"><u>[Updated] 2024 Approved Inside the Top 10 Virtual Reality Smartphone Gaming</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-streamline-your-windows-11-photo-videos/"><u>[Updated] In 2024, Streamline Your Windows 11 Photo Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-m1-explored-apples-leap-in-computational-innovation/"><u>[Updated] M1 Explored Apple's Leap in Computational Innovation</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/discover-free-methods-to-enhance-alter-and-amplify-your-vocal-expression/"><u>Discover FREE Methods To Enhance, Alter & Amplify Your Vocal Expression</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-apple-iphone-6s-plus-how-to-unlock-a-disabled-apple-iphone-6s-plus-drfone-by-drfone-ios/"><u>In 2024, Disabled Apple iPhone 6s Plus How to Unlock a Disabled Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-apple-iphone-11-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone 11 Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/journey-through-cinematic-universes-with-vr/"><u>Journey Through Cinematic Universes with VR</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-editing-choosing-the-best-for-youtube-for-2024/"><u>Prime Editing Choosing the Best For YouTube for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/professional-tips-for-iphone-360-videography-for-2024/"><u>Professional Tips for iPhone 360 Videography for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rh5770windowsrtkgraphics/"><u>RH5770WindowsRTKGraphics</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/smartly-schedule-facebook-posts-exclusive-free-access-for-2024/"><u>Smartly Schedule Facebook Posts - Exclusive Free Access for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-evolution-continues-sw320s-spectacular-journey-to-4k-excellence-for-2024/"><u>The Evolution Continues Sw320’s Spectacular Journey to 4K Excellence for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-rotated-images-how-to-adjust-upended-videos-on-your-asus-notebook/"><u>Troubleshooting Rotated Images: How to Adjust Upended Videos on Your ASUS Notebook</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-free-mov-video-editors-top-picks/"><u>Updated 2024 Approved Free MOV Video Editors Top Picks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-confluence-of-visual-storytelling-and-soundtracks-top-5/"><u>[New] The Ultimate Confluence of Visual Storytelling and Soundtracks (Top 5)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-grandest-meme-makeover-utility/"><u>[Updated] 2024 Approved Grandest Meme Makeover Utility</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-best-4k-displays-with-game-changing-features/"><u>[Updated] Best 4K Displays with Game-Changing Features</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-flawless-photography-with-picarts-background-erasure-tricks/"><u>[Updated] Flawless Photography with PicArt’s Background Erasure Tricks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-reduce-virtual-reality-vr-sickness/"><u>[Updated] How to Reduce Virtual Reality (VR) Sickness</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unlock-potential-with-best-free-text-psdfree/"><u>[Updated] Unlock Potential with Best Free Text PSDFree</u></a></li>
+<li><a href="https://fox-access.techidaily.com/first-steps-into-the-world-of-av1-for-2024/"><u>First Steps Into the World of AV1 for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-htc-u23-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track HTC U23 Location | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-intel-unison-not-working-woes-on-win11/"><u>Overcoming Intel Unison Not Working Woes on Win11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/streamlining-your-figma-project-eliminate-the-unwanted-background/"><u>Streamlining Your Figma Project Eliminate the Unwanted Background</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ultimate-selection-8-preferred-mp3-grabbers-android/"><u>Ultimate Selection 8 Preferred MP3 Grabbers (Android)</u></a></li>
 </ul></div>
 

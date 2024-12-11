@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Masterclass on Blending Sound & Sight for Media Professionals"
-date: 2024-11-27T00:12:04.781Z
-updated: 2024-12-04T10:50:12.080Z
+date: 2024-12-09T01:00:04.283Z
+updated: 2024-12-10T18:28:56.543Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ I'll be demonstrating how to add voiceovers and narrations in [Filmora](https://
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Voiceover or Narration?
 
 But first, what's the difference between a voiceover and a narration? Truth be told, there is quite a bit of overlap between the two.
@@ -54,7 +50,11 @@ But here's the good news: the way you add either option is the same in Filmora.
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add narration
@@ -63,10 +63,6 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
@@ -74,7 +70,7 @@ You put the playhead where you want to start recording and hit the microphone ic
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
@@ -93,6 +89,10 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -110,7 +110,7 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
@@ -151,21 +151,20 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-incorporating-time-features-into-youtube-video-formats/"><u>[New] 2024 Approved Incorporating Time Features Into YouTube Video Formats</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-easy-steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>[New] In 2024, Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-social-media-sphere-speaking-up-to-fans/"><u>[New] In 2024, The Social Media Sphere Speaking Up to Fans</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-top-5-best-ps3-emulator-for-pc-2023/"><u>[New] Top 5 Best Ps3 Emulator For PC 2023</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-vault-in-the-sky-for-every-picture-free-and-paid-alternatives-explored/"><u>[New] Vault in the Sky for Every Picture Free & Paid Alternatives Explored</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-in-depth-look-at-lg-27uhd68-4k-sync-technology/"><u>[Updated] 2024 Approved In-Depth Look at LG 27UHD68, 4K Sync Technology</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-creating-a-backup-securing-your-fb-messenger-records-for-2024/"><u>[Updated] Creating a Backup Securing Your FB Messenger Records for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-novice-to-pro-the-complete-guide-to-greenscreen-in-kinemaster/"><u>[Updated] In 2024, From Novice to Pro The Complete Guide to Greenscreen in KineMaster</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-simplified-storytelling-methodology/"><u>[Updated] In 2024, Simplified Storytelling Methodology</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-iphone-photography-handbook-tips-and-tricks/"><u>[Updated] In 2024, The iPhone Photography Handbook Tips & Tricks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/comment-et-pourquoi-transformez-vous-rapidement-un-fichier-ts-en-mp4-sans-perdre-la-qualite/"><u>Comment Et Pourquoi Transformez-Vous Rapidement Un Fichier TS en MP4 Sans Perdre La Qualité ?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/explaining-video-trims-the-logic-of-trimming/"><u>Explaining Video Trims The Logic of Trimming</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/herstellen-of-removing-windows-recovery-partition-beveilingen-voor-veilige-voortzetting/"><u>Herstellen of Removing Windows Recovery Partition: Beveilingen Voor Veilige Voortzetting</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-glow-innovations-outshining-videos-through-design/"><u>In 2024, Glow Innovations Outshining Videos Through Design</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-hidden-whatsapp-gems-top-tricks-to-enhance-your-messaging-experience/"><u>In 2024, Hidden WhatsApp Gems Top Tricks to Enhance Your Messaging Experience</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-exploring-huawei-p10s-network-performance-and-coverage-for-2024/"><u>[New] Exploring Huawei P10's Network Performance & Coverage for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-restore-lost-details-4-premiere-pro-methods-for-iphone-hdr-footage/"><u>[New] In 2024, Restore Lost Details 4 Premiere Pro Methods for iPhone HDR Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-unveiling-10-essential-podcast-art-creation-techniques/"><u>[New] In 2024, Unveiling 10 Essential Podcast Art Creation Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-maximizing-iphones-capabilities-for-stunning-landscape-pics/"><u>[New] Maximizing iPhone's Capabilities for Stunning Landscape Pics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-iphone-jokes-and-gag-collection/"><u>[Updated] 2024 Approved IPhone Jokes & Gag Collection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-8-top-tier-filters-to-elevate-your-live-feed/"><u>[Updated] 8 Top-Tier Filters to Elevate Your Live Feed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-to-igtv-videos-3-ways/"><u>[Updated] How to Convert YouTube to IGTV Videos? [3 Ways]</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-premium-4k-converters-for-flawless-recordings/"><u>[Updated] In 2024, Explore Premium 4K Converters for Flawless Recordings</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726029450137-pc/"><u>「PCを用いた早撮り音楽編集法」</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-comprehensive-guide-to-top-5-free-windows-screen-recorders/"><u>2024 Approved Comprehensive Guide to Top 5 Free Windows Screen Recorders</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/charming-cyberspace-ai-for-romance-fraud/"><u>Charming Cyberspace: AI for Romance Fraud</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hassle-free-nvidia-driver-download-for-geforce-gtx-460-on-windows-systems/"><u>Hassle-Free NVIDIA Driver Download for GeForce GTX 460 on Windows Systems</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-zerocomplicationlivecast-your-simple-pathway-to-livestreaming-a-podcast/"><u>In 2024, ZeroComplicationLivecast Your Simple Pathway to Livestreaming a Podcast</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/mastering-3-key-copywriting-frameworks-for-social-media-promotion-for-2024/"><u>Mastering 3 Key Copywriting Frameworks for Social Media Promotion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-sues-over-alleged-breach-in-new-it-laws/"><u>WhatsApp Sues Over Alleged Breach in New IT Laws</u></a></li>
 </ul></div>
 

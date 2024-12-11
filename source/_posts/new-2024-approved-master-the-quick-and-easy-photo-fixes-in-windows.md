@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Master the Quick & Easy Photo Fixes in Windows\""
-date: 2024-11-27T21:36:55.876Z
-updated: 2024-12-03T23:02:48.087Z
+date: 2024-12-06T20:58:28.191Z
+updated: 2024-12-10T18:07:40.052Z
 tags: 
   - screen-recording
   - ai video
@@ -45,14 +45,14 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -60,7 +60,7 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Draw on Photos Online
@@ -75,7 +75,7 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the color from the range of palette available
@@ -84,14 +84,10 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -101,6 +97,10 @@ The Photos app has an interface that is restructured with dark theme options and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,19 +127,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-master-plan-uniting-instagram-and-tiktok-platforms/"><u>[New] 2024 Approved Master Plan Uniting Instagram & TikTok Platforms</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-immersive-chronicles-a-brief-history/"><u>[New] In 2024, The Immersive Chronicles A Brief History</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-acoustic-additions-for-your-chat-status/"><u>[Updated] 2024 Approved Acoustic Additions for Your Chat Status</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-behind-the-scenes-how-apples-m1-max-attachments-work/"><u>[Updated] In 2024, Behind-the-Scenes How Apple’s M1 Max Attachments Work</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-mastering-whatsapps-call-conversation-strategy-for-2024/"><u>[Updated] Mastering WhatsApp's Call Conversation Strategy for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-pro-level-insights-into-win11-enhancements-for-2024/"><u>[Updated] Pro-Level Insights Into Win11 Enhancements for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/emojis-decoded-financial-narratives/"><u>Emojis Decoded: Financial Narratives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-locals-in-italy-10-common-and-charming-greetings/"><u>Engage Locals in Italy: 10 Common and Charming Greetings</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/fusionvisualizer-ipadplusmacmedia-combining-tool/"><u>FusionVisualizer IPad+MacMedia Combining Tool</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-to-the-previous-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 to the Previous iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-elevate-your-gaming-experience-with-fbx-recording-tips/"><u>In 2024, Elevate Your Gaming Experience with FBX Recording Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-sky-with-ease-top-wireless-routers-for-jet-setters/"><u>Navigating the Sky with Ease: Top Wireless Routers for Jet-Setters</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210963929-9798887519920-oh-death-where-was-thou-sting/"><u>Oh Death, Where Was Thou Sting | Free Book</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transform-pc-interface-embrace-smart-wmlayouts/"><u>Transform PC Interface: Embrace Smart WMLayouts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-best-asmr-apps-for-android-and-ios/"><u>[New] 2024 Approved Best ASMR Apps for Android and iOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-quick-fix-resetting-live-broadcasts-on-twitch-for-2024/"><u>[New] Quick Fix Resetting Live Broadcasts on Twitch for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-writing-vlogs-a-guide-to-persuasive-scripts/"><u>[Updated] 2024 Approved Writing Vlogs A Guide to Persuasive Scripts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-your-essential-guide-to-bridge-cam-excellence-11/"><u>[Updated] 2024 Approved Your Essential Guide to Bridge Cam Excellence #11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-quick-guide-uploading-tiktoks-directly-to-facebook-for-2024/"><u>[Updated] Quick Guide Uploading TikToks Directly to Facebook for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-picks-online-tools-for-integrating-photo-frames/"><u>[Updated] Top Picks Online Tools for Integrating Photo Frames</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-realme-12-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Realme 12 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-pro-max-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 Pro Max to Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-mastering-minimization-32-top-rated-apps-to-tidy-up-videos-on-android/"><u>In 2024, Mastering Minimization 32 Top-Rated Apps to Tidy Up Videos on Android</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-muting-mystery-a-step-by-step-guide-to-unsilencing/"><u>IPhone Muting Mystery: A Step-by-Step Guide to Unsilencing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-newly-refreshed-microsoft-surface-pro-7-consistent-quality-minor-adjustments-included/"><u>Reviewing the Newly Refreshed Microsoft Surface Pro 7 – Consistent Quality, Minor Adjustments Included</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/understanding-the-transformations-in-vegaspro-19-for-2024/"><u>Understanding the Transformations in VegasPro '19 for 2024</u></a></li>
+<li><a href="https://techidaily.com/unlock-a-disable-iphone-x-without-itunes-or-icloud-by-drfone-ios-unlock-ios-unlock/"><u>Unlock a disable iPhone X without itunes or icloud</u></a></li>
+<li><a href="https://common-error.techidaily.com/update-guide-enable-support-for-your-graphics-card-in-fortnite-on-windows/"><u>Update Guide: Enable Support for Your Graphics Card in Fortnite on Windows</u></a></li>
 </ul></div>
 

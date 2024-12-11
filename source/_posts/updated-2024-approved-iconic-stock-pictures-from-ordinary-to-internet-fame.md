@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Iconic Stock Pictures  From Ordinary to Internet Fame\""
-date: 2024-12-03T06:48:09.221Z
-updated: 2024-12-04T10:43:51.041Z
+date: 2024-12-07T02:07:10.518Z
+updated: 2024-12-10T16:26:54.419Z
 tags: 
   - screen-recording
   - ai video
@@ -27,17 +27,9 @@ So, what are the most popular stock photo memes, and how did they reach this sta
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part1: Hide the Pain Harold
 
 ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Since 2011, Hide the Pain Harold continues to rank as one of the world's most popular stock photo memes. Here are some numbers to show you how popular the meme is.
 
@@ -56,6 +48,10 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
@@ -63,7 +59,7 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
@@ -83,7 +79,15 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
 
@@ -95,6 +99,10 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
@@ -102,7 +110,7 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
@@ -119,10 +127,6 @@ Twitter user @chocos posts the image with Spanish captions, with the woman sure 
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
 Since then, internet users have continued to use the Bonjour Bear meme to reference their reactions to different scenarios. Typically, you will find the stock photo meme representing some surprise attacks. Below are some of the most popular versions of the meme:
@@ -131,20 +135,12 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
 * A Reddit post by Poonswoggle from April 2020 received 36,500 points within three months. In this version, the user references his struggle with sleeping because of repressed memories.
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part5: FAQs
 
@@ -153,6 +149,10 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
@@ -194,16 +194,20 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-10-premier-alternative-activities-to-watching-sports-for-2024/"><u>[Updated] 10 Premier Alternative Activities to Watching Sports for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-capturing-impactful-voice-top-tips-for-podcasting-interviews-on-idevices/"><u>[Updated] 2024 Approved Capturing Impactful Voice Top Tips for Podcasting Interviews on iDevices</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-visionary-directors-cinematic-peeks/"><u>[Updated] 2024 Approved Visionary Director's Cinematic Peeks</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-easycapture-prox-diagnosis-for-2024/"><u>[Updated] EasyCapture ProX Diagnosis for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-view-old-stories-on-facebook-laptop-and-mobile-for-2024/"><u>[Updated] How to View Old Stories on Facebook? [Laptop and Mobile] for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-moto-z2s-brainpower-examined-in-detail/"><u>[Updated] Moto Z2's Brainpower Examined in Detail</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-activating-or-deactivating-user-feedback-on-videos/"><u>2024 Approved Activating or Deactivating User Feedback on Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-stay-focused-with-smart-youtube-channel-management-for-pc-and-phones/"><u>2024 Approved Stay Focused with Smart Youtube Channel Management for PC and Phones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/enhancing-media-workflow-the-rise-of-magix-vpx-for-2024/"><u>Enhancing Media Workflow The Rise of Magix VPX for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-apple-iphone-13-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/libgdk-win32-2e-0dll-file-not-found-heres-how-to-fix-it/"><u>libgdk-win32-2.e-0.dll File Not Found? Here's How to Fix It!</u></a></li>
+<li><a href="https://fox-where.techidaily.com/4-shaga-podderzhanie-odinakovyh-papok-windows-idei-dlya-sinhronizacii-dannyh-mezhdu-kompyuterami/"><u>[4 Шага] Поддержание Одинаковых Папок Windows: Идеи Для Синхронизации Данных Между Компьютерами</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-boosting-facebook-video-performance/"><u>[New] 2024 Approved Boosting Facebook Video Performance</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-effortless-documentation-speech-to-text-conversion-via-microsoft-word/"><u>[New] 2024 Approved Effortless Documentation Speech-to-Text Conversion via Microsoft Word</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-art-of-discrete-audio-erosion-in-audacity/"><u>[New] In 2024, The Art of Discrete Audio Erosion in Audacity</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-diminuendo-techniques-for-digital-ears/"><u>[Updated] Diminuendo Techniques for Digital Ears</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-individual-songs-to-a-cohesive-collection-building-your-youtube-playlist-for-2024/"><u>[Updated] From Individual Songs to a Cohesive Collection Building Your YouTube Playlist for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-phantom-slow-motion-masterclass/"><u>[Updated] In 2024, Phantom Slow Motion Masterclass</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-snapshot-into-the-heart-of-video-edits-filmoras-top-10/"><u>[Updated] In 2024, Snapshot Into the Heart of Video Edits - Filmora’s Top 10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-magix-composition-wizard-an-audio-editing-experience-for-2024/"><u>[Updated] Magix Composition Wizard An Audio Editing Experience for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-bundle-6-powerful-apps-to-remove-signature-borders/"><u>2024 Approved The Ultimate Bundle – 6 Powerful Apps to Remove Signature Borders</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movie-mod-mp4-movavi/"><u>免費線上 MOVIE MOD 改成 MP4 - 使用 Movavi 高效轉換器指南</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/chart-topping-storytellers-to-follow-on-youtube-this-year-for-2024/"><u>Chart-Topping Storytellers to Follow on YouTube This Year for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/how-to-repair-windows-10-and-11s-faulty-kb5034441-update/"><u>How to Repair Windows 10 & 11'S Faulty KB5034441 Update</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/sdgoogle/"><u>SDカードのファイルを簡単にGoogle ドライブに保存:バックアップのための詳しいガイド</u></a></li>
 </ul></div>
 

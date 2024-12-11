@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Fun-Filled Photography  How To Use Lens on Snapchat for Playfulness\""
-date: 2024-08-22T20:47:18.325Z
-updated: 2024-08-23T20:47:18.325Z
+date: 2024-12-03T22:11:48.458Z
+updated: 2024-12-10T20:38:19.073Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ Snapchat’s Cartoon Face Lens enables you to transform yourself and your pets i
 * [Part 2: How to Send a Snap Using the Cartoon Face Lens from Snapchat?](#part2)
 * [Part 3: 4 Most Popular Snapchat Cartoon Face Lens](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why Do Snapchat’s Cartoon Filters Go Viral?
 
 Have you been wondering why cartoon eyes are popping up everywhere on social media all of a sudden? Well, the answer is simple: it’s a new Lens loved by one and all.
@@ -58,13 +62,25 @@ Snapchat allows its users to use the Cartoon lens and send a snap with the carto
 
 ![snapcaht smile face filter lens](https://images.wondershare.com/filmora/article-images/snapcaht-smile-face-filter-lens.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step-3:** Next, you need to head to the cartoon lens. Hence, tap on “Explore” at the bottom right-hand corner of your screen.
 
 ![explore cartoon face lens](https://images.wondershare.com/filmora/article-images/2021/explore-cartoon-face-lens.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step-4:** You will find a plethora of options and lens. Tap on the search bar to type “cartoon face” and search for the filter manually. You will see the Camera Face Lens come up as the first result. Make sure you have selected the one with “Snapchat” as the Creator.
 
 ![snapchat cartoon lens search result page](https://images.wondershare.com/filmora/article-images/snapchat-cartoon-lens-search-result-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step-5:** Select the filter to use for taking new photos or videos. Or, you can tap the Camera Roll button to try out the Cartoon Face Lens on other photos from your device’s Gallery by clicking on “Camera Roll”.
 
@@ -87,8 +103,9 @@ Perplexed about how to use the Cartoon 3D Style Lens that’s immensely popular 
 **Step-6:** Click on the Cartoon 3D Style lens and you can either use it for images or movies to share or download.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: 4 Most Popular Snapchat Cartoon Face Lens
 
 Snapchat filters are quick and fun editing presets any Snapchatter can use. Once you take a snap, you can swipe left or right to see and add color adjustments, Snapchat geo-filters, current time, stickers, weather, and everything you want.
@@ -101,9 +118,6 @@ Today, there’s no dearth of Disney-inspired filters out there. However, you ca
 
 ![cartoon 3d snapchat face lens](https://images.wondershare.com/filmora/article-images/2021/cartoon-3d-snapchat-face-lens.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 Source: techcrunch.com
 
 #### 2.Cartoon Face Lens
@@ -120,31 +134,18 @@ The Cartoon Effect Lens of Snapchat is another cartoon filter that’s loved by 
 
 ![snapchat cartoon effect](https://images.wondershare.com/filmora/article-images/2021/snapchat-cartoon-effect.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 #### 4.Anime Style
 
 Snapchat’s Anime Style takes its inspiration from the animation style that originated from the East. The Anime Style Lens gives you a makeover in an anime-style of animation and follows each of your expressions in real-time. The filter has a nice soft shading style that’s surprisingly artistic and looks almost like it’s been hand-drawn. Also, it’s fun to try making different expressions as they tend to transform your new anime self entirely.
 
 ![snapchat anime style face](https://images.wondershare.com/filmora/article-images/2021/snapchat-anime-style-face.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 Virtually revamping your overall look to resemble your favorite Cartoon character has never been easier, all thanks to the appearance-changing filters of Snapchat. Send a snap with the cartoon face lens daily to your friends and it will create a particular chain referred to as streak. So take cartoon selfies of yourself daily and develop the longest streak with your friends for as long as you can. More friends, more fun, and you will no longer be bored!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -168,4 +169,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-upload-videos-to-igtv/"><u>[New] In 2024, How to Upload Videos to IGTV?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-long-term-stability-of-syma-x8c/"><u>[New] In 2024, Long-Term Stability of Syma X8C</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-prime-portable-canvas-apps-for-windows-free-and-charged/"><u>[New] In 2024, Prime Portable Canvas Apps for Windows Free and Charged</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-ultimate-quick-picture-viewer-on-windows-10/"><u>[New] In 2024, Ultimate Quick Picture Viewer on Windows 10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-the-magic-in-haul-video-creation-for-2024/"><u>[New] Unveiling the Magic in Haul Video Creation for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-top-10-camcorders-in-depth-reviews/"><u>[New] Unveiling Top 10 Camcorders In-Depth Reviews</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-film-your-flavors-top-7-guides-for-delicious-cooking-cinematography/"><u>[Updated] Film Your Flavors Top 7 Guides for Delicious Cooking Cinematography</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-expert-tips-to-enhance-your-adobe-presentation-videos/"><u>[Updated] In 2024, Expert Tips to Enhance Your Adobe Presentation Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-masterclass-in-timelapse-capture-via-gopro-studio/"><u>[Updated] In 2024, Masterclass in Timelapse Capture via GoPro Studio</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-streamlining-vocal-elements-in-tiktok-media-creations/"><u>[Updated] In 2024, Streamlining Vocal Elements in TikTok Media Creations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-guide-to-sj-cam-s6s-superiority-for-2024/"><u>[Updated] The Ultimate Guide to SJ-CAM S6's Superiority for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-7-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 7 Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-find-and-install-updated-fingerprint-drivers-on-a-windows-pc/"><u>How to Find and Install Updated Fingerprint Drivers on a Windows PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-honor-90-gt-by-fonelab-android-recover-music/"><u>How to restore wiped music on Honor 90 GT</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-comparing-huawei-p10-with-industry-standards-of-smartphones/"><u>In 2024, Comparing Huawei P10 with Industry Standards of Smartphones</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-nubia-red-magic-8s-pro-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Nubia Red Magic 8S Pro?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/prepare-yourself-7-must-have-tech-in-the-digital-frontier/"><u>Prepare Yourself 7 Must-Have Tech in the Digital Frontier</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Scripting Striking Film Epilogues"
-date: 2024-12-03T01:47:55.557Z
-updated: 2024-12-03T20:08:02.915Z
+date: 2024-12-07T02:10:02.371Z
+updated: 2024-12-11T01:44:16.221Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,10 @@ The traditional trailer typically follows a three-act structure: the first act i
 
 A well-structured trailer is more interesting to watch than one that's not. Look at a well-structured trailer below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Subtitles
 
 Subtitles are a great add-on to your trailer and can help broaden your audience as they help in more precise understanding and catch audiences from all over the world, not only from your region. If you don't know how to handle it, we recommend using the simplest white text on a black background to set the subtitles apart from the background; if you want to add some of your own personality, start with elements like fonts, strokes, and shadows. You should set the appropriate subtitle style according to the style of the film. The most common types of subtitles used in trailers are closed caption and open caption.
@@ -89,13 +93,13 @@ Promotional subtitles, using advertising-style words and phrases to get viewers'
 
 Sound editing also impacts the quality of the trailer. It is generally expressed in the form of background music, plus a combination of character language (dialogue, monologue, narration) and sound effects. Among these, the selection of background music is an important step in the editing process since it helps to create the mood of the movie, portray the characters' feelings, and improve the pace of the movie. One may say that the background music selection makes up more than 70% of a successful trailer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How to make a movie trailer?
 
 Now it's time to give your trailer a fantastic touch using the advanced features of [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [Auto Beat Sync](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -110,11 +114,7 @@ You can use the advanced video effect of Wondershare Filmora to make your movie 
 ![video effects](https://images.wondershare.com/filmora/article-images/2022/08/movie-trailer-completed-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -146,7 +146,7 @@ The traditional trailer typically follows a three-act structure: the first act i
 A well-structured trailer is more interesting to watch than one that's not. Look at a well-structured trailer below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Subtitles
@@ -172,7 +172,7 @@ Interpreting subtitles, explain the content of the footage.
 Promotional subtitles, using advertising-style words and phrases to get viewers' attention.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Sound editing
@@ -180,7 +180,7 @@ Promotional subtitles, using advertising-style words and phrases to get viewers'
 Sound editing also impacts the quality of the trailer. It is generally expressed in the form of background music, plus a combination of character language (dialogue, monologue, narration) and sound effects. Among these, the selection of background music is an important step in the editing process since it helps to create the mood of the movie, portray the characters' feelings, and improve the pace of the movie. One may say that the background music selection makes up more than 70% of a successful trailer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to make a movie trailer?
@@ -193,15 +193,15 @@ Using Filmora's Auto Beat Sync feature, you can easily match the background musi
 
 ![auto beat sync](https://images.wondershare.com/filmora/article-images/2022/08/movie-trailer-completed-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [Video Effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You can use the advanced video effect of Wondershare Filmora to make your movie trailer more cinematic and fantastic. You can use LUTs to enhance the trailer with unbelievable filters. Just **choose** any effect from the vast library of Filmora and then **drag** and **drop** to apply.
 
 ![video effects](https://images.wondershare.com/filmora/article-images/2022/08/movie-trailer-completed-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -235,22 +235,21 @@ The conclusion is that the trailer is undoubtedly an integral part of any movie 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-digital-artistry-crafting-distorted-textual-elements/"><u>[New] 2024 Approved Digital Artistry Crafting Distorted Textual Elements</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-deciding-your-gopro-comparative-analysis-at-hand/"><u>[New] Deciding Your GoPro Comparative Analysis at Hand</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-constructing-your-own-high-definition-pc-for-immersive-video-creation/"><u>[New] In 2024, Constructing Your Own High-Definition PC for Immersive Video Creation</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-navigating-legal-aspects-of-recording-whatsapp-talks/"><u>[New] In 2024, Navigating Legal Aspects of Recording WhatsApp Talks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-power-of-srt-in-broadcasting/"><u>[Updated] 2024 Approved Unveiling the Power of SRT in Broadcasting</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-next-gen-display-top-5-hdmi-21-infinity-refresh-monitors-ps5/"><u>[Updated] In 2024, Next-Gen Display Top 5 HDMI 2.1 Infinity Refresh Monitors [PS5]</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-streamlined-approach-for-customizing-snapchat-video-rate-for-2024/"><u>[Updated] Streamlined Approach for Customizing Snapchat Video Rate for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-methods-for-addressing-and-correcting-network-connection-failures-rpc-on-windows-devices/"><u>Effective Methods for Addressing and Correcting Network Connection Failures (RPC) on Windows Devices</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/how-to-get-league-of-legends-running-smoothly-again-expert-tips/"><u>How to Get League of Legends Running Smoothly Again – Expert Tips</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-revel-in-pubgs-simplified-voice-transformation-methods/"><u>In 2024, Revel in PUBG's Simplified Voice Transformation Methods</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/income-patterns-in-the-podcast-industry-for-2024/"><u>Income Patterns in the Podcast Industry for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/listeners-lexicon-selecting-solid-offline-recording-tools-for-2024/"><u>Listeners' Lexicon Selecting Solid Offline Recording Tools for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/streamlined-strategies-maximizing-your-experience-with-xbox-game-pass-ultimate/"><u>Streamlined Strategies: Maximizing Your Experience With Xbox Game Pass Ultimate</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-art-of-chromatic-enhancement/"><u>The Art of Chromatic Enhancement</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-best-smart-speakers-with-wi-fi-connectivity-expert-picks-by-zdnet/"><u>The Best Smart Speakers with Wi-Fi Connectivity - Expert Picks by ZDNet</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transforming-the-future-of-search-microsofts-bing-evolves-with-cutting-edge-ai-technology/"><u>Transforming the Future of Search: Microsoft's Bing Evolves with Cutting-Edge AI Technology</u></a></li>
-<li><a href="https://common-error.techidaily.com/twitch-error-4000-demystified-quick-fixes-to-get-your-stream-running-smoothly-again/"><u>Twitch Error 4000 Demystified: Quick Fixes to Get Your Stream Running Smoothly Again</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-hidden-paths-to-pristine-stock-photography/"><u>[New] 2024 Approved The Hidden Paths to Pristine Stock Photography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-dji-quadcopters-range-budget-upgraded-top-tier-4k/"><u>[New] DJI Quadcopters Range Budget, Upgraded, Top-Tier 4K</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-flawless-conversion-needed-try-these-top-8-sub-and-srt-tools/"><u>[New] Flawless Conversion Needed? Try These Top 8 Sub & Srt Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-funimate-android-adventure-the-apk-breakdown/"><u>[New] Funimate Android Adventure The APK Breakdown</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-photo-frames-leading-software-reviews/"><u>[New] Mastering Photo Frames Leading Software Reviews</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-transform-your-photos-mastering-time-lapse-with-samsung-mobile/"><u>[New] Transform Your Photos Mastering Time Lapse with Samsung Mobile</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-binge-watch-or-live-stream-twitch-and-youtube-compared-for-2024/"><u>[Updated] Binge-Watch or Live-Stream? Twitch and YouTube Compared for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-guiding-principles-for-speech-conversion-in-google-translate/"><u>[Updated] In 2024, Guiding Principles for Speech Conversion in Google Translate</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-refined-retouches-using-the-eraser-in-photoshop-proficiently/"><u>[Updated] In 2024, Refined Retouches Using the Eraser in Photoshop Proficiently</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-whats-captivating-twitter-users-the-most/"><u>[Updated] In 2024, What's Captivating Twitter Users the Most?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-techniques-of-composing-persuasive-content-in-vlogging/"><u>[Updated] Techniques of Composing Persuasive Content in Vlogging</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/getting-the-most-out-of-live-sports-on-youtube-tv/"><u>Getting the Most Out of Live Sports on YouTube TV</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-11-best-location-changers-for-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-artful-stop-motion-animation-the-best-15-films/"><u>In 2024, Artful Stop-Motion Animation - The Best 15 Films</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/masterclass-setting-up-your-first-facebook-page/"><u>Masterclass Setting Up Your First Facebook Page</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253203-9783988316448-witchcraft-astrology-guide/"><u>WITCHCRAFT ASTROLOGY GUIDE | Free Book</u></a></li>
 </ul></div>
 

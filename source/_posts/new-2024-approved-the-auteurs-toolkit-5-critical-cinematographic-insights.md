@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Auteur's Toolkit  5 Critical Cinematographic Insights\""
-date: 2024-12-02T04:51:28.857Z
-updated: 2024-12-04T09:26:29.382Z
+date: 2024-12-07T03:17:21.243Z
+updated: 2024-12-10T23:37:52.478Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2 Now open and close the door to get smooth camera movement.
@@ -48,10 +48,6 @@ Step 2 Now open and close the door to get smooth camera movement.
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -70,6 +66,10 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY Light Flag
 
@@ -112,7 +112,11 @@ Here is a GIF attached for a better understanding of the steps.
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Light Reflector
@@ -134,11 +138,7 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
@@ -164,12 +164,16 @@ For a better understanding of the steps, watch the GIF attached below.
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -189,10 +193,6 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -210,6 +210,10 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -230,10 +234,6 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -271,21 +271,20 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elevate-your-photography-experience-on-windows-11-filters-and-music-playback/"><u>[New] 2024 Approved Elevate Your Photography Experience on Windows 11 Filters and Music Playback</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-design-innovators-club-exclusive-free-text-psdfree/"><u>[New] In 2024, Design Innovators Club Exclusive Free Text PSDFree</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-utilizing-skys-bounty-to-brighten-indoors-for-2024/"><u>[New] Utilizing Sky's Bounty to Brighten Indoors for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-how-many-gb-is-a-24-hour-video/"><u>[Updated] 2024 Approved How Many GB Is a 24-Hour Video?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-leading-gopro-filmmaking-platforms/"><u>[Updated] 2024 Approved Leading GoPro Filmmaking Platforms</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-conversion-wizards-turning-vids-into-audible-files-on-pinterest/"><u>[Updated] In 2024, Conversion Wizards Turning Vids Into Audible Files on Pinterest</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-elevating-movie-experience-adding-subtitles-to-windows-media-player/"><u>[Updated] In 2024, Elevating Movie Experience Adding Subtitles to Windows Media Player</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-wintry-wonderland-olympic-moments-from-beijing-2022/"><u>[Updated] In 2024, Wintry Wonderland Olympic Moments From Beijing 2022</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-seamless-tweeting-expert-video-conversion-software/"><u>[Updated] Seamless Tweeting Expert Video Conversion Software</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/exploring-high-speed-action-a-top-5-game-list/"><u>Exploring High-Speed Action A Top 5 Game List</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Sony Xperia 1 V? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-motorola-edge-40-pro-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Motorola Edge 40 Pro? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-samsung-galaxy-m34-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Samsung Galaxy M34 5G Phones</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshoot-and-fix-your-csgo-account-a-guide-to-resolving-logon-errors/"><u>Troubleshoot and Fix Your CSGO Account: A Guide to Resolving Logon Errors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unlocking-your-creative-potential-embrace-these-top-10-iphone-image-rules-for-2024/"><u>Unlocking Your Creative Potential Embrace These Top 10 iPhone Image Rules for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-clear-cut-strategies-for-watermark-free-photography-for-2024/"><u>[New] Clear-Cut Strategies for Watermark-Free Photography for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-quick-and-detailed-guide-to-xbox-video-capture/"><u>[New] In 2024, Quick and Detailed Guide to Xbox Video Capture</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-mastery-uploading-subtitles-to-gain-visibility-in-online-communities/"><u>[New] In 2024, Step-by-Step Mastery Uploading Subtitles to Gain Visibility in Online Communities</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-editors-alchemy-transforming-raw-to-radiant-pictures/"><u>[New] In 2024, The Editor's Alchemy Transforming Raw to Radiant Pictures</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-tactics-for-triumphing-in-virtual-marketplaces-for-2024/"><u>[Updated] Tactics for Triumphing in Virtual Marketplaces for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-y100t-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo Y100t to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/dual-virus-scanners-think-twice-windows/"><u>Dual Virus Scanners? Think Twice, Windows!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-fixes-for-dx-feature-level-10-issue-on-your-wwe-gamehttpswwwexample-game-linkcom-2k-battl/"><u>Effective Fixes for DX Feature Level 10 Issue on Your WWE ([^Game](https://www.example-game-link.com)) 2K Battl</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/history-enthusiasts-guide-to-inspiring-youtube-channels-for-2024/"><u>History Enthusiasts' Guide to Inspiring YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-execute-a-budget-friendly-youtube-seminar/"><u>How to Execute a Budget-Friendly Youtube Seminar</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-master-picks-for-commercial-cloud-space/"><u>In 2024, Master Picks for Commercial Cloud Space</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/learn-about-free-recording-software-today-for-2024/"><u>Learn About Free Recording Software Today for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-memory-how-to-delete-facebook-watch-history/"><u>Mastery Over Memory: How to Delete Facebook Watch History</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/premier-screen-capture-apps-for-windows-free-1-5-listing/"><u>Premier Screen Capture Apps for Windows Free #1-5 Listing</u></a></li>
 </ul></div>
 

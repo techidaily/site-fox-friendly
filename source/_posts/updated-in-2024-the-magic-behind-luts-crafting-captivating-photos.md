@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Magic Behind LUTs  Crafting Captivating Photos\""
-date: 2024-12-01T19:04:52.287Z
-updated: 2024-12-04T03:19:48.417Z
+date: 2024-12-07T23:29:15.703Z
+updated: 2024-12-10T22:20:21.758Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ LUTs also aid in the organization of your post-production processes. You must kn
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How will LUTs change your photography?
@@ -59,10 +59,6 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -72,7 +68,7 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Choose Adjustment Layer
@@ -82,10 +78,6 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -102,6 +94,10 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Here's the second one
 
 1. Open the LUT folder, which changes the version to your version.
@@ -117,6 +113,10 @@ Grow Together
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -162,18 +162,21 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-from-static-to-vivid-moments-with-the-new-polaroid-xs-100i/"><u>[New] From Static to Vivid Moments with the New Polaroid XS 100I</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-harness-analytics-for-live-event-success/"><u>[New] How to Harness Analytics for Live Event Success</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-haunting-hilarity-hub/"><u>[New] In 2024, Haunting Hilarity Hub</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-quick-guide-to-starting-an-instagram-live-show/"><u>[New] Quick Guide to Starting an Instagram Live Show</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-speed-demon-the-top-windows-photo-browser-for-2024/"><u>[New] Speed Demon The Top Windows Photo Browser for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-science-of-display-understanding-srgb-vs-rgb-colors/"><u>[New] The Science of Display Understanding Srgb vs Rgb Colors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unlocking-swiftness-in-fb-video-transfers-with-top-tools-and-extensions-for-2024/"><u>[New] Unlocking Swiftness in FB Video Transfers with Top Tools and Extensions for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-clueless-to-confident-configuring-zoom-made-simple/"><u>[Updated] In 2024, From Clueless to Confident Configuring Zoom Made Simple</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-a-beginners-path-to-creating-engaging-fb-covers/"><u>2024 Approved A Beginner’s Path to Creating Engaging FB Covers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-immersing-viewers-in-new-realities-the-vr-film-revolution/"><u>2024 Approved Immersing Viewers in New Realities The VR Film Revolution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-creative-marvels-with-apples-ipad-air-2019-an-in-depth-review/"><u>Discover the Creative Marvels with Apple's iPad Air (2019): An In-Depth Review</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-google-pixel-fold-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Google Pixel Fold to PC? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-tecno-spark-20-proplus-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Tecno Spark 20 Pro+ Phone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-top-8-metaverse-vr-experiences-and-headsets/"><u>[New] 2024 Approved Top 8 Metaverse VR Experiences & Headsets</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-echoes-of-excellence-best-anime-intros-ever/"><u>[New] Echoes of Excellence Best Anime Intros Ever</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/volution-of-engagement-key-post-vidcon-events/"><u>[New] Evolution of Engagement Key Post-VidCon Events</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-assessing-djis-flight-vision-tx-headset-performance/"><u>[New] In 2024, Assessing DJI's Flight Vision TX Headset Performance</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-comprehensive-study-gecatas-game-record-functionality/"><u>[New] In 2024, Comprehensive Study Gecata's Game Record Functionality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-premier-asmr-videography-choices/"><u>[New] In 2024, Premier ASMR Videography Choices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-techniques-to-mitigate-vr-disorientation/"><u>[New] In 2024, Techniques to Mitigate VR Disorientation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-top-10-gear-for-next-gen-musical-video-production-quality/"><u>[New] In 2024, Top 10 Gear for Next-Gen Musical Video Production Quality</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-vlc-media-player-your-free-windows-substitute/"><u>[New] In 2024, VLC Media Player Your Free Windows Substitute</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-streamline-your-podcasts-for-apple-podcasts-for-2024/"><u>[New] Streamline Your Podcasts for Apple Podcasts for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-winning-conversations-top-20-marketing-terms-explained/"><u>[Updated] 2024 Approved Winning Conversations Top 20 Marketing Terms Explained</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/free-games-galore-the-leading-torrent-sites-for-gamers-unveiled/"><u>Free Games Galore: The Leading Torrent Sites for Gamers Unveiled</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/hidden-gems-revealed-uncovering-the-rumored-release-date-costs-and-tech-specs-of-the-samsung-galaxy-s25/"><u>Hidden Gems Revealed – Uncovering the Rumored Release Date, Costs, and Tech Specs of the Samsung Galaxy S25</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/human-touch-in-writing-eclipsing-mechanical-wordsmiths/"><u>Human Touch in Writing: Eclipsing Mechanical Wordsmiths</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/instagram-live-maintaining-privacy-while-streaming/"><u>Instagram Live Maintaining Privacy While Streaming</u></a></li>
+<li><a href="https://win-webster.techidaily.com/windows-1011-8/"><u>Windows 10/11 用: 失われたファイルを見つける究極のガイド8コツ</u></a></li>
 </ul></div>
 

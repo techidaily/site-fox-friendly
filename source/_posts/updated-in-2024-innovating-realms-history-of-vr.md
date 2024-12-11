@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Innovating Realms  History of VR\""
-date: 2024-12-02T20:53:53.458Z
-updated: 2024-12-04T02:14:35.890Z
+date: 2024-12-09T22:19:06.402Z
+updated: 2024-12-10T17:37:49.296Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 1930s
@@ -49,7 +49,7 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 1960s
@@ -57,7 +57,7 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 1990s
@@ -65,7 +65,7 @@ VR headsets actually started development in the 1960s. Just 30 years from the or
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 2014
@@ -81,7 +81,7 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -109,18 +109,19 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unveiling-powerpoints-voice-command-capabilities-step-by-step/"><u>[New] 2024 Approved Unveiling PowerPoint's Voice Command Capabilities Step by Step</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-the-mystery-of-facebooks-status-video-downloads/"><u>[New] 2024 Approved Unveiling the Mystery of Facebook's Status Video Downloads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-navigating-your-way-through-effective-spotify-promotion-techniques/"><u>[New] Navigating Your Way Through Effective Spotify Promotion Techniques</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-smart-strategies-for-mobile-media-posting-via-apple-devices/"><u>[New] Smart Strategies for Mobile Media Posting via Apple Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-tv-streaming-apps-of-2024/"><u>Best TV Streaming Apps of 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-ways-to-prevent-immortals-fenyx-rising-from-unexpectedly-crashing/"><u>Effective Ways to Prevent Immortals: Fenyx Rising From Unexpectedly Crashing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-honor-x9b-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Honor X9b PC | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-best-mkv-solvers-on-macos/"><u>In 2024, Best MKV Solvers on macOS</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-cutting-edge-tech-in-daily-life/"><u>In 2024, Cutting-Edge Tech in Daily Life</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/lightning-lingers-quick-and-fluid-gaming-choices-for-laptops/"><u>Lightning Lingers Quick & Fluid Gaming Choices for Laptops</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revolutionizing-conversational-agents-unlock-potential-with-these-7-powerful-ai-prompt-tips/"><u>Revolutionizing Conversational Agents: Unlock Potential with These 7 Powerful AI Prompt Tips</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/transformar-video-de-formato-wmv-al-facil-y-gratuito-a-mp4-en-pcmac-o-en-linea/"><u>Transformar Vídeo De Formato WMV Al Fácil Y Gratuito a MP4 en PC/Mac O En Línea</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/troubleshooting-and-correcting-error-code-4140-efficiently/"><u>Troubleshooting and Correcting Error Code 4140 Efficiently</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-maximizing-engagement-in-post-facebook-algorithm-world/"><u>[New] In 2024, Maximizing Engagement in Post-Facebook Algorithm World</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-win10-mastery-crucial-tips-and-tricks/"><u>[New] In 2024, Win10 Mastery Crucial Tips and Tricks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-quick-start-recording-audio-on-windows-11-for-2024/"><u>[New] Quick Start Recording Audio on Windows 11 for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-premier-programs-to-transform-webcam-footage/"><u>[Updated] 2024 Approved Premier Programs to Transform Webcam Footage</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-virtual-reality-in-engineering-and-business-applications/"><u>[Updated] 2024 Approved Virtual Reality in Engineering and Business Applications</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-a-comprehensive-guide-to-understanding-instagrams-music-copyright-rul/"><u>[Updated] In 2024, A Comprehensive Guide To Understanding Instagram's Music Copyright Rul</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/expert-tips-for-captivating-and-impressive-hdr-portraits/"><u>Expert Tips for Captivating and Impressive HDR Portraits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-enhancing-visual-clarity-iphone-zoom-techniques/"><u>In 2024, Enhancing Visual Clarity IPhone Zoom Techniques</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-art-of-virality-a-10-step-roadmap-for-instagram-growth/"><u>Mastering the Art of Virality - A 10-Step Roadmap for Instagram Growth</u></a></li>
+<li><a href="https://howto.techidaily.com/oppo-a78-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo A78 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/safeguarding-sensitive-info-best-practices-for-using-chatgpt-in-professional-settings/"><u>Safeguarding Sensitive Info: Best Practices for Using ChatGPT in Professional Settings</u></a></li>
+<li><a href="https://win-dash.techidaily.com/successful-installation-broadcom-gige-network-adapter-driver-downloads-for-windows-11-fixed-issues/"><u>Successful Installation: Broadcom GigE Network Adapter Driver Downloads for Windows 11 - Fixed Issues!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-gpt-4-for-you-and-all/"><u>Understanding GPT-4, For You and All</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
 </ul></div>
 

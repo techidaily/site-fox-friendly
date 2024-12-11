@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Cinematographer's Blueprint for Simple Water Vids"
-date: 2024-12-02T08:47:38.280Z
-updated: 2024-12-04T00:34:23.847Z
+date: 2024-12-04T00:31:38.770Z
+updated: 2024-12-10T16:32:31.849Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -65,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -78,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
@@ -87,11 +87,19 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -100,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -118,14 +122,10 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,19 +152,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-hubsan-h501s-x4-fpv-quadcopter-review/"><u>[New] 2024 Approved Hubsan H501S X4 FPV Quadcopter Review</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-superior-psd-filters-galore/"><u>[New] 2024 Approved Superior PSD Filters Galore</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-expertise-in-enhancing-photos-via-online-tools-for-2024/"><u>[New] Expertise in Enhancing Photos via Online Tools for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-photography-for-the-masses-the-best-12-sites-offering-accessible-stock-images/"><u>[New] In 2024, Photography for the Masses - The Best 12 Sites Offering Accessible Stock Images</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-master-android-flip-digital-content-sequence/"><u>[New] Master Android Flip Digital Content Sequence</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-master-your-big-day-with-these-leading-countdown-clock-apps-androidios/"><u>[Updated] 2024 Approved Master Your Big Day with These Leading Countdown Clock Apps (Android/iOS)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-extensive-investigation-the-future-of-panorama-cams-with-samsung/"><u>[Updated] Extensive Investigation The Future of Panorama Cams with Samsung</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-gigglegridsguild-funnyframefactory/"><u>[Updated] In 2024, GiggleGridsGuild FunnyFrameFactory</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-why-the-future-of-videography-is-in-hdrs-arms-for-2024/"><u>[Updated] Why the Future of Videography Is in HDR's Arms for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-exploring-the-best-android-and-ios-wedding-timers-for-seamless-countdowns/"><u>2024 Approved Exploring the Best Android & iOS Wedding Timers for Seamless Countdowns</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>3 Smart and Simple Ways to Change Home Address on Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-power-of-ai-thumbnail-generators/"><u>In 2024, Power of AI Thumbnail Generators</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/perfecting-iphone-photography-for-vr-spheres-for-2024/"><u>Perfecting iPhone Photography for VR Spheres for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138589460-9781458200761-the-sacred-unspoken-language/"><u>The Sacred, Unspoken Language | Free Book</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-engaging-audiences-with-dynamic-photoviewer-content-in-pixiz/"><u>[New] 2024 Approved Engaging Audiences with Dynamic Photoviewer Content in Pixiz</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-transformative-tech-upgrading-phones-for-a-vr-experience/"><u>[New] 2024 Approved Transformative Tech Upgrading Phones for a VR Experience</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unveiling-the-secrets-of-kinemaster-usage-and-ranking-alternatives-1-10/"><u>[New] 2024 Approved Unveiling the Secrets of KineMaster Usage & Ranking Alternatives 1-10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-6-social-media-platforms-for-business-for-2024/"><u>[New] Top 6 Social Media Platforms for Business for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-cut-cost-and-clutter-together-top-45-best-free-apps-for-saving-videos-on-android/"><u>[Updated] 2024 Approved Cut Cost and Clutter Together Top 45 Best Free Apps for Saving Videos on Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-engineer-eliciting-gags/"><u>[Updated] 2024 Approved Engineer Eliciting Gags</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-freeze-whole-website-panel-for-2024/"><u>[Updated] Freeze Whole Website Panel for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-film-previews-collection/"><u>[Updated] Ultimate Film Previews Collection</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-concept-to-completion-the-artisans-guide-to-gifs/"><u>2024 Approved From Concept to Completion The Artisan's Guide to GIFs</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabling-apple-iphone-15-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling Apple iPhone 15 Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-key-10-plug-ins-for-elevating-your-fcp-workflow/"><u>In 2024, Key 10 Plug-Ins for Elevating Your FCP Workflow</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/leading-digital-adjustments-optimal-photo-framing-software-2023-for-2024/"><u>Leading Digital Adjustments Optimal Photo Framing Software, 2023 for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/memorable-moments-from-the-2022-skatescape-for-2024/"><u>Memorable Moments From the 2022 Skatescape for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/movie-substitutes-that-shook-up-my-world-7-choices/"><u>Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/setting-up-network-configuration-via-control-panel-a-step-by-step-guide-yl-computing/"><u>Setting Up Network Configuration via Control Panel: A Step-by-Step Guide - YL Computing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/subnautica-enthusiasts-resolved-no-more-crashes-in-pc-version-of-below-zero/"><u>Subnautica Enthusiasts - [RESOLVED] No More Crashes in PC Version of Below Zero!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/windows-security-protocols-how-to-change-another-users-login-credentials/"><u>Windows Security Protocols: How to Change Another User's Login Credentials</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dynamic Dialogue Design Dossiers"
-date: 2024-11-28T09:11:23.063Z
-updated: 2024-12-04T07:07:41.296Z
+date: 2024-12-05T22:51:31.719Z
+updated: 2024-12-10T20:07:56.527Z
 tags: 
   - screen-recording
   - ai video
@@ -27,17 +27,29 @@ After Effects have a wide range of text presets to make the texts and titles in 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Glitch Text Effect Toolkit
 
 Glitch text effect is a trendy effect that gets the viewers’ attention immediately. In this pack, you get 30 glitch text effects that you can apply to the text in your video to make them stand out. These effects are highly adjustable and you can time them in and out of your text as per your preference. Along with glitch text effects, you get glitch sound effects to make the animation impactful. You can experiment with Random seed as well as Glitch maps you get in the pack.
 
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Liquid Text Animation
 
 You get 110 animated elements that you can apply to the text in your video. The effects are perfectly suitable for videos where comedy is the main theme. The liquid text effect looks organic and natural, and the colors are eye-catching to grab everyone’s attention. There are 8 text scenes and one text preset present, along with 110 animated presets. The effects are HD in resolution, and they are modular and adjustable. It is time to download and use them to make your video dynamic.
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
 
@@ -46,11 +58,7 @@ There is always a high demand for dynamic text animations in After Effects. This
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
@@ -58,10 +66,6 @@ There is always a high demand for dynamic text animations in After Effects. This
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -75,10 +79,6 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
@@ -86,7 +86,7 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -96,7 +96,7 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -133,22 +133,16 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-conquer-kinemaster-efficient-use-plus-top-online-gaming-platforms-reviewed-for-2024/"><u>[New] Conquer KineMaster Efficient Use + Top Online Gaming Platforms Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nhance-visibility-with-any-channel-title-through-free-makers/"><u>[New] Enhance Visibility With Any Channel Title Through Free Makers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-how-to-use-star-feature-to-your-advantage/"><u>[New] How to Use Star Feature to Your Advantage</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-embellish-videos-and-stories-with-charts-notes-and-more/"><u>[Updated] 2024 Approved Embellish Videos & Stories with Charts, Notes & More</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-best-budget-friendly-ticking-clocks-online-for-2024/"><u>[Updated] Best Budget-Friendly Ticking Clocks Online for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-easy-access-to-12-exclusive-livestreams-daily-for-2024/"><u>[Updated] Easy Access to 12 Exclusive Livestreams Daily for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-first-row-fun-without-football-baseball-or-basketball-for-2024/"><u>[Updated] First Row Fun Without Football, Baseball, or Basketball for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-mastering-media-with-extraearsound/"><u>[Updated] In 2024, Mastering Media with ExtraEarSound</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-premium-timepieces-for-your-dream-wedding-on-smartphones/"><u>[Updated] Premium Timepieces for Your Dream Wedding on Smartphones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-assessing-your-video-streaming-needs-to-subscribe-or-not-to-subscribe/"><u>2024 Approved Assessing Your Video Streaming Needs To Subscribe or Not to Subscribe?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video-for-2024/"><u>How to Record and Edit an Animoji or Memoji Karaoke Music Video for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-blaze-2-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Blaze 2</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-x6-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Poco X6 Lock Screen Password?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-switching-from-snippet-to-live-play-in-yt/"><u>In 2024, Switching From Snippet to Live Play in YT</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-voice-over-text-made-easy-choosing-the-best-mac-translation-software/"><u>In 2024, Voice Over Text Made Easy Choosing the Best Mac Translation Software</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-honor-90-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/understanding-youtube-community-interaction-for-2024/"><u>Understanding YouTube Community Interaction for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-freely-accessible-platforms-for-professional-photography-edits/"><u>[New] In 2024, Freely Accessible Platforms for Professional Photography Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-crafting-a-cinematic-short-blending-images-and-melodies/"><u>[Updated] Crafting a Cinematic Short Blending Images and Melodies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-free-video-intro-templates-you-need-to-download-for-2024/"><u>[Updated] Free Video Intro Templates You Need to Download for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-building-confidence-and-trust-with-candidates/"><u>[Updated] In 2024, Building Confidence and Trust with Candidates</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-exploring-vivas-video-experience/"><u>[Updated] In 2024, Exploring Viva's Video Experience</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-lightning-snag-techniques-to-download-tiktok-shorts/"><u>[Updated] In 2024, Lightning Snag Techniques to Download TikTok Shorts</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-12-pro-max-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone 12 Pro Max? How to Fix it?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-time-stamping-for-higher-youtube-rankings-for-2024/"><u>Step-by-Step Guide to Time Stamping for Higher YouTube Rankings for 2024</u></a></li>
+<li><a href="https://win-online.techidaily.com/step-by-step-guide-printing-your-powerpoint-slides-yl-tech-solutions/"><u>Step-by-Step Guide: Printing Your PowerPoint Slides - YL Tech Solutions</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-wait-is-worth-it-top-4-ps5-postponement-tips/"><u>The Wait Is Worth It: Top 4 Ps5 Postponement Tips</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-infinix-smart-8-plus-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Infinix Smart 8 Plus Bypass FRP Tools for PC That Actually Work</u></a></li>
 </ul></div>
 
