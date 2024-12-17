@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Photo Savvy with an iPhone  Ideal Perspectives Uncovered\""
-date: 2024-08-22T20:38:29.235Z
-updated: 2024-08-23T20:38:29.235Z
+date: 2024-12-12T20:43:43.621Z
+updated: 2024-12-16T20:38:15.926Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 ![close-up-angle.](https://images.wondershare.com/filmora/article-images/close-up-angle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Care Solutions
 
  A close up is the type of shot that depicts only a small fraction of a scene or a detail. These shots are frequently used for portraits that show only a portion of a human face or some interesting detail. Furthermore, product photography relies heavily on close-ups because it often depicts fruit, and all sorts of tiny objects, that would be too small to photograph in a wide-angle shot.
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 ![low-angle-shot-photography](https://images.wondershare.com/filmora/article-images/low-angle-shot-photography.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: google
 
  Even though we often don't think about it, our field of vision strongly influences the way we think about pictures. The most common way to take a photo is to place the camera at the height of your eye level, and for that reason, any camera position that is located below this point is considered a low-angle shot.
@@ -57,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 #### 3\.  Straight Up - Take Pictures of things above you
 
 ![straight-shots-iphone](https://images.wondershare.com/filmora/article-images/straight-shots-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Digital Photography Review
 
@@ -94,6 +106,10 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 ![shoot-trought-another-subject](https://images.wondershare.com/filmora/article-images/shoot-trought-another-subject.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Photo Secrets
 
  You don't have to know anything about camera lens filters in order to use them. Your sunglasses, glasses of water or any other transparent or reflecting surface can be used as a filter through which you take pictures.
@@ -101,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
  If you take a photo through a glass of water you'll be able to create a distorted image of the view behind the glass. Taking photos through transparent objects can be a lot of fun, but it is often more complicated than it seems. Controlling aperture, exposure or focus manually from your iPhone may help you get better results because you'll be able to decide where the focal point of the photo will be or fine-tune the amount of light your iPhone camera can pick up.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,8 +145,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-ultimate-guide-to-understanding-and-leveraging-instagrams-reels/"><u>[New] 2024 Approved The Ultimate Guide to Understanding and Leveraging Instagram's Reels</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unlock-hd-potential-for-your-social-media-platform-fb/"><u>[New] 2024 Approved Unlock HD Potential for Your Social Media Platform (FB)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-premium-rate-free-excellence-criteria-for-top-10-lut-tools/"><u>[New] In 2024, Premium-Rate Free Excellence Criteria for Top 10 LUT Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-unmatched-tech-elevation-through-srs-enhancement/"><u>[New] In 2024, Unmatched Tech Elevation Through SRS Enhancement</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-premier-ios-choices-for-superior-video-experience-for-2024/"><u>[New] Premier iOS Choices for Superior Video Experience for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-crafting-immersive-vr-experiences-with-adobe-premieres-360-editing-features-for-2024/"><u>[Updated] Crafting Immersive VR Experiences with Adobe Premiere's 360° Editing Features for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-first-steps-in-gopro-gear-selection/"><u>[Updated] First Steps in GoPro Gear Selection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-science-of-effective-spotify-promotions/"><u>[Updated] In 2024, The Science of Effective Spotify Promotions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-windows-10s-leading-screen-capture-tools-a-comprehensive-list/"><u>[Updated] In 2024, Windows 10'S Leading Screen Capture Tools A Comprehensive List</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker/"><u>2024 Approved Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amazon-prime-day-deals-apples-m2-macbook-air-available-at-a-steal-for-749-exclusive-insights/"><u>Amazon Prime Day Deals: Apple's M2 MacBook Air Available at a Steal for $749 - Exclusive Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-creating-memorable-moments-using-snapchats-cartoon-effects/"><u>In 2024, Creating Memorable Moments Using Snapchat's Cartoon Effects</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/leveraging-social-influence-a-guide-to-biz-success-on-snap-for-2024/"><u>Leveraging Social Influence A Guide to Biz Success on Snap for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

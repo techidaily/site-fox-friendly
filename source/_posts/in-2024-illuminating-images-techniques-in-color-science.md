@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Illuminating Images  Techniques in Color Science\""
-date: 2024-12-07T19:19:15.038Z
-updated: 2024-12-10T22:47:49.336Z
+date: 2024-12-13T01:07:26.021Z
+updated: 2024-12-16T17:08:53.093Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -44,10 +40,6 @@ Color grading and color correction are processes that happen throughout postprod
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why is Color Grading Important?
 
@@ -117,12 +109,16 @@ First, you need to select the specific video portion you want to change the colo
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
@@ -136,7 +132,7 @@ Once you've finished correcting the video color, press Play and go over the whol
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Using the Color Panel Window**
@@ -148,7 +144,7 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step2Color grading with Wondershare Filmora
@@ -156,6 +152,10 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -223,19 +223,24 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-precision-capturing-the-art-of-ps4-gaming-recordings-with-obs/"><u>[New] 2024 Approved Precision Capturing The Art of PS4 Gaming Recordings with OBS</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-audiophiles-choice-best-microphones-for-podcasting-for-2024/"><u>[New] Audiophile's Choice Best Microphones for Podcasting for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-navigate-the-future-of-meetings-a-win11-and-zoom-guide-for-2024/"><u>[New] Navigate the Future of Meetings A Win11 and Zoom Guide for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-prime-6-mobile-movie-collections-for-2024/"><u>[New] Prime 6 Mobile Movie Collections for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unlock-creative-communication-get-free-voice-effects-today-for-2024/"><u>[New] Unlock Creative Communication - Get FREE Voice Effects Today for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-auto-play-youtube-iphoneandroid-no-notification/"><u>[Updated] Auto-Play YouTube IPhone/Android, No Notification</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-filmora-for-windows-10-and-other-top-video-editors-recommendation/"><u>[Updated] Filmora for Windows 10 and Other Top Video Editors Recommendation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-premier-editing-software-for-mobile-app-creation/"><u>[Updated] Premier Editing Software for Mobile App Creation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-intriguing-world-of-triller-vs-tiktok/"><u>[Updated] The Intriguing World of Triller vs TikTok</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-realme-12-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Realme 12 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-the-ultimate-stabilizer-unmatched-smartphone-tracking/"><u>In 2024, The Ultimate Stabilizer Unmatched Smartphone Tracking</u></a></li>
-<li><a href="https://win-answers.techidaily.com/pc-gaming-made-easy-fix-stuttering-and-lag-in-bloodhunt-today/"><u>PC Gaming Made Easy: Fix Stuttering and Lag in Bloodhunt Today!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/secure-visual-studio-code-against-windows-11-glitches/"><u>Secure Visual Studio Code Against Windows 11 Glitches</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-mystery-of-the-missing-usb-device-recognition-in-windows-11/"><u>Solving the Mystery of the Missing USB Device Recognition in Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-chucklecraft-constructor/"><u>[New] 2024 Approved ChuckleCraft Constructor</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-maximizing-streaming-experience-with-two-screen-viewing-on-netflix/"><u>[New] 2024 Approved Maximizing Streaming Experience with Two-Screen Viewing on Netflix</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-paving-digital-pathways-for-ig-and-tiktok/"><u>[New] 2024 Approved Paving Digital Pathways for IG & TikTok</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-ultimate-checklist-for-google-podcast-enthusiasts/"><u>[New] 2024 Approved The Ultimate Checklist for Google Podcast Enthusiasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unlock-professional-techniques-for-coloring-gopro-videos/"><u>[New] 2024 Approved Unlock Professional Techniques for Coloring GoPro Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-guidance-best-websites-to-find-google-pixel-ringtones-and-how-to-customize-google-pixel-ringtones/"><u>[New] Guidance Best Websites To Find Google Pixel Ringtones & How To Customize Google Pixel Ringtones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-securing-stunning-media-backdrops-at-cost-effective-rates/"><u>[New] In 2024, Securing Stunning Media Backdrops at Cost-Effective Rates</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unleashing-potential-enhancing-your-tiktok-videos/"><u>[New] Unleashing Potential Enhancing Your TikTok Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enhance-browsing-performance-unlocking-the-power-of-picture-in-picture/"><u>[Updated] 2024 Approved Enhance Browsing Performance Unlocking the Power of Picture-in-Picture</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-face-off-frenzy-legendary-sj6-versus-yis-prodigy-4k/"><u>[Updated] 2024 Approved Face-Off Frenzy Legendary SJ6 Versus Yi's Prodigy 4K</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/dvr-decisions-heres-what-to-ponder-first/"><u>DVR Decisions? Here's What to Ponder First</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-iphone-macro-photography-tips-and-tricks-for-2024/"><u>Expert iPhone Macro Photography Tips and Tricks for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chromebook-audio-revamp-guide-selecting-the-leading-speech-converters-online/"><u>In 2024, Chromebook Audio Revamp Guide Selecting the Leading Speech Converters Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to share/fake gps on Uber for Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-how-to-find-and-update-intel-optane-device-drivers-for-windows-systems/"><u>Step-by-Step Guide: How to Find and Update Intel Optane Device Drivers for Windows Systems</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-silent-playback-resolving-the-no-audio-issue-on-media-player-windows-10/"><u>Troubleshooting Silent Playback: Resolving the No Audio Issue on Media Player Windows 10</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlocking-seamless-productivity-with-the-blue-freestyle2-mouse-a-comprehensive-review-for-apple-fans/"><u>Unlocking Seamless Productivity with the Blue Freestyle2 Mouse – A Comprehensive Review for Apple Fans</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-friendly-analysis-of-the-topmate-c302-laptop-thermal-stand-budget-friendly-with-excellent-results/"><u>User-Friendly Analysis of the TopMate C302 Laptop Thermal Stand: Budget-Friendly with Excellent Results</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Use Preview App on Mac for 2024"
-date: 2024-12-03T18:42:45.159Z
-updated: 2024-12-11T00:04:57.729Z
+date: 2024-12-11T18:39:55.064Z
+updated: 2024-12-17T05:55:20.493Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
@@ -74,7 +74,7 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -92,10 +92,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -124,6 +120,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 **Step 3: Format the Text**
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
 
@@ -170,7 +170,7 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -208,7 +208,7 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -236,18 +236,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-how-to-upload-a-video-on-twitter-for-2024/"><u>[New] How to Upload a Video on Twitter for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-discovering-those-who-left-my-instagram-circle/"><u>[New] In 2024, Discovering Those Who Left My Instagram Circle</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-guided-steps-to-decrease-audio-intensity-using-lumafusion/"><u>[New] In 2024, Guided Steps to Decrease Audio Intensity Using Lumafusion</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-perfect-your-skills-applying-radial-blur-in-photoshop-easily/"><u>[New] In 2024, Perfect Your Skills Applying Radial Blur in Photoshop Easily</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-top-unrestricted-data-saver-solutions/"><u>[New] In 2024, Top Unrestricted Data Saver Solutions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-virtual-reality-awaits-discovering-top-10-pc-headsets-for-360-videos/"><u>[New] In 2024, Virtual Reality Awaits Discovering Top 10 PC Headsets for 360 Videos</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-bandicam-reviewed-the-latest-tech-enhancements-and-tips/"><u>[Updated] 2024 Approved Bandicam Reviewed The Latest Tech Enhancements and Tips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-compreranzo-il-background-ottenere-video-piu-chiaro-su-youtube-for-2024/"><u>[Updated] Compreranzo Il Background Ottenere Video Più Chiaro Su YouTube for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-ultimate-free-choice-high-definition-software-listing/"><u>[Updated] Ultimate Free Choice High Definition Software Listing</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-samsung-galaxy-a24-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Samsung Galaxy A24</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-nokia-g42-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Nokia G42 5G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-8-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-7-most-infamous-technology-commercials-ever-created/"><u>Top 7 Most Infamous Technology Commercials Ever Created</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-stepping-into-the-unseen-mastering-windows-11-through-less-known-tips/"><u>[New] 2024 Approved Stepping Into the Unseen Mastering Windows 11 Through Less-Known Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-generate-10-official-travel-ready-passport-images-no-money-down-for-2024/"><u>[New] Generate 10 Official Travel-Ready Passport Images, No Money Down for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-evaluating-photoshop-sway-effective-or-not/"><u>[New] In 2024, Evaluating Photoshop Sway Effective or Not?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sns-vs-competitors-a-critical-hdr-software-comparison-for-2024/"><u>[New] SNS vs Competitors A Critical HDR Software Comparison for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-youtube-tips-and-tricks-halt-the-snippet-views-effectively/"><u>[New] YouTube Tips & Tricks Halt the Snippet Views Effectively</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback/"><u>[Updated] 2024 Approved Average Earnings Per View What's the Income for YouTubers per Ad Playback?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mr-beasts-financial-reach/"><u>[Updated] 2024 Approved Mr. Beast's Financial Reach</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-framework-for-cost-analysis-in-music-video-making/"><u>[Updated] Framework for Cost Analysis in Music Video Making</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-changefake-your-vivo-y100t-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Vivo Y100t Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-15-by-drfone-ios/"><u>In 2024, Protecting Your Privacy How To Remove Apple ID From Apple iPhone 15</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rt-of-imitation-crafting-parody-videos-for-2024/"><u>The Art of Imitation Crafting Parody Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-backdrops-for-dynamic-streaming/"><u>Top Backdrops for Dynamic Streaming</u></a></li>
 </ul></div>
 

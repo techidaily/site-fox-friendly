@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Radiance Routines  Pro Tips for Video Illumination\""
-date: 2024-12-05T03:05:02.099Z
-updated: 2024-12-11T02:29:08.494Z
+date: 2024-12-10T17:46:54.927Z
+updated: 2024-12-16T23:12:30.833Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -53,25 +57,21 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -82,12 +82,16 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -99,16 +103,12 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **_3) Pro Tips: The light setting_**
@@ -151,20 +151,19 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-quick-and-easy-how-to-transform-your-mobile-device-into-a-vr-headset/"><u>[New] In 2024, Quick and Easy How to Transform Your Mobile Device Into a VR Headset</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-integrating-images-into-your-insta-world/"><u>[New] Integrating Images Into Your Insta World</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-elite-list-10-websites-with-superior-vectors/"><u>[Updated] 2024 Approved The Elite List 10 Websites with Superior Vectors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-essential-tips-for-harnessing-movie-maker-in-windows-8-systems/"><u>[Updated] Essential Tips for Harnessing Movie Maker in Windows 8 Systems</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-your-digital-den-top-12-animal-simulator-games-on-android/"><u>[Updated] In 2024, Your Digital Den Top 12 Animal Simulator Games on Android</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-introductory-handbook-on-video-quality-and-size/"><u>[Updated] Introductory Handbook on Video Quality and Size</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-art-of-engaging-audiences-with-facebooks-split-screen-tech-for-2024/"><u>[Updated] The Art of Engaging Audiences with Facebook's Split Screen Tech for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/effortless-guide-to-overcome-the-troublesome-network-error-0x800704cf-in-windows/"><u>Effortless Guide to Overcome the Troublesome Network Error 0X800704cf in Windows</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-apple-iphone-11-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Apple iPhone 11 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-phantom-3-showdown-golem-4-emerges/"><u>In 2024, Phantom 3 Showdown Golem 4 Emerges</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/inventory-guide-to-photographic-and-videography-units/"><u>Inventory Guide to Photographic and Videography Units</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-quest-for-perfection-in-drones-a-thorough-review-of-the-newly-upgraded-dji-phantom-4-pro-v20/"><u>The Quest for Perfection in Drones - A Thorough Review of the Newly Upgraded DJI Phantom 4 Pro V2.0</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranking-pc-audio-interfaces/"><u>Top-Ranking PC Audio Interfaces</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/transform-films-activate-xp-movie-maker-now-for-2024/"><u>Transform Films, Activate XP Movie Maker Now for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-perfect-windows-photos-implementing-sound-and-visual-filters-guide/"><u>[New] 2024 Approved Perfect Windows Photos Implementing Sound & Visual Filters Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-free-iphone-enhancement-apps-elevate-your-selfie-game-for-2024/"><u>[New] Top Free iPhone Enhancement Apps - Elevate Your Selfie Game for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-innovative-shooting-modes-smart-hdr-3-and-4-explained-simply/"><u>[Updated] 2024 Approved Innovative Shooting Modes Smart HDR 3 & 4 Explained Simply</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-double-delight-maximizing-the-use-of-netflixs-floating-window/"><u>[Updated] Double Delight Maximizing the Use of Netflix's Floating Window</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-embedding-apples-music-in-videos/"><u>[Updated] Embedding Apple's Music in Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-to-soundtrack-the-complete-conversion-manual-for-2024/"><u>[Updated] Instagram to Soundtrack The Complete Conversion Manual for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-navigating-the-dji-phantom-3-pros-innovations/"><u>[Updated] Navigating the DJI Phantom 3 Pro's Innovations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-choosing-wedding-timers-on-google-play-and-apple-store/"><u>2024 Approved The Ultimate Guide to Choosing Wedding Timers on Google Play and Apple Store</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-11-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 11 Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-windows-update-failure-code-0x802e-a-step-by-step-guide/"><u>How to Resolve Windows Update Failure Code 0X802e: A Step-by-Step Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/immediate-fixes-for-your-laptop-when-the-battery-refuses-to-charge/"><u>Immediate Fixes for Your Laptop When the Battery Refuses to Charge</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/step-by-step-softening-audio-routine-for-2024/"><u>Step-by-Step Softening Audio Routine for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wie-man-apple-id-von-einem-ipad-loscht-ohne-das-kennwort-zu-kennen/"><u>Wie Man Apple-ID Von Einem iPad Löscht, Ohne Das Kennwort Zu Kennen</u></a></li>
 </ul></div>
 

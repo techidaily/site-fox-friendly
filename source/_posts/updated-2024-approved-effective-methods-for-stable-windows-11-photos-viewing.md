@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Effective Methods for Stable Windows 11 Photos Viewing\""
-date: 2024-12-04T21:56:59.939Z
-updated: 2024-12-10T23:13:41.176Z
+date: 2024-12-11T23:09:08.189Z
+updated: 2024-12-17T06:37:31.418Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -62,7 +66,7 @@ Here is how to troubleshoot –
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -77,7 +81,7 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
@@ -92,10 +96,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -106,10 +106,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -122,17 +118,21 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,16 +159,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-benqs-visionary-approach-to-4k-monitors-unraveled-by-the-bl2711u-review/"><u>[New] BenQ's Visionary Approach to 4K Monitors, Unraveled by the BL2711U Review</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-gain-insight-into-your-contents-success-via-youtube-rankers/"><u>[New] In 2024, Gain Insight Into Your Content's Success via YouTube Rankers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-digital-domination-rise-from-thousands-to-a-million-on-youtube-for-2024/"><u>[Updated] Digital Domination Rise From Thousands to a Million on YouTube for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-drone-enhancement-kit-10-indispnible-components/"><u>[Updated] In 2024, Drone Enhancement Kit - 10 Indispnible Components</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-top-10-after-effects-text-presets/"><u>[Updated] Top 10 After Effects Text Presets</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-how-to-get-more-instagram-video-views/"><u>2024 Approved How to Get More Instagram Video Views</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-midland-lxt50ev3-assessment-high-tech-functional-handheld-radios-underwhelming-in-performance/"><u>Comprehensive Midland LXT50eV3 Assessment: High-Tech, Functional Handheld Radios Underwhelming in Performance</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-masters-tutorial-total-deep-dive-into-xmedia-suite-workshop/"><u>In 2024, Master's Tutorial Total Deep Dive Into XMedia Suite Workshop</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/pcdj-leads-in-sing-along-technology-introducing-our-premium-users/"><u>PCDJ Leads in Sing-Along Technology – Introducing Our Premium Users</u></a></li>
-<li><a href="https://techidaily.com/tecno-spark-20-proplus-video-recovery-recover-deleted-videos-from-tecno-spark-20-proplus-by-fonelab-android-recover-video/"><u>Tecno Spark 20 Pro+ Video Recovery - Recover Deleted Videos from Tecno Spark 20 Pro+</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-ai-in-windows-11-the-co-pilot-effect/"><u>Understanding AI in Windows 11: The Co-Pilot Effect</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-visionaries-at-work-a-detailed-review-of-top-3d-modeling-programs/"><u>[New] 2024 Approved Visionaries at Work A Detailed Review of Top 3D Modeling Programs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-immerse-in-fun-the-top-samsung-gear-vr-games-for-2024/"><u>[New] Immerse in Fun The Top Samsung Gear VR Games for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/everaging-youtube-for-dynamic-instagram-stories-for-2024/"><u>[New] Leveraging YouTube for Dynamic Instagram Stories for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-mobile-video-experience-review-report-for-2024/"><u>[New] Mobile Video Experience Review Report for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-overcoming-biometric-blockades-in-iphone-x-fixing-face-id/"><u>[New] Overcoming Biometric Blockades in iPhone X - Fixing Face ID</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-future-in-flight-djis-mavic-pro-breakdown-for-2024/"><u>[New] The Future in Flight DJI's Mavic Pro Breakdown for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-oceanic-visionaries-selecting-the-top-5-cameras/"><u>[Updated] 2024 Approved Oceanic Visionaries Selecting the Top 5 Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-superior-watchlist-analyzer-highest-chart-positions/"><u>[Updated] 2024 Approved Superior Watchlist Analyzer Highest Chart Positions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-engaging-haul-videos-techniques-and-tips-for-2024/"><u>[Updated] Creating Engaging Haul Videos Techniques & Tips for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-cutting-edge-platforms-for-exceptional-broadcast/"><u>[Updated] Cutting-Edge Platforms for Exceptional Broadcast</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-spotlight-strategies-brightening-your-visual-narrative/"><u>[Updated] Spotlight Strategies Brightening Your Visual Narrative</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/discerning-t-series-profit-mechanisms-from-youtube-views-for-2024/"><u>Discerning T-Series' Profit Mechanisms From Youtube Views for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-lut-revolution-no-cost-for-your-favorite-dji-minis-and-air-2-beats/"><u>In 2024, LUT Revolution – No Cost for Your Favorite DJI Minis & Air 2 Beats</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-leading-cloud-services-with-best-price/"><u>In 2024, The Leading Cloud Services with Best Price</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723000721612-use-ovenproof-gloves-when-handling-hot-tiles-to-avoid-burns/"><u>Use Ovenproof Gloves when Handling Hot Tiles to Avoid Burns</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-security-risks-should-be-considered-when-utilizing-chatgpt/"><u>What Security Risks Should Be Considered When Utilizing ChatGPT?</u></a></li>
 </ul></div>
 

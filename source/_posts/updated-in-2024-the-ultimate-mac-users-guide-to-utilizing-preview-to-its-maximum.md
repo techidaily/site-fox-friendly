@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Mac User's Guide to Utilizing Preview to Its Maximum"
-date: 2024-12-09T19:45:07.123Z
-updated: 2024-12-10T21:57:49.130Z
+date: 2024-12-09T18:25:46.092Z
+updated: 2024-12-16T18:24:58.169Z
 tags: 
   - screen-recording
   - ai video
@@ -35,10 +35,6 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
@@ -59,10 +55,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -78,7 +70,7 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -97,10 +89,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -112,6 +100,10 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -129,6 +121,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -144,6 +140,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -208,7 +208,7 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -236,18 +236,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-exploring-the-gridiron-a-detailed-review-of-vegas-pro-2021/"><u>[New] 2024 Approved Exploring the Gridiron A Detailed Review of Vegas Pro 2021</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-from-frame-to-script-innovative-ways-of-integrating-text-in-images/"><u>[New] 2024 Approved From Frame to Script Innovative Ways of Integrating Text in Images</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-iosandroid-leading-photo-writing-app-list/"><u>[New] IOS/Android Leading Photo-Writing App List</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-theta-s-reviewed-detailed-performance-insights/"><u>[New] Theta S Reviewed Detailed Performance Insights</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-advanced-tools-tweet-with-converted-videos/"><u>[Updated] 2024 Approved Advanced Tools Tweet with Converted Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-online-broadcast-battle-fb-live-and-yt-live-vs-tweetstreams/"><u>[Updated] Online Broadcast Battle FB LIVE & YT Live Vs. TweetStreams</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-step-by-step-guide-to-seamless-editing-of-full-spherical-video-content/"><u>[Updated] Step-by-Step Guide to Seamless Editing of Full Spherical Video Content</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-google-pixel-8-pro-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-ultimate-powerdirector-mastery-a-comprehensive-guide/"><u>In 2024, Ultimate PowerDirector Mastery A Comprehensive Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/integrating-your-tv-with-apples-homepod-a-step-by-step-guide/"><u>Integrating Your TV with Apple's HomePod - A Step by Step Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/silencing-your-pc-effective-solutions-for-a-quieter-computer-fan/"><u>Silencing Your PC: Effective Solutions for A Quieter Computer Fan</u></a></li>
-<li><a href="https://article-helps.techidaily.com/the-digital-divide-demystifying-virtualitys-kin-mr-ar-and-vr-for-2024/"><u>The Digital Divide Demystifying Virtuality's Kin (MR, AR, & VR) for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-breathtaking-review-and-different-directions/"><u>[New] 2024 Approved Breathtaking Review & Different Directions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-deep-dive-into-lg-bp350-display-technology/"><u>[New] 2024 Approved Deep Dive Into LG BP350 Display Technology</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-transform-sound-with-cloud-tools-top-5-online-text-to-speech-services-reviewed/"><u>[New] 2024 Approved Transform Sound with Cloud Tools Top 5 Online Text-to-Speech Services Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-5-best-apps-to-watch-instagram-stories-anonymously-for-2024/"><u>[New] 5 Best Apps to Watch Instagram Stories Anonymously for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-premier-index-of-digital-imagery-collections/"><u>[New] In 2024, Premier Index of Digital Imagery Collections</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-make-instagram-videos-with-music/"><u>[New] Make Instagram Videos With Music</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-finns-fortune-flux-earnings-examination/"><u>[Updated] 2024 Approved Finn's Fortune Flux Earnings Examination</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-pro-video-enthusiasts-essential-laptop-models-you-need/"><u>[Updated] 2024 Approved Pro Video Enthusiasts Essential Laptop Models You Need</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-android-and-ios-the-best-sound-distortion-tools/"><u>[Updated] In 2024, Android & iOS The Best Sound Distortion Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-inside-out-the-100-complete-theta-s-study/"><u>[Updated] In 2024, Inside Out The 100% Complete Theta S Study</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-perfect-for-every-task-our-choice-in-8-5k-displays/"><u>[Updated] Perfect for Every Task Our Choice in 8 5K Displays</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-youtube-ad-expense-calculation-guide/"><u>[Updated] Youtube Ad Expense Calculation Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essential-guide-to-timeless-stop-motion-classics/"><u>2024 Approved The Essential Guide to Timeless Stop-Motion Classics</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209715904-9781632658067-a-witchs-beverages-and-brews/"><u>A Witch's Beverages and Brews | Free Book</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-7-key-strategies-for-perfect-macro-video-shooting/"><u>In 2024, 7 Key Strategies for Perfect Macro Video Shooting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-tech-trends-unveiled-excellence-in-vr-treadmills/"><u>In 2024, Tech Trends Unveiled Excellence in VR Treadmills</u></a></li>
+<li><a href="https://fox-that.techidaily.com/snap-crisp-pictures-how-to-overcome-blurriness-in-iphone-photography-7-techniques/"><u>Snap Crisp Pictures: How to Overcome Blurriness in iPhone Photography (7 Techniques)</u></a></li>
 </ul></div>
 

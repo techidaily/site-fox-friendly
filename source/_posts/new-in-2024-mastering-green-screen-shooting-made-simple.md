@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering Green Screen Shooting Made Simple"
-date: 2024-12-06T17:38:25.714Z
-updated: 2024-12-11T02:31:01.041Z
+date: 2024-12-15T04:53:00.557Z
+updated: 2024-12-17T00:09:42.600Z
 tags: 
   - screen-recording
   - ai video
@@ -38,15 +38,15 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
@@ -65,7 +65,7 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
@@ -81,7 +81,7 @@ Looking for some best cameras for shooting green screen video? Check our picks o
 ![Clothing tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There are some mistakes that you can avoid to help your green screen video look more professional and more realistic. Perhaps one of the simplest mistakes that many people make with green screen video shooting is actually wearing green clothing. If you are wearing clothing or clothing that has buttons or accents that are a similar color green as your selected background green, the image that you project onto the green screen in post-editing will also get picked up by these accents on your clothing or by the clothing itself. This is great if you want to cut off part of an actor's body, but not so professional if you are trying to make an actor appear in a realistic scene.
@@ -90,15 +90,15 @@ There are some mistakes that you can avoid to help your green screen video look 
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
@@ -111,7 +111,7 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
@@ -141,20 +141,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-expert-studio-walkthrough-xstudio-reviewed/"><u>[New] Expert Studio Walkthrough XStudio Reviewed</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-from-fuzzy-frames-to-sharpness-the-v22-journey/"><u>[New] From Fuzzy Frames to Sharpness - The V2.2 Journey</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-from-novice-to-pro-mastering-mac-preview-features/"><u>[Updated] From Novice to Pro Mastering Mac Preview Features</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-frozen-olympics-spectacular-2022-highlights/"><u>[Updated] In 2024, Frozen Olympics Spectacular 2022 Highlights</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-ffxp-the-user-manual/"><u>[Updated] Navigating FFXP The User Manual</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/america-blocks-deepcool-exports-to-russia-as-tensions-rise-over-ukraine-impact-on-tech-industry/"><u>America Blocks DeepCool Exports to Russia as Tensions Rise Over Ukraine; Impact on Tech Industry</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-6-amazing-free-substitutes-for-adobe-photoshop/"><u>Discover 6 Amazing Free Substitutes for Adobe Photoshop</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-vivo-y77t-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Vivo Y77t Quickly | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-15-pro-max-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-xiaomi-redmi-note-12t-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Xiaomi Redmi Note 12T Pro to New Phone | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-top-networking-grounds-grow-your-youtube-audience/"><u>In 2024, Top Networking Grounds Grow Your YouTube Audience</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/motion-tracking-software-for-text-top-picks-for-2024/"><u>Motion Tracking Software for Text Top Picks for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/tranquil-acoustic-settings-on-computers-for-2024/"><u>Tranquil Acoustic Settings on Computers for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/understanding-magixs-acid-pro-and-its-market-rivals-for-2024/"><u>Understanding Magix's ACID Pro and Its Market Rivals for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/whatsapp-camera-distortion-how-to-correct-the-zoom-effect-on-screenshots/"><u>WhatsApp Camera Distortion: How to Correct the Zoom Effect on Screenshots</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-lightning-lingers-quick-and-fluid-gaming-choices-for-laptops/"><u>[New] 2024 Approved Lightning Lingers Quick & Fluid Gaming Choices for Laptops</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-enhancing-detail-in-youtube-clips/"><u>[New] Enhancing Detail in YouTube Clips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-essentials-in-filming-adventure-vlogs/"><u>[New] Essentials in Filming Adventure Vlogs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-seamless-sync-solutions-top-cloud-apps-for-android/"><u>[New] In 2024, Seamless Sync Solutions Top Cloud Apps for Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-social-media-sensation-kit-building-memes-on-9gag/"><u>[New] In 2024, The Social Media Sensation Kit Building Memes on 9GAG</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-steps-to-obtain-free-audio-for-videos/"><u>[Updated] Effortless Steps to Obtain Free Audio for Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-guide-to-enhancing-video-controls-and-performance/"><u>2024 Approved Expert Guide to Enhancing Video Controls and Performance</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/discover-the-ultimate-5-ios-migration-tools-for-202-zero-cost-full-feature-set/"><u>Discover the Ultimate 5 iOS Migration Tools for 202지 - Zero Cost, Full Feature Set!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/guide-to-addressing-game-crashing-issues-in-batman-arkham-knight-fatal-error-fixes/"><u>Guide to Addressing Game-Crashing Issues in Batman: Arkham Knight - Fatal Error Fixes</u></a></li>
+<li><a href="https://win-great.techidaily.com/how-to-fix-google-drive-file-stream-issues-in-windows-11/"><u>How to Fix Google Drive File Stream Issues in Windows 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-cutting-edge-solutions-for-video-editing-and-dvd-making-on-mac/"><u>In 2024, Cutting-Edge Solutions for Video Editing and DVD Making on Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-essential-steps-for-identifying-a-great-stream-network/"><u>In 2024, Essential Steps for Identifying a Great Stream Network</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1973644-9780895565389-the-master-game/"><u>The Master Game | Free Book</u></a></li>
 </ul></div>
 

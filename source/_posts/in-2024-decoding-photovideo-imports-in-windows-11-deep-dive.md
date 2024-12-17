@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Decoding Photo/Video Imports in Windows 11 Deep Dive"
-date: 2024-12-04T23:34:57.615Z
-updated: 2024-12-10T22:56:29.978Z
+date: 2024-12-15T19:26:38.813Z
+updated: 2024-12-16T19:49:06.733Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Import Photos and Video from a Phone
 
 ### Step 1: Connecting Your Phone
@@ -51,11 +47,7 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Enable File Exchange
@@ -63,7 +55,7 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
@@ -71,6 +63,10 @@ Your phone will have settings regarding file transfers when it is connected to a
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 4: Import
 
@@ -88,13 +84,13 @@ Click the Import button on the Photos app and choose the items that you want to 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
 
@@ -113,6 +109,10 @@ Those who are importing photos and videos from a camera rather than a smartphone
 Connect the camera to your phone and then follow the above steps to import your media content.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -145,18 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ynamic-and-simple-building-a-subscriber-button-for-youtube-using-filmora-for-2024/"><u>[New] Dynamic and Simple Building a Subscriber Button for YouTube Using Filmora for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-mastering-light-and-shadow-with-iphone-xs-new-lens-technology/"><u>[New] In 2024, Mastering Light & Shadow with iPhone X's New Lens Technology</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-eco-editing-tools-no-charge-for-2024/"><u>[Updated] Eco Editing Tools No Charge for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-copyright-conduct-for-instagram-artists/"><u>[Updated] In 2024, Copyright Conduct for Instagram Artists</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-efficient-media-management-turning-videos-into-dvds-with-mac/"><u>[Updated] In 2024, Efficient Media Management Turning Videos Into DVDs with Mac</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transforming-raw-footage-an-in-depth-guide-to-applying-lut-filters-in-obs-studio/"><u>[Updated] In 2024, Transforming Raw Footage An In-Depth Guide to Applying LUT Filters in OBS Studio</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-guide-to-formulating-successful-product-sponsorships-in-youtubespace/"><u>A Guide to Formulating Successful Product Sponsorships in YouTubespace</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/drone-review-parrots-advanced-ar-model-20/"><u>Drone Review Parrot's Advanced AR Model 2.0</u></a></li>
-<li><a href="https://win-forum.techidaily.com/exploring-top-platforms-navigating-through-facebook-twitter-instagram-and-youtube/"><u>Exploring Top Platforms: Navigating Through Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/identifying-causes-for-disappearing-youtube-shorts-thumbnails-for-2024/"><u>Identifying Causes for Disappearing YouTube Shorts Thumbnails for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-selecting-prime-meme-blueprints/"><u>In 2024, Selecting Prime Meme Blueprints</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-depth-assessment-photo-editing-tool-for-creatives/"><u>In-Depth Assessment Photo Editing Tool for Creatives</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-xiaomi-redmi-k70-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Xiaomi Redmi K70 FRP Bypass</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-memes-that-stand-out-the-9gag-way/"><u>[New] Crafting Memes that Stand Out The 9GAG Way</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-inside-ppros-full-screen-vista-your-handbook/"><u>[New] Inside PPro's Full-Screen Vista Your Handbook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-journey-into-whatsapps-call-ecosystem/"><u>[Updated] 2024 Approved Journey Into WhatsApp's Call Ecosystem</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-best-waterproof-cameras-for-kids-filmmaking-and-splash-fun-for-2024/"><u>[Updated] Best Waterproof Cameras For Kids' Filmmaking and Splash Fun for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pixelpioneer-8-version-visual-conjurer/"><u>[Updated] In 2024, PixelPioneer 8-Version Visual Conjurer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-infusing-impact-best-practices-for-podcast-graphics-for-2024/"><u>[Updated] Infusing Impact Best Practices for Podcast Graphics for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-premium-4k-cameras-ranked-1-to-18/"><u>[Updated] Premium 4K Cameras Ranked #1 to #18</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-virtual-reality-in-engineering-and-business-applications-for-2024/"><u>[Updated] Virtual Reality in Engineering and Business Applications for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/mp4/"><u>快適な無料ビデオ変換サービス：MP4フォーマットで最高画質</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capture-and-structure-knowledge-via-mematic-for-2024/"><u>Capture and Structure Knowledge via Mematic for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-honor-90-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Honor 90 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cut-down-on-discords-cpu-usage-a-comprehensive-guide-to-efficiency-in-202n/"><u>Cut Down on Discord's CPU Usage: A Comprehensive Guide to Efficiency in 202N</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/effortless-entertainment-top-free-free-meme-ideas-for-2024/"><u>Effortless Entertainment Top Free, FREE Meme Ideas for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Xiaomi Redmi Note 12 Pro 5G</u></a></li>
+<li><a href="https://extra-information.techidaily.com/photo-prospectus-top-10-professional-lens-choices/"><u>Photo Prospectus Top 10 Professional Lens Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580253916-quick-language-leap-slovak-essentials-learned-in-10-minute-spurts/"><u>Quick Language Leap: Slovak Essentials Learned in 10-Minute Spurts!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/sierra-unlocking-all-access-to-icloud-files-and-desktop-for-2024/"><u>Sierra Unlocking All Access to iCloud Files and Desktop for 2024</u></a></li>
 </ul></div>
 

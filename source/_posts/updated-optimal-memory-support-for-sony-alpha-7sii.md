@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Optimal Memory Support for Sony Alpha 7SII"
-date: 2024-12-05T01:40:36.705Z
-updated: 2024-12-11T00:22:35.006Z
+date: 2024-12-12T03:52:30.670Z
+updated: 2024-12-17T05:06:09.039Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to choose the right memory card for your Sony A7S II
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
@@ -121,7 +121,7 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -149,24 +149,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-expert-tips-for-clearer-zoomed-snapshots-on-snapchat/"><u>[New] 2024 Approved Expert Tips for Clearer Zoomed Snapshots on Snapchat</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-find-the-finest-websites-with-free-game-of-thrones-audio/"><u>[New] 2024 Approved Find the Finest Websites with Free Game of Thrones Audio</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-ultimate-methods-for-efficiently-attaching-a-link-to-tiktok-bios/"><u>[New] 2024 Approved Ultimate Methods for Efficiently Attaching a Link to TikTok Bios</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>[New] In 2024, A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-secret-finds-exclusive-free-speech-transcribers-for-mac-for-2024/"><u>[New] Secret Finds Exclusive Free Speech Transcribers for Mac for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-choice-in-motion-typography-designs/"><u>[Updated] 2024 Approved Best Choice in Motion Typography Designs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-essential-breakdown-for-wm6-setup/"><u>[Updated] Essential Breakdown for WM6 Setup</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-glacial-glory-celebrating-olympic-champions-and-their-epic-slopesideshow-22/"><u>[Updated] In 2024, Glacial Glory Celebrating Olympic Champions & Their Epic Slopesideshow '22</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-perfect-your-iphone-pics-with-these-10-best-camera-apps-x-8/"><u>[Updated] Perfect Your iPhone Pics with These 10 Best Camera Apps (X, 8)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-secrets-of-editing-numerical-data-in-tiktoks-for-2024/"><u>[Updated] The Secrets of Editing Numerical Data in TikToks for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-finding-premium-photo-quality-without-charges/"><u>2024 Approved Finding Premium Photo Quality Without Charges</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-sony-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Sony</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/guide-facile-pour-copier-le-contenu-dune-cle-usb-sur-une-seconde-cle-sans-perte-de-donnees/"><u>Guide Facile Pour Copier Le Contenu D'une Clé USB Sur Une Seconde Clé Sans Perte De Données</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/harnessing-historical-internet-insights-a-comprehensive-way-back-machine-user-manual/"><u>Harnessing Historical Internet Insights: A Comprehensive Way Back Machine User Manual</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-view-from-above-discover-our-top-11-bridge-camera-picks/"><u>In 2024, View From Above Discover Our Top 11 Bridge Camera Picks</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-gt-5-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme GT 5? Fixed | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/navigating-the-nuances-of-premieres-fullscreen-mode-for-2024/"><u>Navigating the Nuances of Premiere's Fullscreen Mode for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/transformative-tactics-for-skyrocketing-subscribers-on-youtube-for-2024/"><u>Transformative Tactics for Skyrocketing Subscribers on Youtube for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlock-the-secrets-a-guide-to-making-your-content-explode-in-popularity-on-tiktok/"><u>Unlock the Secrets: A Guide to Making Your Content Explode in Popularity on TikTok</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-essential-tips-for-photosvideos-in-windows-10/"><u>[New] 2024 Approved Essential Tips for Photos/Videos in Windows 10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-picture-perfect-viewing-the-best-8k-monitors-uncovered/"><u>[New] 2024 Approved Picture Perfect Viewing The Best 8K Monitors Uncovered</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-ultimate-laptop-screencapture-techniques-reviewed/"><u>[New] 2024 Approved Ultimate Laptop ScreenCapture Techniques Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ultimate-free-stopwatches-without-a-price-tag/"><u>[New] In 2024, Ultimate Free Stopwatches Without a Price Tag</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eading-online-convertor-audio-to-written-text-for-2024/"><u>[New] Leading Online Convertor Audio to Written Text for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-exploring-magix-media-pack/"><u>[Updated] 2024 Approved Exploring MAGIX Media Pack</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-plating-perfection-tips-for-shooting-culinary-content/"><u>[Updated] Plating Perfection Tips for Shooting Culinary Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-ideal-extra-memory-for-sony-a7c-model/"><u>2024 Approved Ideal Extra Memory for Sony A7C Model</u></a></li>
+<li><a href="https://article-helps.techidaily.com/action-cam-reimagined-an-extensive-review-of-the-sj-cam-s6/"><u>Action Cam Reimagined An Extensive Review of the SJ-CAM S6</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/free-sustainable-scenes-for-filmmakers/"><u>Free Sustainable Scenes for Filmmakers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-unleash-creativity-video-art-and-live-streaming-with-vlc-webcam-capabilities/"><u>In 2024, Unleash Creativity Video Art & Live Streaming with VLC Webcam Capabilities</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-why-testimonial-videos-boost-brand-credibility/"><u>In 2024, Why Testimonial Videos Boost Brand Credibility</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-start-to-setting-up-one-click-logins-for-windows-users/"><u>Quick Start to Setting Up One-Click Logins for Windows Users</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolve-city-skylines-crashing-problems-with-expert-2024-troubleshooting-guide/"><u>Resolve 'City Skylines' Crashing Problems with Expert 2024 Troubleshooting Guide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-persistent-sony-vegas-crashes-get-your-project-up-and-running/"><u>Troubleshooting Persistent Sony Vegas Crashes - Get Your Project Up and Running!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/uncouple-onedrive-from-your-microsoft-id-on-windows-pcs/"><u>Uncouple OneDrive From Your Microsoft ID on Windows PCs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Swift Recovery  Reviving Windows Photo Viewer on Modern OS\""
-date: 2024-12-04T20:28:53.292Z
-updated: 2024-12-11T01:49:47.412Z
+date: 2024-12-14T02:28:27.475Z
+updated: 2024-12-16T19:15:40.291Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -63,7 +67,7 @@ Here is why they want to restore Windows Photo Viewer –
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -75,12 +79,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,16 +104,12 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -115,10 +119,6 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,20 +145,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-xiaomi-mi-11-crafting-memories-in-unprecedented-detail/"><u>[New] 2024 Approved Xiaomi Mi 11 Crafting Memories in Unprecedented Detail</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-financial-projections-producing-a-music-video/"><u>[New] In 2024, Financial Projections Producing a Music Video</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-how-long-does-a-20mb-video-last/"><u>[New] In 2024, How Long Does a 20MB Video Last?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-storing-image-frames-from-videos-on-windows-11/"><u>[New] In 2024, Storing Image Frames From Videos on Windows 11</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-incor-writes-photo-kinetic-vibrance/"><u>[New] Incor Writes Photo Kinetic Vibrance</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-discover-the-power-of-easy-trimming-with-windows-photos-app/"><u>[Updated] In 2024, Discover the Power of Easy Trimming with Windows Photos App</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-prime-steadicam-devices-for-excellence-in-filmmaking-aviation/"><u>[Updated] In 2024, Prime Steadicam Devices for Excellence in Filmmaking Aviation</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-remote-recording-excellence-best-9-webmicrone-capture-systems-23/"><u>[Updated] In 2024, Remote Recording Excellence Best 9 Webmicrone Capture Systems ('23)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-mastery-of-magnified-mining-maps/"><u>[Updated] Mastery of Magnified Mining Maps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-quelling-unsteady-motion-effects-for-2024/"><u>[Updated] Quelling Unsteady Motion Effects for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-companion-for-creating-unique-metaverse-avatars/"><u>In 2024, The Ultimate Companion for Creating Unique Metaverse Avatars</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/master-taskbar-date-and-clock-adjustments/"><u>Master Taskbar Date & Clock Adjustments</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-10-premiere-elements-competitors-you-need-to-know-2023-update/"><u>New In 2024, 10 Premiere Elements Competitors You Need to Know 2023 Update</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/utilizing-cookiebot-technology-for-tailored-web-interactions/"><u>Utilizing Cookiebot Technology for Tailored Web Interactions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-gentle-echoes-mac-and-windows-sound-controls/"><u>[New] 2024 Approved Gentle Echoes Mac and Windows Sound Controls</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-tunes-to-timelapse-crafting-mobile-music-videos/"><u>[New] 2024 Approved Tunes to Timelapse Crafting Mobile Music Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-crafting-compelling-footage-on-your-gopro/"><u>[New] In 2024, Crafting Compelling Footage on Your GoPro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pioneering-success-a-guide-to-prolific-youtubers-growth/"><u>[New] Pioneering Success A Guide to Prolific Youtubers' Growth</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-inspiring-leadership-the-top-35-recruiter-talks/"><u>[Updated] In 2024, Inspiring Leadership The Top 35 Recruiter Talks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-mac-and-windows-compatible-srt-boosters-the-elite-list-of-10-for-2024/"><u>[Updated] Mac & Windows Compatible SRT Boosters The Elite List of 10 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unlocking-new-potentials-with-macos-11-big-sur-for-2024/"><u>[Updated] Unlocking New Potentials with macOS 11 Big Sur for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/1-navigating-legal-frameworks-essential-compliance-tips-for-crypto-traders-and-investors-insights-from-yl-computing/"><u>1. Navigating Legal Frameworks: Essential Compliance Tips for Crypto Traders and Investors - Insights From YL Computing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-does-imovie-set-dimensions-for-2024/"><u>How Does iMovie Set Dimensions for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-solve-missing-banners-in-taskbars/"><u>How To Solve Missing Banners in Taskbars</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-editing-efforts-10-text-innovations/"><u>In 2024, Top Editing Efforts 10 Text Innovations</u></a></li>
+<li><a href="https://extra-information.techidaily.com/inspiring-14-animated-text-concepts/"><u>Inspiring 14 Animated Text Concepts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-object-extraction-in-iphone-photography-with-top-6-apps-for-2024/"><u>Mastering Object Extraction in iPhone Photography with Top 6 Apps for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-the-asus-zephyrus-g14-a-perfect-blend-for-serious-gamers-on-the-go/"><u>The Definitive Guide to the Asus Zephyrus G14: A Perfect Blend for Serious Gamers on the Go</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-s24plus-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy S24+ Location | Dr.fone</u></a></li>
 </ul></div>
 
