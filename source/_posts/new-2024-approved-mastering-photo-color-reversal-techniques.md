@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Photo Color Reversal Techniques\""
-date: 2024-12-11T17:11:29.317Z
-updated: 2024-12-16T22:31:10.446Z
+date: 2024-12-20T00:52:14.780Z
+updated: 2024-12-25T19:44:15.650Z
 tags: 
   - screen-recording
   - ai video
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make Image Negative of a Digital Photo?
@@ -58,16 +58,12 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -79,6 +75,10 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -101,7 +101,7 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
@@ -130,10 +130,6 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
 **Conclusion**
@@ -141,6 +137,10 @@ Inverting the colors in a photo with Negative Photo Effect HD is easy since you 
 Inverting colors in a photo is not a complicated process, but finding creative ways to use the negative image effect is since images with inverted colors are best used within a pre-defined context. Do you often create images with inverted colors? Leave a comment below and let us know your favorite method of creating image negatives.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -167,21 +167,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-do-screen-recording-on-iphone-easily-in-2024/"><u>[New] How to Do Screen Recording on Iphone Easily, In 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unraveling-the-secrets-of-iphone-hdr-for-2024/"><u>[New] Unraveling the Secrets of iPhone HDR for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-apex-sporting-cameras-for-extreme-enthusiasts/"><u>[Updated] Apex Sporting Cameras for Extreme Enthusiasts</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-clearance-checking-guidelines-for-pre-upload-to-tiktok/"><u>[Updated] Clearance-Checking Guidelines for Pre-Upload to TikTok</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-from-obscurity-to-prominence-how-to-thrive-in-youtube-streaming-for-2024/"><u>[Updated] From Obscurity to Prominence How to Thrive in Youtube Streaming for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-next-gen-ai-for-professional-visual-editing/"><u>[Updated] Next Gen AI for Professional Visual Editing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-identity-simple-facial-blur-tactics-for-2024/"><u>[Updated] Unveiling Identity Simple Facial Blur Tactics for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-diving-into-movavis-premium-video-tools-edition/"><u>2024 Approved Diving Into Movavi's Premium Video Tools Edition</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-metaverse-explorers-best-virtual-reality-list/"><u>2024 Approved Metaverse Explorers Best Virtual Reality List</u></a></li>
-<li><a href="https://extra-information.techidaily.com/eliminate-blur-in-zoom-calls-actionable-strategies/"><u>Eliminate Blur in Zoom Calls – Actionable Strategies</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-finding-the-ideal-soundtrack-for-unboxing-content/"><u>In 2024, Finding the Ideal Soundtrack for Unboxing Content</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-seamless-social-integration-twitter-and-facebook-connections/"><u>In 2024, Seamless Social Integration Twitter & Facebook Connections</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/mastering-mobile-warfare-androids-best-mobas/"><u>Mastering Mobile Warfare Android's Best MOBAs</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/most-acclaimed-digital-music-cutter-tools-updated-for-2024/"><u>Most Acclaimed Digital Music Cutter Tools – Updated for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pixel-perfect-free-mobile-photography-booster/"><u>Pixel Perfect Free Mobile Photography Booster</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ranking-perfect-photo-and-video-shows-on-iphones/"><u>[New] 2024 Approved Ranking Perfect Photo & Video Shows on iPhones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-proficient-content-tagging-made-simple-the-best-7-budget-friendly-online-taggification-apps-reviewed/"><u>[New] In 2024, Proficient Content Tagging Made Simple The Best 7 Budget-Friendly Online Taggification Apps Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-film-your-flavors-top-7-guides-for-delicious-cooking-cinematography-for-2024/"><u>[Updated] Film Your Flavors Top 7 Guides for Delicious Cooking Cinematography for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-demystifying-chroma-key-effects-an-introduction-to-green-screen-magic/"><u>[Updated] In 2024, Demystifying Chroma Key Effects An Introduction to Green Screen Magic</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-removing-borders-quick-and-effective-image-retouch-methods/"><u>[Updated] In 2024, Removing Borders Quick & Effective Image Retouch Methods</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pinnacle-of-popularity-on-reddit-top-10-ranking/"><u>[Updated] Pinnacle of Popularity on Reddit - Top 10 Ranking</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/droning-success-key-elements-in-selecting-ideal-fpv-propellers-for-2024/"><u>Droning Success Key Elements in Selecting Ideal FPV Propellers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/earning-equation-finns-financial-frequency/"><u>Earning Equation Finn's Financial Frequency</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/easy-download-unique-video-opening-lines/"><u>Easy Download Unique Video Opening Lines</u></a></li>
+<li><a href="https://win11.techidaily.com/easy-guide-clearing-out-microsoft-edge/"><u>Easy Guide: Clearing Out Microsoft Edge</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/engage-audiences-with-free-video-teasers/"><u>Engage Audiences with Free Video Teasers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-iphone-13-pro-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From iPhone 13 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-disable-driver-signature-enforcement-and-install-unsigned-drivers-on-windows/"><u>How to Disable Driver Signature Enforcement and Install Unsigned Drivers on Windows</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-3d-text-design-in-ps-for-2024/"><u>The Ultimate Guide to 3D Text Design in PS for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-guide-to-understanding-ai-language-decode-29-crucial-terms/"><u>The Ultimate Guide to Understanding AI Language: Decode 29 Crucial Terms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/toontown-full-analysis-and-tutorial-24-edition-for-2024/"><u>ToonTown Full Analysis & Tutorial '24 Edition for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/turning-live-radio-into-a-personal-archive-step-by-step-instructions-for-2024/"><u>Turning Live Radio Into a Personal Archive Step-by-Step Instructions for 2024</u></a></li>
 </ul></div>
 

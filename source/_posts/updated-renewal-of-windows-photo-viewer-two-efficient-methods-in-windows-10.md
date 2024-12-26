@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Renewal of Windows Photo Viewer  Two Efficient Methods in Windows 10\""
-date: 2024-12-13T17:22:05.433Z
-updated: 2024-12-17T04:01:12.990Z
+date: 2024-12-20T01:10:33.464Z
+updated: 2024-12-25T18:00:36.189Z
 tags: 
   - screen-recording
   - ai video
@@ -61,10 +61,14 @@ Here is why they want to restore Windows Photo Viewer –
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -74,12 +78,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -96,16 +104,12 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -115,10 +119,6 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,19 +145,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-drone-visual-spectrum-20-first-time-free-luts-included/"><u>[New] Drone Visual Spectrum - 20 First-Time FREE LUTS Included</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-perfect-pairing-sound-and-imagery-in-media-production/"><u>[New] Perfect Pairing Sound & Imagery in Media Production</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-ultimate-guide-solidify-iphone-hdr-quality-with-4-key-editing-steps-for-2024/"><u>[Updated] [Ultimate Guide] Solidify iPhone HDR Quality with 4 Key Editing Steps for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ai-powered-podcast-names-the-ultimate-selection-list/"><u>[Updated] 2024 Approved AI-Powered Podcast Names The Ultimate Selection List</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-comprehensive-manual-mastering-mobizen-recorders/"><u>[Updated] In 2024, Comprehensive Manual Mastering Mobizen Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-deadite-design-dynamo/"><u>[Updated] In 2024, Deadite Design Dynamo</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-step-by-step-techniques-for-adding-text-on-tiktok/"><u>[Updated] In 2024, Step-By-Step Techniques for Adding Text on TikTok</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-innovative-ideas-to-boost-package-prelude-joy-for-2024/"><u>[Updated] Innovative Ideas to Boost Package Prelude Joy for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-scale-up-snaps-no-loss-in-detail/"><u>2024 Approved Scale Up Snaps - No Loss in Detail</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unveiling-the-latest-innovations-in-lgs-360-camera-technology/"><u>2024 Approved Unveiling the Latest Innovations in LG's 360 Camera Technology</u></a></li>
-<li><a href="https://driver-download.techidaily.com/finding-and-applying-the-right-drivers-for-the-dell-inspiron-15-under-windows-11/"><u>Finding and Applying the Right Drivers for the Dell Inspiron 15 Under Windows 11</u></a></li>
-<li><a href="https://video-capture.techidaily.com/quick-guide-to-effortlessly-obtaining-youtube-subtitles-for-free/"><u>Quick Guide to Effortlessly Obtaining YouTube Subtitles for Free</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-pairing-your-apple-airpods-with-your-hp-computer/"><u>Step-by-Step Guide: Pairing Your Apple AirPods with Your HP Computer</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-gamers-checklist-a-guide-to-securely-transacting-for-oculus-quest-2-games/"><u>The Gamer's Checklist: A Guide to Securely Transacting for Oculus Quest 2 Games</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-nano-drones-10-your-next-flight-companion-in-2024/"><u>[New] Nano Drones 10 - Your Next Flight Companion, In 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-nikon-d500-review-breaking-boundaries-in-4k/"><u>[New] Nikon D500 Review Breaking Boundaries in 4K</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-savetech-reviews-insights-for-2024/"><u>[New] SaveTech Reviews Insights for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-scripting-a-captivating-cinematic-sketchpad/"><u>[New] Scripting a Captivating Cinematic Sketchpad</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-trends-in-advanced-iptv-video-capture-methods/"><u>[Updated] 2024 Approved Trends in Advanced IPTV Video Capture Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-a-thorough-review-of-lgs-upgraded-360-camera-lineup-2023-edition/"><u>[Updated] A Thorough Review of LG's Upgraded 360 Camera Lineup, 2023 Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unleash-speed-edit-windows-11-photos-like-a-pro/"><u>[Updated] In 2024, Unleash Speed Edit Windows 11 Photos Like a Pro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-tailoring-your-podcast-content-with-seo-in-mind-for-2024/"><u>[Updated] Tailoring Your Podcast Content with SEO in Mind for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-delete-facebook-story/"><u>2024 Approved How to Delete Facebook Story?</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ace-squad-strategies-boost-your-call-of-duty-modern-warfare-frames-per-second-fps/"><u>Ace Squad Strategies: Boost Your Call of Duty: Modern Warfare Frames per Second (FPS)</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-stop-lost-ark-from-keeping-malfunctioning-on-your-computer/"><u>How to Stop Lost Ark From Keeping Malfunctioning on Your Computer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-optimum-affordable-asmr-microphones-with-incredible-performance/"><u>In 2024, Optimum Affordable ASMR Microphones with Incredible Performance</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-unleash-your-creative-potential-with-full-length-vivacut-review-24/"><u>In 2024, Unleash Your Creative Potential with Full-Length VivaCut Review '24</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-win-and-mac-top-8-excellent-subtitles-converters-to-srt/"><u>In 2024, Win & Mac Top 8 Excellent Subtitles Converters to SRT</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-hp-officejet-pro-ebin-8740-drivers-compatible-with-windows-11108-free-download/"><u>Latest HP OfficeJet Pro Ebin 8740 Drivers: Compatible with Windows 11/10/8 - Free Download!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/premiere-pro-power-tools-your-ultimate-2023-samples-free/"><u>Premiere Pro Power Tools - Your Ultimate 2023 Samples (FREE)</u></a></li>
+<li><a href="https://win-latest.techidaily.com/protecting-information-integrity-comprehensive-instructions-for-pre-factory-reset-system-backups-on-computers/"><u>Protecting Information Integrity: Comprehensive Instructions for Pre-Factory Reset System Backups on Computers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/revolutionizing-photos-through-automated-hdr-techniques/"><u>Revolutionizing Photos Through Automated HDR Techniques</u></a></li>
 </ul></div>
 

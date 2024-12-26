@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fashioning a Footprint  Fonts for Visual Stories in AE for 2024\""
-date: 2024-12-12T04:28:27.404Z
-updated: 2024-12-16T23:17:32.454Z
+date: 2024-12-21T16:21:24.788Z
+updated: 2024-12-25T23:54:43.027Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ After Effects is one of the most promising video editing applications available 
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How to add fonts to After Effects?
 
@@ -54,10 +58,6 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -69,6 +69,10 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
 
@@ -82,12 +86,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -96,10 +104,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -111,13 +115,13 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -125,10 +129,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,24 +158,24 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-a-step-by-step-framework-for-transcribing-whatsapp-calls/"><u>[New] 2024 Approved A Step-by-Step Framework for Transcribing WhatsApp Calls</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-best-tales-woven-on-airwaves/"><u>[New] 2024 Approved Best Tales Woven on Airwaves</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-beat-the-competition-macs-7-best-speech-to-text-apps-explored/"><u>[New] Beat the Competition Mac's 7 Best Speech-to-Text Apps Explored</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-selecting-the-finest-screen-recorders-1-to-5-android/"><u>[New] Selecting the Finest Screen Recorders, #1 to #5 (Android)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-top-ranked-drones-synced-seamlessly-with-gopros-for-2024/"><u>[New] Top-Ranked Drones Synced Seamlessly With GoPros for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-lg-vr-360-review-a-new-dimension-of-gaming/"><u>[Updated] 2024 Approved LG VR 360 Review A New Dimension of Gaming</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-beginners-guide-to-decoding-diagonal-aspect-ratios/"><u>[Updated] In 2024, Beginners Guide to Decoding Diagonal Aspect Ratios</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-lg-redefines-gaming-with-its-innovative-360-degree-vr-experience/"><u>[Updated] In 2024, LG Redefines Gaming with Its Innovative 360-Degree VR Experience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-10-must-knows-before-elevating-systems/"><u>[Updated] In 2024, Top 10 Must-Knows Before Elevating Systems</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-youtube-a-guide-for-gamers-live-broadcasts/"><u>[Updated] Mastering YouTube A Guide for Gamers' Live Broadcasts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-voice-of-action-crafting-moving-screenplay-conversations/"><u>[Updated] The Voice of Action Crafting Moving Screenplay Conversations</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-video-setup-starter-kit-for-excursion-documentation-for-2024/"><u>[Updated] Video Setup Starter Kit for Excursion Documentation for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/boosting-your-iphones-browser-speed-a-guide-to-quicker-safari-experience/"><u>Boosting Your iPhone's Browser Speed: A Guide to Quicker Safari Experience</u></a></li>
-<li><a href="https://fox-info.techidaily.com/creating-composition-magic-leading-lines-on-iphone-for-2024/"><u>Creating Composition Magic Leading Lines on iPhone for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-samsung-galaxy-m54-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Samsung Galaxy M54 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ite-views-looping-videos-on-your-iphone-for-2024/"><u>Infinite Views Looping Videos on Your iPhone for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/master-of-catchphrase-design-for-2024/"><u>Master of Catchphrase Design for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-call-of-duty-wwii-display-errors-resolve-black-screen-issues-for-pc-players/"><u>Solving Call of Duty: WWII Display Errors: Resolve Black Screen Issues for PC Players</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-manufacture-memorable-visuals-on-giphy/"><u>[New] 2024 Approved Manufacture Memorable Visuals on Giphy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-boosting-your-gameplay-tips-for-increased-zoom-range/"><u>[New] Boosting Your Gameplay Tips for Increased Zoom Range</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-collaborative-branding-strategies-in-digital-media-for-2024/"><u>[New] Collaborative Branding Strategies in Digital Media for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-lead-the-way-in-streaming-your-guide-to-youtubes-full-sphere-video-trends/"><u>[New] Lead the Way in Streaming Your Guide to YouTube's Full-Sphere Video Trends</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-green-frameworks-30plus-downloads-that-transform-your-videography-skills/"><u>[Updated] 2024 Approved Green Frameworks 30+ Downloads That Transform Your Videography Skills</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ultimate-guide-windows-movie-maker-downloading/"><u>[Updated] 2024 Approved Ultimate Guide Windows Movie Maker Downloading</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-easy-guide-to-documenting-gameplay-sessions/"><u>[Updated] In 2024, Easy Guide to Documenting Gameplay Sessions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-lgs-visionary-pursuit-deep-insights-into-the-31mu97-b-monitor-review/"><u>[Updated] In 2024, LG's Visionary Pursuit Deep Insights Into the 31MU97-B Monitor Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-timing-duration-for-a-20mb-high-definition-video-for-2024/"><u>[Updated] Timing Duration for a 20Mb High-Definition Video for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unlock-the-potential-advanced-techniques-for-podcast-editing-in-garageband-for-2024/"><u>[Updated] Unlock the Potential Advanced Techniques for Podcast Editing in GarageBand for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-on-unlocking-iphone-11-pro-with-a-broken-screen-drfone-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone 11 Pro with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-infinix-note-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ideas-on-boosting-gopro-energy-retention/"><u>Ideas on Boosting GoPro Energy Retention</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-breakthrough-the-top-8-web-based-photo-blender/"><u>In 2024, Breakthrough The Top 8 Web-Based Photo Blender</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovative-approach-wearable-unlocks-your-mac/"><u>Innovative Approach Wearable Unlocks Your Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unlocking-team-potential-harnessing-the-power-of-snap-camera-for-2024/"><u>Unlocking Team Potential Harnessing the Power of Snap Camera for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-secrets-to-superior-slow-motion-gopro-hero-10-mastery/"><u>Unveiling Secrets to Superior Slow Motion GoPro Hero 10 Mastery</u></a></li>
 </ul></div>
 

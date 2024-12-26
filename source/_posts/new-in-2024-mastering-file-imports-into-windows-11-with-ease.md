@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering File Imports Into Windows 11 with Ease"
-date: 2024-12-15T05:11:56.358Z
-updated: 2024-12-16T18:31:58.505Z
+date: 2024-12-21T16:57:25.103Z
+updated: 2024-12-25T21:28:39.357Z
 tags: 
   - screen-recording
   - ai video
@@ -40,23 +40,19 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 
 ## Part 1: Import Photos and Video from a Phone
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
 
@@ -64,15 +60,15 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 4: Import
 
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Start Importing in Photos App
 
@@ -99,7 +95,7 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Import Photos and Video from a Camera
@@ -111,7 +107,11 @@ Connect the camera to your phone and then follow the above steps to import your 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -145,24 +145,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-picks-youtube-to-hd-mastering-quality-conversions/"><u>[New] 2024 Approved Top Picks YouTube to HD - Mastering Quality Conversions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-brand-integration-with-youtube-content-creators/"><u>[New] Brand Integration with YouTube Content Creators</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-capture-and-save-your-linkedin-content-the-ultimate-guide-to-best-tools/"><u>[New] Capture & Save Your LinkedIn Content The Ultimate Guide to Best Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/igital-content-arena-competing-titans-vimeo-youtube-dailymotion-for-2024/"><u>[New] Digital Content Arena Competing Titans - Vimeo, YouTube, DailyMotion for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/aming-income-optimization-tips-for-2024/"><u>[New] Gaming Income Optimization Tips for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-beginners-guide-to-pro-youtube-tech/"><u>[New] In 2024, Beginner's Guide to Pro YouTube Tech</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-video-content-for-youtube-success/"><u>[New] In 2024, Mastering Video Content for YouTube Success</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-radiance-routines-pro-tips-for-video-illumination/"><u>[Updated] 2024 Approved Radiance Routines Pro Tips for Video Illumination</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-easy-steps-for-tempo-control-in-instagram-videos/"><u>[Updated] Easy Steps for Tempo Control in Instagram Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mastering-snapchat-share-tweets-via-video/"><u>[Updated] In 2024, Mastering Snapchat Share Tweets via Video</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-optimal-memory-support-for-sony-alpha-7sii/"><u>[Updated] Optimal Memory Support for Sony Alpha 7SII</u></a></li>
-<li><a href="https://win-answers.techidaily.com/conquering-halo-infinite-darkness-a-step-by-step-guide-to-fix-screen-issues/"><u>Conquering Halo Infinite Darkness: A Step-by-Step Guide to Fix Screen Issues</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/hp-laptop-has-lost-its-voice-heres-how-to-bring-back-the-sound/"><u>HP Laptop Has Lost Its Voice? Here's How to Bring Back the Sound</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-dissecting-wirecast-a-comprehensive-breakdown-and-comparisons/"><u>In 2024, Dissecting WireCast A Comprehensive Breakdown & Comparisons</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-expertly-easy-timekeepers-without-a-price-tag/"><u>In 2024, Expertly Easy Timekeepers Without a Price Tag</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-the-ultimate-playlist-of-timeless-anime-themes/"><u>In 2024, The Ultimate Playlist of Timeless Anime Themes</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-offline-errors-a-guide-for-steam-users/"><u>Overcoming Offline Errors: A Guide for Steam Users</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/step-by-step-guide-to-masterful-technology-enhancements-for-2024/"><u>Step-by-Step Guide to Masterful Technology Enhancements for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-limitations-why-generative-ai-may-not-be-ideal-for-your-messaging-application/"><u>Understanding Limitations: Why Generative AI May Not Be Ideal for Your Messaging Application</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-accelerating-learning-on-tiktok-changing-your-profile-number/"><u>[New] Accelerating Learning on TikTok Changing Your Profile Number</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-11-secrets-of-windows-11-for-2024/"><u>[New] Discover 11 Secrets of Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-vector-imagery-best-10-sources/"><u>[New] Mastering the Art of Vector Imagery Best 10 Sources</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-best-free-webm-players/"><u>[Updated] 2024 Approved Best Free WebM Players</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-discover-the-ultimate-5-gaming-webcam-winners-for-streaming/"><u>[Updated] Discover the Ultimate 5 Gaming Webcam Winners for Streaming</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-leading-streaming-programs-for-live-content/"><u>[Updated] In 2024, Leading Streaming Programs for Live Content</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-speed-focused-chroma-keying-101/"><u>2024 Approved Speed-Focused Chroma Keying 101</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-a15-4g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy A15 4G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-achieving-high-view-count-a-youtube-video-guide/"><u>In 2024, Achieving High View Count A YouTube Video Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-harmonymix-pro-mac-and-windows-version/"><u>In 2024, HarmonyMix Pro Mac & Windows Version</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tutorial-integral-sobre-la-transformacion-de-videos-en-clipchamp-e-indicadores-alternativos-recomendados/"><u>Tutorial Integral Sobre La Transformación De Vídeos en Clipchamp E Indicadores Alternativos Recomendados</u></a></li>
+<li><a href="https://network-issues.techidaily.com/unblocking-windows-11-post-creators-fix/"><u>Unblocking Windows 11 Post-Creators Fix</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-xstream-studios-complete-exploration-in-156-words-for-2024/"><u>Unveiling XStream Studios Complete Exploration in 156 Words for 2024</u></a></li>
 </ul></div>
 
