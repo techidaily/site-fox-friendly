@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Renewal of Windows Photo Viewer  Two Efficient Methods in Windows 10\""
-date: 2024-12-20T01:10:33.464Z
-updated: 2024-12-25T18:00:36.189Z
+date: 2024-12-31T09:43:08.810Z
+updated: 2025-01-04T04:57:46.744Z
 tags: 
   - screen-recording
   - ai video
@@ -61,14 +61,10 @@ Here is why they want to restore Windows Photo Viewer –
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -79,16 +75,12 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -104,12 +96,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -117,6 +113,10 @@ Here is the detailed guide –
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -145,24 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-nano-drones-10-your-next-flight-companion-in-2024/"><u>[New] Nano Drones 10 - Your Next Flight Companion, In 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-nikon-d500-review-breaking-boundaries-in-4k/"><u>[New] Nikon D500 Review Breaking Boundaries in 4K</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-savetech-reviews-insights-for-2024/"><u>[New] SaveTech Reviews Insights for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-scripting-a-captivating-cinematic-sketchpad/"><u>[New] Scripting a Captivating Cinematic Sketchpad</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-trends-in-advanced-iptv-video-capture-methods/"><u>[Updated] 2024 Approved Trends in Advanced IPTV Video Capture Methods</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-a-thorough-review-of-lgs-upgraded-360-camera-lineup-2023-edition/"><u>[Updated] A Thorough Review of LG's Upgraded 360 Camera Lineup, 2023 Edition</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unleash-speed-edit-windows-11-photos-like-a-pro/"><u>[Updated] In 2024, Unleash Speed Edit Windows 11 Photos Like a Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-tailoring-your-podcast-content-with-seo-in-mind-for-2024/"><u>[Updated] Tailoring Your Podcast Content with SEO in Mind for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-delete-facebook-story/"><u>2024 Approved How to Delete Facebook Story?</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ace-squad-strategies-boost-your-call-of-duty-modern-warfare-frames-per-second-fps/"><u>Ace Squad Strategies: Boost Your Call of Duty: Modern Warfare Frames per Second (FPS)</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-stop-lost-ark-from-keeping-malfunctioning-on-your-computer/"><u>How to Stop Lost Ark From Keeping Malfunctioning on Your Computer</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-optimum-affordable-asmr-microphones-with-incredible-performance/"><u>In 2024, Optimum Affordable ASMR Microphones with Incredible Performance</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-unleash-your-creative-potential-with-full-length-vivacut-review-24/"><u>In 2024, Unleash Your Creative Potential with Full-Length VivaCut Review '24</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-win-and-mac-top-8-excellent-subtitles-converters-to-srt/"><u>In 2024, Win & Mac Top 8 Excellent Subtitles Converters to SRT</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-hp-officejet-pro-ebin-8740-drivers-compatible-with-windows-11108-free-download/"><u>Latest HP OfficeJet Pro Ebin 8740 Drivers: Compatible with Windows 11/10/8 - Free Download!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/premiere-pro-power-tools-your-ultimate-2023-samples-free/"><u>Premiere Pro Power Tools - Your Ultimate 2023 Samples (FREE)</u></a></li>
-<li><a href="https://win-latest.techidaily.com/protecting-information-integrity-comprehensive-instructions-for-pre-factory-reset-system-backups-on-computers/"><u>Protecting Information Integrity: Comprehensive Instructions for Pre-Factory Reset System Backups on Computers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/revolutionizing-photos-through-automated-hdr-techniques/"><u>Revolutionizing Photos Through Automated HDR Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-evaluating-a-64gb-drive-writable-by-videos/"><u>[New] In 2024, Evaluating a 64GB Drive' Writable by Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-professional-insights-on-selecting-top-vhs-artistic-upgrades/"><u>[New] In 2024, Professional Insights on Selecting Top VHS Artistic Upgrades</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-secrets-to-choosing-the-ultimate-free-online-srt-translators/"><u>[New] In 2024, Secrets to Choosing the Ultimate Free Online SRT Translators</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-dive-ready-cameras-the-ultimate-compilation-of-2023/"><u>[New] Top Dive-Ready Cameras The Ultimate Compilation of 2023</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-top-picks-the-ultimate-android-mp3-downloader-collection/"><u>[Updated] 2024 Approved Top Picks The Ultimate Android MP3 Downloader Collection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-anti-fog-gear-for-clear-shot-capture-in-cold-weather-for-2024/"><u>[Updated] Anti-Fog Gear for Clear Shot Capture in Cold Weather for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-direct-youtube-to-dazzling-gif-creation-with-no-downloads/"><u>2024 Approved Direct YouTube to Dazzling Gif Creation with No Downloads</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722843920052-add-a-splash-of-personality-to-your-mac-learn-to-change-folder-colors-today/"><u>Add a Splash of Personality to Your Mac: Learn to Change Folder Colors Today!</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-pinnacle-of-wearable-technology-an-in-depth-look-at-the-refined-apple-watch-series-4/"><u>Exploring the Pinnacle of Wearable Technology: An In-Depth Look at the Refined Apple Watch Series 4</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211254166-9798869225238-finding-ahhh-a-guide-to-mindfulness/"><u>Finding Ahhh... A Guide to Mindfulness | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ahead-of-the-game-snag-a-lifetime-savings-deal-with-mondly/"><u>Get Ahead of the Game: Snag a Lifetime Savings Deal with Mondly!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-complete-digest-exploring-google-podcast-apps-essence/"><u>In 2024, Complete Digest Exploring Google Podcast App's Essence</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/overcoming-chatgpt-hurdles-refining-google-news-content-delivery-and-securing-top-tier-mobile-internet-access-on-holidays/"><u>Overcoming ChatGPT Hurdles, Refining Google News Content Delivery & Securing Top-Tier Mobile Internet Access on Holidays</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-vr-bike-games-a-compreayers-guide/"><u>TOP VR Bike Games A Compreayer’s Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-value-in-depth-look-at-upheres-c5c-and-d6sec-mini-ac-models-for-less-than-20/"><u>Unveiling the Value: In-Depth Look at UpHere's C5C & D6Sec Mini AC Models for Less Than $20</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/vanish-3-battle-disguise-4-steps-up-for-2024/"><u>Vanish 3 Battle Disguise 4 Steps Up for 2024</u></a></li>
 </ul></div>
 

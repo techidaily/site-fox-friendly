@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Deep Dive Into SRT  The Basics for Beginners\""
-date: 2024-12-22T16:34:02.791Z
-updated: 2024-12-25T19:32:27.411Z
+date: 2024-12-27T22:49:46.311Z
+updated: 2025-01-03T22:00:46.327Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,10 @@ Here is an SRT format example;
 
 ![an example of srt file](https://images.wondershare.com/filmora/article-images/2022/07/an-example-of-srt-file.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why should I use SRT files?
 
 Having understood what an SRT file is, let's take a look at some top reasons why you should use SRT files. The details have been explained below;
@@ -89,10 +93,6 @@ Step1 Launch TextEdit if you're using a Mac or Notepad if you're using Windows a
 
 ![launch textedit](https://images.wondershare.com/filmora/article-images/2022/07/everything-you-should-know-about-srt-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Now, type 1 to indicate the beginning of the first caption sequence. Then click on ‘Enter’ on your Keyboard.
 
 Enter of the following formats as the beginning and ending timecode; hours:minutes:seconds,milliseconds – -> hours:minutes:seconds,milliseconds
@@ -116,7 +116,7 @@ Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Und
 You've successfully created an SRT file. It's as simple as that!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to open an SRT file?
@@ -135,9 +135,17 @@ Step1 Start the installed Filmora program on your PC and import the SRT file to 
 
 ![start the installed filmora program](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Move the uploaded SRT file to the Timeline and right-click on it. Then choose ‘Advanced Edit’ from The pop-up.
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Now take advantage of the Filmora software advanced editing to edit the SRT file.
 
@@ -147,7 +155,15 @@ Step4 Once you're done with editing the SRT file, move the cursor to the timelin
 
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: Hot FAQs on SRT files
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Which Is Better, SRT or VTT?
 
@@ -156,6 +172,10 @@ SRT and VTT are quite similar. However, VTT has more editing options compared to
 ### 2\. Are SRT files closed captions?
 
 Yes, SRT files are raw closed caption files.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. How do I use SRT files for YouTube?
 
@@ -168,10 +188,6 @@ The process of adding SRT to your YouTube video is pretty straightforward. Just 
 1. Select the Video that you want to add SRT to. Then click ‘Add Language’ and select the language you wrote your Subtitle.
 
 ![click add language](https://images.wondershare.com/filmora/article-images/2022/07/how-to-use-srt-file-on-youtube-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Click Add under the Subtitle section and upload your SRT file through the pop-up that appears on your screen.
 
@@ -202,7 +218,7 @@ Here is an SRT format example;
 ![an example of srt file](https://images.wondershare.com/filmora/article-images/2022/07/an-example-of-srt-file.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why should I use SRT files?
@@ -214,7 +230,7 @@ Having understood what an SRT file is, let's take a look at some top reasons why
 And the amazing thing about this kind of file is that you don't need to always edit it or generate additional files irrespective of the platform you're looking to use it on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. User friendly
@@ -241,10 +257,6 @@ Step1 Launch TextEdit if you're using a Mac or Notepad if you're using Windows a
 
 ![launch textedit](https://images.wondershare.com/filmora/article-images/2022/07/everything-you-should-know-about-srt-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Now, type 1 to indicate the beginning of the first caption sequence. Then click on ‘Enter’ on your Keyboard.
 
 Enter of the following formats as the beginning and ending timecode; hours:minutes:seconds,milliseconds – -> hours:minutes:seconds,milliseconds
@@ -260,10 +272,6 @@ Step5 Repeat step 3 & 4 until you've completed the Transcript. Make sure you che
 Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Under ‘Save As’ enter the name of your file and change the file extension to .srt and hit the Save button to complete the process.
 
 ![click on file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -291,21 +299,17 @@ Step2 Move the uploaded SRT file to the Timeline and right-click on it. Then cho
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now take advantage of the Filmora software advanced editing to edit the SRT file.
 
 ![use filmora to edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Once you're done with editing the SRT file, move the cursor to the timeline and right-click on the ‘SRT’ > select ‘Export Subtitle File’ from the pop-up list that appears to upload the edited SRT file to your PC storage.
 
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: Hot FAQs on SRT files
 
@@ -332,10 +336,6 @@ The process of adding SRT to your YouTube video is pretty straightforward. Just 
 1. Click Add under the Subtitle section and upload your SRT file through the pop-up that appears on your screen.
 
 Once you've successfully uploaded the SRT file, your video should be ready to be published with Subtitle.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -367,24 +367,20 @@ That being said, if you plan on using SRT for your videos you can employ the sim
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-harmonizing-cityscapes-and-nature-the-role-of-green-spaces-for-2024/"><u>[New] Harmonizing Cityscapes and Nature The Role of Green Spaces for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-the-experts-guide-to-recording-live-streaming-on-diverse-tech-gadgets/"><u>[New] The Expert's Guide to Recording Live Streaming on Diverse Tech Gadgets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-most-effective-android-apps-to-download-youtube-videos/"><u>[New] The Most Effective Android Apps to Download YouTube Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-total-gaze-coverage-camera-analysis-for-2024/"><u>[Updated] Total Gaze Coverage Camera Analysis for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-advancing-photo-quality-on-snapchat-via-zoom/"><u>2024 Approved Advancing Photo Quality on Snapchat via Zoom</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-best-affordable-flying-tech-today/"><u>2024 Approved Best Affordable Flying Tech Today</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-high-def-phones-with-vlogging-extras/"><u>2024 Approved High-Def Phones with Vlogging Extras</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-premier-advice-superior-iphone-audio-artists/"><u>2024 Approved Premier Advice Superior iPhone Audio Artists</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-premium-camcorders-head-on-video-sharing/"><u>2024 Approved Premium Camcorders Head-On Video Sharing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-restore-shadows-in-iphone-hdr-footage-using-premiere-pro-techniques/"><u>2024 Approved Restore Shadows in iPhone HDR Footage Using Premiere Pro Techniques</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-ultimate-action-camera-duel-hero5-black-vs-hero4-silver/"><u>2024 Approved Ultimate Action Camera Duel Hero5 Black VS Hero4 Silver</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unboxing-the-lg-27ud88uhd-monitor-experience-for-tech-enthusiasts/"><u>2024 Approved Unboxing the LG 27UD88UHD Monitor Experience for Tech Enthusiasts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/360-vision-showdown-samsung-and-lg-camera-face-off-for-2024/"><u>360 Vision Showdown Samsung & LG Camera Face Off for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/ace-the-green-screen-scene-with-these-tips-for-2024/"><u>Ace the Green Screen Scene with These Tips for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/cookiebot-enabled-enhancing-your-websites-performance/"><u>Cookiebot-Enabled: Enhancing Your Website's Performance</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-brisk-blueprints-for-scribing-presentations/"><u>In 2024, Brisk Blueprints for Scribing Presentations</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-t2-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo T2 5G</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-thrifty-cloud-haven-budget-storage-bulk-files-handling/"><u>In 2024, Thrifty Cloud Haven Budget Storage, Bulk Files Handling</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-youtubers-unleashed-a-guide-to-creating-memorable-music-reaction-vids/"><u>In 2024, Youtubers Unleashed A Guide to Creating Memorable Music Reaction Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-earnings-with-youtube-studio-monetization-on-any-device/"><u>[New] 2024 Approved Maximizing Earnings with YouTube Studio Monetization on Any Device</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unleash-the-potential-of-your-notes-use-mematic/"><u>[New] Unleash the Potential of Your Notes - Use Mematic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-reaper-remixing-rituals-volume-control-chronicles/"><u>[Updated] 2024 Approved Reaper Remixing Rituals Volume Control Chronicles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-cultivating-companions-best-farm-games-to-share-with-pals/"><u>2024 Approved Cultivating Companions Best Farm Games to Share with Pals</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/a-comprehensive-guide-sending-and-receiving-imessage-on-windows-os-tips/"><u>A Comprehensive Guide: Sending & Receiving iMessage on Windows OS - Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/affordable-high-definition-top-mirrorless-under-(1k/"><u>Affordable High Definition - Top Mirrorless Under <$1K</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/anglers-guide-to-premium-fishing-cameras-for-2024/"><u>Angler’s Guide to Premium Fishing Cameras for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-gear-for-shooting-top-10-high-res-shoulder-rigs-for-2024/"><u>Best Gear for Shooting Top 10 High-Res Shoulder Rigs for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/best-value-shooters-with-full-spherical-capture-for-2024/"><u>Best Value Shooters with Full Spherical Capture for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-engaging-podcasts-step-by-step-guide-with-free-examples-for-2024/"><u>Crafting Engaging Podcasts Step-by-Step Guide with Free Examples for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/crafting-immersive-experiences-with-audio-in-canva/"><u>Crafting Immersive Experiences with Audio in Canva</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cutting-edge-camera-list-best-videography-devices-of-the-year/"><u>Cutting-Edge Camera List Best Videography Devices of the Year</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-official-samsung-adb-drivers-compatible-with-all-models/"><u>Download the Official Samsung ADB Drivers – Compatible with All Models</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-page-fault-in-nonpaged-area-on-windows-10-systems/"><u>How to Fix 'Page Fault in Nonpaged Area' On Windows 10 Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/nvidias-geforce-rtx-3070-ti-windows-driver-update-compatible-with-win-1087/"><u>NVIDIA's GeForce RTX 3070 Ti Windows Driver Update: Compatible with Win 10/8/7</u></a></li>
 </ul></div>
 

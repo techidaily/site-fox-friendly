@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Excellence in Detail  A Curated List of 8K Cameras\""
-date: 2024-12-24T21:03:45.997Z
-updated: 2024-12-25T19:39:04.395Z
+date: 2025-01-03T08:56:20.258Z
+updated: 2025-01-03T23:30:03.766Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ You may also like: [11 Best Bridge Cameras \[Ultimate Review\]](https://tools.te
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is an 8K Camera?
 
 The [resolution](https://tools.techidaily.com/wondershare/filmora/download/)determines the maximum quality of pictures a video camera can capture. Each frame an 8K camera records can either have 7680 or 8192 pixels on the longer side of the frame and between 2160 and 8192 pixels on the shorter side of the frame depending on the video’s [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/). Commonly an 8K video with the standard 16:9 aspect ratio has 33.9 million pixels or a resolution of 7680x4320 pixels.
@@ -46,6 +50,10 @@ It is worth noting that the resolution of still images is different than the vid
 8K video cameras function on the same principle as [4K or Full HD cameras](https://tools.techidaily.com/wondershare/filmora/download/)as they utilize a lens and a sensor to record images on the camera’s memory card. Currently, the size of the files 8K cameras produce is one of the major reasons why cinematographers are still reluctant to embrace them since 40 minutes of footage can take up to 2 terabytes of storage space.
 
 The images recorded with 8K cameras can be used for live broadcasts, in cinemas or they can be displayed on [8K television sets](https://tools.techidaily.com/wondershare/filmora/download/). Even so, 4K and Full HD videos are still the industry standard and it remains to be seen if 8K technology is going to change that.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which Aspects Should You Consider When Choosing an 8K Camera?
 
@@ -69,10 +77,6 @@ The rumors that Canon is working on its first 8K camera surfaced in early 2019, 
 
 ![Canon EOS 5DS R DSLR Camera ](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: Cannon
 
 This camera should be capable of recording **8K footage at 60 fps**, as well as 4K footage at 120 fps, but whether or not this will turn out to be true still remains to be seen. However, a number of Canon’s models are already equipped with **50MP** sensors that can capture still images in resolutions that go as high as **8712 x 5813** or record videos in 4K resolution at 60fps.
@@ -86,6 +90,10 @@ Even though Nikon is one of the leading camera manufacturers in the world, there
 At the moment the [Nikon D850](https://www.nikonusa.com/en/nikon-products/product/dslr-cameras/d850.html) is the closest to an 8K camera this manufacturer has to offer since this 47.5 MP camera can record time-lapses in 8K resolution, although only by combining the footage captured with two D850 models.
 
 ![Nikon D850 8K Timelapse Camera ](https://images.wondershare.com/filmora/article-images/nikon-d850-8k-time-lapse-camera.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Nikon
 
@@ -103,19 +111,11 @@ A few years ago, Sharp introduced 8C-B60A, the world’s first 8K camcorder and 
 
 It features two **AUDIO IN XLR type 3 pins** and one **MIC IN XLR type 5 pin**. The camcorder doesn’t have batteries and it is powered through a **130W 13V DC output AC/DC adapter XLR 4-pin**. The Sharp’s 8C-B60A 8K camcorder is undoubtedly one of the best 8K cameras you can buy in 2024, despite the hefty price tag.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Sony
 
 Professional cinematographers don’t need an introduction to Sony’s cameras, as the Japanese camera manufacturer has been at the forefront of the digital camera market for decades. Their [F65 CineAlta](https://pro.sony/ue%5FUS/products/digital-cinema-cameras/f65#SATD501220TheF65Cinealta-f65) was released in 2016, but it is still one of the best 8K cameras you can buy in 2024\. This speaks volumes about the F65’s capabilities, much like the fact that professional cinematographers have nothing but praise for this Sony’s camera model.
 
 ![Sony F65 CineAlta 8K Camera ](https://images.wondershare.com/filmora/article-images/sony-f65-cineAlta-8k-camera.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image resource: Sony
 
@@ -124,7 +124,7 @@ The **1-chip 20MP Super 35mm type** **24.7mm X 13.1mm** **CMOS sensor** enables 
 The camera has **14 stops of exposure latitude**, so if you are shooting RAW video files F65 will utilize the **S-Log3/S-Gamut3 gamma curve** to ensure accurate color depiction. In addition, this 8K camera can capture **275,000,000,000,000 color variations** even while you are shooting in full resolution at 60fps. Unsurprisingly, F65 CineAlta costs more than $60.000, but it is still a great investment for all professional filmmakers in need of a camera that can deliver great performances regardless of the available light.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Ikegami
@@ -133,21 +133,25 @@ Ikegami is a well-known manufacturer of professional broadcast cameras, so it co
 
 ![ikegami 8K Super Hi-Vision Camera System ](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: ikegami
 
 This broadcast camera has **a PL lens mount with a back-focus adjusting mechanism** that helps the camera operator to keep the image sharp even while recording rapidly moving figures and objects. The SHK-810’s output signal features are equally impressive since you can choose between **SHV Dual Green SDI Interface, 4K SMPTE 424M (3G-SDI) Level B and HD SMPTE 292M** options.
 
 In addition, you can choose between **2-channel x 4K and 4-channel HD** return signals or opt for **Tri-Level Sync** or **VBS** external sync signals. However, SHK-810 is bulky and heavy, as it weighs 9kg or 19.6 lbs without a viewfinder which makes it difficult to use without a tripod during events that last for several hours. Moreover, the camera is aimed at large television networks rather than filmmakers and cinematographers, and at the moment Ikegami doesn’t offer any 8K camera models that are designed for filmmaking purposes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Red
 
 The list of TV shows and movies shot on RED cameras is seemingly endless and it includes some of the best movies made over the last ten years. Models like [Monstro 8K VV](https://www.red.com/DSMC2-BRAIN?quantity=1?sensor=1), [Helium 8K S35](https://www.red.com/DSMC2-BRAIN?quantity=1&sensor=2) [Helium 8K S35 Monochrome](https://www.red.com/DSMC2-MONOCHROME-BRAIN?quantity=1&sensor=2) are all **modular DSMC2 cameras** that can be used with different types of lenses. Each of these 8K cameras has a **35.4 MP CMOS sensor**, however, the size of the sensor depends on the model. All RED’s 8K DSMC2 cameras can write data at **300 MB/s** and they have an incredibly high dynamic range that varies from **16.5+ to 17+ stops**, which enables them to capture a broad spectrum of colors.
 
 ![Red DSMC2 BRAIN](https://images.wondershare.com/filmora/article-images/red-dsmc2-brain-monstro-8k-w.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: red
 
@@ -166,10 +170,6 @@ Still don't know to choose which? Whatch this!
 In addition, Canon and Nikon only offer 50 MP cameras that can capture still images that have the same amount of pixels as 8K videos, but there are no indications that these manufacturers are going to release new models that can record 8K videos. Which 8K camera are you planning to get in 2024? Leave a comment and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -196,22 +196,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-interpreting-the-lack-of-communication-a-block-indicator/"><u>[New] 2024 Approved Interpreting the Lack of Communication A Block Indicator</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-charting-new-pathways-in-art-an-exclusive-look-at-the-top-10-low-cost-creator-platforms-on-youtube/"><u>[Updated] 2024 Approved Charting New Pathways in Art An Exclusive Look at the Top 10 Low-Cost Creator Platforms on YouTube</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-ultimate-instagram-hashtag-guide/"><u>[Updated] 2024 Approved The Ultimate Instagram Hashtag Guide</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-bandicam-mastery-your-essential-checklist-for-2024/"><u>[Updated] Bandicam Mastery – Your Essential Checklist for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-innovative-cloud-storage-solutions-mematic-app/"><u>[Updated] In 2024, Innovative Cloud Storage Solutions Mematic App</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-best-budget-conscious-laptop-tools-for-dvd-watchers/"><u>2024 Approved Best Budget-Conscious Laptop Tools for DVD Watchers</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/convert-word-documents-to-pdf-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Convert Word Documents to PDF on Windows - A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/effortless-video-calls-on-xbox-with-zoom-tips/"><u>Effortless Video Calls on Xbox with Zoom Tips</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/expert-tips-for-ipad-users-easily-convert-photos-to-pdf-for-2024/"><u>Expert Tips for iPad Users Easily Convert Photos to PDF for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-on-the-go-video-making-essentials/"><u>In 2024, On-The-Go Video Making Essentials</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-soulful-selection-candid-songs-that-perfectly-match-your-yes/"><u>In 2024, Soulful Selection Candid Songs that Perfectly Match Your 'Yes'</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-utilizing-b-roll-to-enrich-narrative-arcs/"><u>In 2024, Utilizing B-Roll to Enrich Narrative Arcs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/iphone-laughs-and-lightheartedness-for-2024/"><u>IPhone Laughs & Lightheartedness for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/is-max-360-superior-to-hero-11-in-video-quality-for-2024/"><u>Is Max 360 Superior to Hero 11 in Video Quality for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/pro-video-production-mastering-the-coordination-between-windows-photos-and-storyremix/"><u>Pro Video Production Mastering the Coordination Between Windows, Photos, and StoryRemix</u></a></li>
-<li><a href="https://techidaily.com/remove-the-lock-of-c51-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of C51</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-fixing-audio-issues-with-anthem-on-windows-10/"><u>Solved: Fixing Audio Issues with Anthem on Windows 10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-add-background-scores-via-premiere-pro/"><u>[New] Add Background Scores via Premiere Pro</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-ideal-choices-priority-6-fb-lite-vids-for-2024/"><u>[New] Ideal Choices Priority 6 FB Lite Vids for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-market-prowess-the-art-of-strategy-unpacked/"><u>[New] In 2024, Market Prowess The Art of Strategy Unpacked</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-the-world-of-asmr-videos-for-2024/"><u>[New] Navigating the World of ASMR Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-prime-focus-best-photo-viewing-win11-app-for-2024/"><u>[New] Prime Focus Best Photo Viewing Win11 App for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-extensive-review-the-360-degree-capture-of-samsung-for-2024/"><u>[Updated] Extensive Review The 360-Degree Capture of Samsung for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-how-to-embrace-tiktok-as-a-macbook-enthusiast/"><u>[Updated] In 2024, How to Embrace TikTok as a MacBook Enthusiast</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/ein-kompletter-leitfaden-zur-windows-11-installation-reparatur-und-behebung-von-problemen/"><u>Ein Kompletter Leitfaden Zur Windows-11-Installation, Reparatur Und Behebung Von Problemen</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/essential-guide-to-manipulating-time-with-phantom-for-2024/"><u>Essential Guide to Manipulating Time with Phantom for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-snap-spectacularly-with-top-10-sticker-enhancing-phone-apps/"><u>In 2024, Snap Spectacularly with Top 10 Sticker-Enhancing Phone Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/matters-crafting-engaging-video-titles-for-2024/"><u>Size Matters Crafting Engaging Video Titles for 2024</u></a></li>
 </ul></div>
 

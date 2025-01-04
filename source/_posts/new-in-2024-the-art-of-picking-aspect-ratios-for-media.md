@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Art of Picking Aspect Ratios for Media"
-date: 2024-12-18T16:31:32.146Z
-updated: 2024-12-26T00:38:19.307Z
+date: 2025-01-01T20:07:49.570Z
+updated: 2025-01-03T16:23:46.439Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ With that said, let's dive right into it!
 Aspect ratio is a digital image projection attribute describing the distance between the width and the height of an image. The dimensions are also defined as shapes such as a square which is 4:3\. A rectangle represents the 16:9 standard high definition aspect ratio, and inverted what you see on phones, that will be 9:16\. 9 refers to the width and 16 to the height.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Commonly used aspect ratios
@@ -42,28 +42,24 @@ Aspect ratio is a digital image projection attribute describing the distance bet
 There is no same aspect ratio that is used across all social media platforms. Depending on which social media platform you are planning to upload, you have to make sure you have the correct aspect ratio for your target audience. The optimal viewing experience is what matters.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 16:9 Widescreen
 
 This aspect ratio is recognized as the worldwide reference format for film, mobile devides, DSLR cameras, streaming platforms, social media platforms, and many more. It is known as landscape viewing which include 720p, 1080p HD and 4K resolution.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4:3 Standard
 
 This resolution is originally used in older television screens, which transformed into mobile use as this aspect ratio works really well for Instagram and Facebook videos, referring to the 9:16 phone resolution making a square video more pleasant to watch and to be featured in in-feed videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9:16 Vertical
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 21:9 Cinematic Widescreen
 
@@ -118,6 +114,10 @@ When talking about Instagram, which is very similar to Facebook, use these aspec
 9:16 for Instagram Live streams
 
 9:16 for IGTV
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### TikTok
 
@@ -175,24 +175,18 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-best-online-places-for-youtube-video-growth/"><u>[New] Best Online Places for YouTube Video Growth</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/rafting-the-quintessential-thumbnails-for-live-video-success/"><u>[New] Crafting the Quintessential Thumbnails for Live Video Success</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-best-practices-for-archiving-youtube-livestream-content/"><u>[Updated] 2024 Approved Best Practices for Archiving Youtube Livestream Content</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-fixed-youtube-shorts-lacking-in-sight-for-2024/"><u>[Updated] Fixed YouTube Shorts Lacking in Sight for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-dodge-digital-duplicates-to-increase-youtube-exposure/"><u>[Updated] In 2024, Dodge Digital Duplicates to Increase YouTube Exposure</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-picture-capture-unpacker/"><u>[Updated] Picture Capture Unpacker</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-exploring-imovie-trimming-the-crop-conundrum/"><u>2024 Approved Exploring iMovie Trimming The Crop Conundrum</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-feature-a-podcast-in-one-quick-snap/"><u>2024 Approved Feature a Podcast in One Quick Snap</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-funimate-video-downloader-review/"><u>2024 Approved Funimate Video Downloader Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-save-photo-from-video-in-windows-11-photos-app/"><u>2024 Approved How to Save Photo From Video in Windows 11 Photos App</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-melody-to-video-quick-sound-import-tricks/"><u>2024 Approved Melody to Video Quick Sound Import Tricks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-single-frame-solo-shot-extracting-visual-elements-from-windows-10-videos/"><u>2024 Approved Single Frame, Solo Shot Extracting Visual Elements From Windows 10 Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-art-of-intense-focus-5-techniques-for-zooming-in-minecraft/"><u>2024 Approved The Art of Intense Focus 5 Techniques for Zooming in Minecraft</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-video-for-bedtime-stories-elements-and-reviews/"><u>2024 Approved Video for Bedtime Stories Elements and Reviews</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/a-treasure-trove-guide-to-public-domain-images/"><u>A Treasure Trove Guide to Public Domain Images</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-realme-12-pro-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Realme 12 Pro 5G is off? | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/efficient-loading-tactics-for-faster-and-easier-loot-in-dayz-pvp/"><u>Efficient Loading Tactics for Faster & Easier Loot in DayZ PvP!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/explore-the-six-premier-online-marketplaces-for-high-quality-television-purchases/"><u>Explore the Six Premier Online Marketplaces for High-Quality Television Purchases</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-the-issue-of-an-unresponsive-aoc-monitor-on-windows-11/"><u>Troubleshooting Guide: Fixing the Issue of an Unresponsive AOC Monitor on Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-effortless-methods-to-swiftly-erase-signatures-for-2024/"><u>[New] Effortless Methods to Swiftly Erase Signatures for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-from-imagination-to-shares-mastering-metaverse-memes-for-2024/"><u>[New] From Imagination to Shares Mastering Metaverse Memes for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-charting-the-unknown-visual-facts-from-2017s-youtube-world/"><u>[New] In 2024, Charting the Unknown Visual Facts From 2017'S Youtube World</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-personalize-your-prayers-with-scripture-inspired-tunes-guide-for-2024/"><u>[New] Personalize Your Prayers with Scripture-Inspired Tunes Guide for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-premier-tools-best-mac-devices-for-capturing-videos/"><u>[New] Premier Tools Best Mac Devices for Capturing Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-cutting-edge-leading-10-4k-dslr-shoulder-rigs/"><u>[Updated] 2024 Approved Cutting Edge Leading 10 4K DSLR Shoulder Rigs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-an-experts-guide-to-accumulating-mass-tiktok-videos-effortlessly/"><u>[Updated] An Expert's Guide to Accumulating Mass TikTok Videos Effortlessly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-creating-auditory-immersion-with-canvas-soundscape-tools/"><u>[Updated] Creating Auditory Immersion with Canva's Soundscape Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-top-strategies-for-capturing-lol-matches/"><u>[Updated] In 2024, Top Strategies for Capturing LOL Matches</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/dive-into-the-past-with-your-camera-roll-and-snapchat-for-2024/"><u>Dive Into the Past with Your Camera Roll and Snapchat for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/setting-up-custom-power-management-on-your-pc-a-step-by-step-guide-with-windows-yl-tech-tips/"><u>Setting Up Custom Power Management on Your PC: A Step-by-Step Guide with Windows - YL Tech Tips</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-instructions-on-how-to-clear-all-information-from-your-iphone/"><u>Ultimate Instructions on How to Clear All Information From Your iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sh-your-potential-skyrocketing-youtube-audience/"><u>Unleash Your Potential Skyrocketing YouTube Audience</u></a></li>
 </ul></div>
 
