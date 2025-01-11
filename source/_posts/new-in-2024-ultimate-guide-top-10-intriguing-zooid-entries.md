@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Ultimate Guide  Top 10 Intriguing Zooid Entries\""
-date: 2024-12-29T02:51:00.426Z
-updated: 2025-01-04T04:58:21.515Z
+date: 2025-01-08T00:45:43.855Z
+updated: 2025-01-11T01:55:53.941Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,10 @@ There is no need to install any app on your computer or smartphone. You can crea
 
 The secret to creating amazing intro videos using Panzoid is its intro templates. You need to select an intro template and edit it as per your creativity. Therefore, you should have a healthy collection of great Panzoid templates. Here is the list of the top 10 best intro templates for Panzoid clip maker.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Free 2D Intro Template
 
 You can do amazing things with simple but effective animations. This intro template begins with an impactful opening animation. The template should be accompanied by cheerful background music. Besides, the background and the titles should have colorful shades.
@@ -83,10 +87,6 @@ There are several animations applied to the text. The dynamic background video e
 
 ![insane intro maker template](https://images.wondershare.com/filmora/article-images/2022/11/insane-intro-maker-template.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Vaporwave Intro Template V2
 
 We have already provided you with an Avengers template. If you have watched Thor: Love and Thunder, you must have noticed the intro video. If you want something similar, this is the template for you. You get similar text effect and background that complement each other.
@@ -96,7 +96,7 @@ The text has the retro gradient style which looks amazing. Your viewers are goin
 ![vaporwave intro template v2](https://images.wondershare.com/filmora/article-images/2022/11/vaporwave-intro-template-v2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. 2D Geometric Intro
@@ -123,10 +123,6 @@ The overall frame animation adds to the animation immensely. The background is d
 
 ![3d cool gold intro](https://images.wondershare.com/filmora/article-images/2022/11/3d-cool-gold-intro.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Free Storm Intro Template
 
 There are certain intro templates you must have in your collection. The lightning and storm effect is one of the most demanding intro templates. The overall effect is somewhat dark but that is what you expect in a stormy environment.
@@ -136,7 +132,7 @@ The characters of the titles have the stone texture in 3D mode. They have their 
 ![free storm intro template](https://images.wondershare.com/filmora/article-images/2022/11/free-storm-intro-template.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10\. Blue Intro
@@ -146,10 +142,6 @@ If you prefer an outer space dynamic background with titles floating, this is ex
 The title is in 3D texture. A graphical object in the shape of the planetary ring has been used for enhancing the effect. Along with those, there is the light dispersion and blurry effect that makes the text stand out.
 
 ![dynamic blue intro template](https://images.wondershare.com/filmora/article-images/2022/11/dynamic-blue-intro-template.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Alternative Way to Make Intro Video
 
@@ -173,13 +165,13 @@ Step3 From the timeline, double-click on the intro video template layer. Change 
 
 ![select text style intro video](https://images.wondershare.com/filmora/article-images/2022/11/select-text-style-intro-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Now, move to the Animation tab and double-click on any animation if you want to change the default animation in the template. Finally, click on the Ok button.
 
 ![use animation in intro videos](https://images.wondershare.com/filmora/article-images/2022/11/use-animation-in-intro-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs of Panzoid Intro
 
@@ -202,7 +194,7 @@ Yes, you can use Panzoid for creating intro videos for YouTube. Panzoid comes wi
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -222,10 +214,6 @@ Yes, you can use Panzoid for creating intro videos for YouTube. Panzoid comes wi
 
 * [Alternative Way to Make Intro Video](#part2)
 * [Related FAQs of Panzoid Intro](#part3)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. 10 Best Intro Templates of Panzoid
 
@@ -247,6 +235,10 @@ The animation is not just applicable to the title but also to its dynamic backgr
 
 ![free red intro template](https://images.wondershare.com/filmora/article-images/2022/11/free-red-intro-template.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Marvel Avengers Intro
 
 There is a super craze for Marvel Avengers intro videos among everyone. A similar but modified Marvel Avengers intro animation can do wonders. You will get overwhelming traction and appreciation for your video. This Marvel Avengers intro template gives you exactly what you desire.
@@ -254,10 +246,6 @@ There is a super craze for Marvel Avengers intro videos among everyone. A simila
 The intro animation video looks very similar to Marvel Avengers animation. However, there are lots of modifications that make the template unique. You can edit out the text part and insert any desired text. The intro is definitely eye-catching and attention-grabbing even though it is rather simple.
 
 ![marvel avengers intro template](https://images.wondershare.com/filmora/article-images/2022/11/marvel-avengers-intro-template.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Insane Intro
 
@@ -267,6 +255,10 @@ There are several animations applied to the text. The dynamic background video e
 
 ![insane intro maker template](https://images.wondershare.com/filmora/article-images/2022/11/insane-intro-maker-template.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Vaporwave Intro Template V2
 
 We have already provided you with an Avengers template. If you have watched Thor: Love and Thunder, you must have noticed the intro video. If you want something similar, this is the template for you. You get similar text effect and background that complement each other.
@@ -274,6 +266,10 @@ We have already provided you with an Avengers template. If you have watched Thor
 The text has the retro gradient style which looks amazing. Your viewers are going to appreciate the recreation of the Thor intro video. You can edit the text and add your slogan below the title. The intro video features a slow move forward effect along with a wave effect that comes out gracefully.
 
 ![vaporwave intro template v2](https://images.wondershare.com/filmora/article-images/2022/11/vaporwave-intro-template-v2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. 2D Geometric Intro
 
@@ -307,6 +303,10 @@ The characters of the titles have the stone texture in 3D mode. They have their 
 
 ![free storm intro template](https://images.wondershare.com/filmora/article-images/2022/11/free-storm-intro-template.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\. Blue Intro
 
 If you prefer an outer space dynamic background with titles floating, this is exactly the same. The title floats in outer space in slow motion. Thereafter, it creates an impactful transition from slow to sudden shock motion. All the while the background has shooting stars that adds to the overall animation.
@@ -314,10 +314,6 @@ If you prefer an outer space dynamic background with titles floating, this is ex
 The title is in 3D texture. A graphical object in the shape of the planetary ring has been used for enhancing the effect. Along with those, there is the light dispersion and blurry effect that makes the text stand out.
 
 ![dynamic blue intro template](https://images.wondershare.com/filmora/article-images/2022/11/dynamic-blue-intro-template.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Alternative Way to Make Intro Video
 
@@ -364,6 +360,10 @@ Yes, you can use Panzoid for creating intro videos for YouTube. Panzoid comes wi
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -389,19 +389,24 @@ Yes, you can use Panzoid for creating intro videos for YouTube. Panzoid comes wi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-embrace-digital-preservation-keeping-your-snaps-fresh-on-devices/"><u>[Updated] 2024 Approved Embrace Digital Preservation Keeping Your Snaps Fresh on Devices</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-crafting-an-impressive-executive-summary-for-stakeholder-engagement/"><u>[Updated] Crafting an Impressive Executive Summary for Stakeholder Engagement</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1-top-10-free-animation-maker-programs-including-2d-and-3d-options/"><u>1. Top 10 Free Animation Maker Programs (Including 2D & 3D Options)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/aperture-aces-top-picks-the-most-impressive-6-4k-dslrs/"><u>Aperture Aces' Top Picks The Most Impressive 6 4K DSLRs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-google-nest-wi-fi-assessment-rapid-and-flawless-network-coverage/"><u>Comprehensive Google Nest Wi-Fi Assessment: Rapid and Flawless Network Coverage</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/conquer-oversized-drafts-learn-to-edit-and-organize-tiktok-content-for-2024/"><u>Conquer Oversized Drafts Learn to Edit and Organize TikTok Content for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/crafting-audio-magic-a-windows-10-sound-journey-for-2024/"><u>Crafting Audio Magic A Windows 10 Sound Journey for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/demystifying-trillers-unique-approach-to-video-content-for-2024/"><u>Demystifying Triller's Unique Approach to Video Content for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/discover-vida-transform-your-video-creations/"><u>Discover Vida Transform Your Video Creations</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-honor-90-pro-by-drfone-android/"><u>Full Guide to Unlock Your Honor 90 Pro</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-future-of-sound-design-magix-music-makers-latest-upgrade/"><u>In 2024, The Future of Sound Design Magix Music Maker's Latest Upgrade</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/masterclass-in-media-magic-with-magix-video-pro-x-for-2024/"><u>Masterclass in Media Magic with Magix Video Pro X for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/score-big-on-prime-day-with-the-35-bundle-of-echo-pop-and-blink-doorbells-best-value-for-your-smart-home-according-to-zdnet/"><u>Score Big on Prime Day with the $35 Bundle of Echo Pop & Blink Doorbells – Best Value for Your Smart Home, According to ZDNet!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-make-your-device-sing-a-step-by-step-guide-to-personalized-ringtone-setup-on-android/"><u>[New] 2024 Approved Make Your Device Sing A Step-by-Step Guide to Personalized Ringtone Setup on Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-shockingly-simple-steps-for-suddenly-massive-video-views/"><u>[New] In 2024, Shockingly Simple Steps for Suddenly Massive Video Views</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unleashing-the-power-of-macos-subtitles-manipulation/"><u>[New] In 2024, Unleashing the Power of macOS Subtitles Manipulation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-photovisionharmony-synchronize-ios-plus-sierra-photos/"><u>[New] PhotovisionHarmony Synchronize iOS + Sierra Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-essential-tips-for-subtitling-stories-on-instagram/"><u>[New] The Essential Tips for Subtitling Stories on Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlocking-the-power-of-preview-a-complete-user-guide-for-mac/"><u>[New] Unlocking the Power of Preview A Complete User Guide for Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-ultimate-guide-to-stock-photo-memes-and-realities/"><u>[Updated] 2024 Approved The Ultimate Guide to Stock Photo Memes & Realities</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-archive-your-online-dialogues-essential-steps-for-fb-chat-recordings-for-2024/"><u>[Updated] Archive Your Online Dialogues Essential Steps for FB Chat Recordings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-sony-vegas-for-professional-youtube-video-creation/"><u>[Updated] In 2024, Navigating Sony Vegas for Professional YouTube Video Creation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-privacy-tip-remove-spotifys-auto-podcast-suggestions/"><u>[Updated] Privacy Tip Remove Spotify's Auto-Podcast Suggestions</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-v29-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock iPhone 13 Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-best-mkv-solvers-on-macos/"><u>In 2024, Best MKV Solvers on macOS</u></a></li>
+<li><a href="https://driver-error.techidaily.com/in-depth-analysis-and-fixes-for-failed-to-initialize-battleye-service-with-driver-error-1450/"><u>In Depth Analysis and Fixes for 'Failed to Initialize BattlEye Service' With Driver Error 1450</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/lightning-lingers-quick-and-fluid-gaming-choices-for-laptops/"><u>Lightning Lingers Quick & Fluid Gaming Choices for Laptops</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/syncing-social-statuses-seamless-insertion-of-linktree-into-tiktok-profiles/"><u>Syncing Social Statuses Seamless Insertion of Linktree Into TikTok Profiles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/thorough-summary-googles-podcast-platform-demystified/"><u>Thorough Summary Google's Podcast Platform Demystified</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-audio-enhancement-three-inexpensive-apple-techniques-for-films-for-2024/"><u>Unlocking Audio Enhancement Three Inexpensive Apple Techniques for Films for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/visual-storytelling-101-mastering-the-art-of-posting-images-on-youtube/"><u>Visual Storytelling 101 Mastering the Art of Posting Images on YouTube</u></a></li>
 </ul></div>
 

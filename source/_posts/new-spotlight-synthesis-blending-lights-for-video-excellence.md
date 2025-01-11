@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Spotlight Synthesis  Blending Lights for Video Excellence\""
-date: 2024-08-08T06:55:21.373Z
-updated: 2024-08-09T06:55:21.373Z
+date: 2025-01-05T23:40:11.720Z
+updated: 2025-01-10T18:21:41.733Z
 tags: 
   - screen-recording
   - ai video
@@ -46,28 +46,23 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ##### Step1 Set the Key Light
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -83,33 +78,39 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -143,4 +144,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-20plus-fresh-collages-elevate-your-environment/"><u>[New] 2024 Approved 20+ Fresh Collages Elevate Your Environment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-cam-clash-sj6-legend-versus-yi-4k-visionary-for-2024/"><u>[New] Cam Clash SJ6 Legend Versus Yi 4K Visionary for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-elevate-your-ps5-and-xbox-experience-with-top-tvs/"><u>[New] In 2024, Elevate Your PS5 and Xbox Experience with Top TVs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-step-up-your-file-game-compiling-top-20-free-spacious-cloud-storage-solutions/"><u>[New] In 2024, Step Up Your File Game Compiling Top 20 Free, Spacious Cloud Storage Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-importance-of-diversity-and-inclusion-in-market-research-samples/"><u>[New] In 2024, The Importance of Diversity & Inclusion in Market Research Samples</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-cricket-ultimate-guide-to-live-streaming-selection/"><u>[New] Top Cricket Ultimate Guide to Live Streaming Selection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-ultimate-guide-to-excellent-monitors-for-photo-professionals/"><u>[Updated] 2024 Approved The Ultimate Guide to Excellent Monitors for Photo Professionals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-top-8-4k-playback-powerhouses-unveiled/"><u>[Updated] 2024 Approved Top 8 4K Playback Powerhouses Unveiled</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-analyzing-livestream-giants-twitch-vs-youtube-breakdown/"><u>[Updated] Analyzing Livestream Giants Twitch Vs YouTube Breakdown</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-eradicating-flutter-phenomenon-from-drones-footage-for-2024/"><u>[Updated] Eradicating Flutter Phenomenon From Drones' Footage for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-decoding-youtubes-economics-how-to-quantify-watches-and-earnings/"><u>[Updated] In 2024, Decoding YouTube's Economics How to Quantify Watches and Earnings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-speed-watchers-24-hrs-youtube-chart-leaders/"><u>[Updated] Speed Watchers 24-Hrs YouTube Chart Leaders</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-itel-a05s-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-realme-10t-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Realme 10T 5G PC | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/learn-ai-at-your-own-pace-with-these-15-top-free-online-classes-curated-for-optimal-knowledge-acquisition/"><u>Learn AI at Your Own Pace with These 15 Top Free Online Classes Curated for Optimal Knowledge Acquisition</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolved-post-windows-10-upgrade-audio-issues-quick-fixes/"><u>Resolved: Post-Windows 10 Upgrade Audio Issues – Quick Fixes</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/xbox-one-hddssd/"><u>Xbox One HDD/SSD取り換え手順：改めて紹介！</u></a></li>
+</ul></div>
 

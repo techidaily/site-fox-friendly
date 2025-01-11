@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Luminous Techniques  Crafting Captivating Cinematic Pieces\""
-date: 2024-12-28T05:31:28.802Z
-updated: 2025-01-03T19:23:55.702Z
+date: 2025-01-06T02:55:52.393Z
+updated: 2025-01-11T04:45:06.756Z
 tags: 
   - screen-recording
   - ai video
@@ -26,10 +26,6 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -57,6 +53,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -78,23 +78,19 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After setting up all the lighting above, you can take a look at the comparison below:
@@ -108,7 +104,7 @@ After setting up all the lighting above, you can take a look at the comparison b
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **_3) Pro Tips: The light setting_**
@@ -116,6 +112,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -151,18 +151,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-ultimate-hd-screensnap-equipment-for-2024/"><u>[New] Ultimate HD Screensnap Equipment for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-affordable-wireless-charging-pads-for-modern-phones-for-2024/"><u>[Updated] Affordable Wireless Charging Pads for Modern Phones for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-humorous-highlights-create-with-kapwing-meme-maker/"><u>[Updated] Humorous Highlights Create with Kapwing Meme Maker</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-comprehensive-guide-to-crafting-an-authentic-online-persona-on-facebook/"><u>[Updated] In 2024, The Comprehensive Guide to Crafting an Authentic Online Persona on Facebook</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/beginners-ultimate-gear-list-for-film-shooting/"><u>Beginner's Ultimate Gear List for Film Shooting</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/benqs-visionary-approach-to-4k-monitors-unraveled-by-the-bl2711u-review-for-2024/"><u>BenQ's Visionary Approach to 4K Monitors, Unraveled by the BL2711U Review for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/champions-of-cutting-edge-vr-creation-for-2024/"><u>Champions of Cutting-Edge VR Creation for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/color-perfection-interface-for-2024/"><u>Color Perfection Interface for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/concealed-viewers-guide-to-instagram-live-broadcasting-without-attention/"><u>Concealed Viewers' Guide to Instagram Live Broadcasting Without Attention</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-translate-videos-and-subtitles-with-veedio/"><u>New In 2024, Translate Videos and Subtitles with Veed.io</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/secure-your-iphone-photos-on-windows-systems-a-comprehensive-guide-for-windows-11-10-8-and/"><u>Secure Your iPhone Photos on Windows Systems: A Comprehensive Guide for Windows 11, 10, 8 &</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solving-the-network-not-registered-issue-on-your-samsung-device/"><u>Solving the 'Network Not Registered' Issue on Your Samsung Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-voices-vanished-a-linguistic-quest-through-time/"><u>Viking Voices Vanished: A Linguistic Quest Through Time</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-bridging-the-gap-between-human-perception-and-photographic-capture/"><u>[New] 2024 Approved Bridging the Gap Between Human Perception and Photographic Capture</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-cutting-edge-free-livestream-platforms-and-programs-reviewed-here/"><u>[New] In 2024, Cutting-Edge Free Livestream Platforms and Programs Reviewed Here</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-filmmakers-guide-to-the-top-10-essential-camera-brands/"><u>[Updated] Filmmaker's Guide to the Top 10 Essential Camera Brands</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-resonating-with-your-device-a-comprehensive-guide-for-customizing-auditory-experience-on-android/"><u>[Updated] In 2024, Resonating With Your Device A Comprehensive Guide for Customizing Auditory Experience on Android</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-social-media-synergy-connecting-twitch-streams-with-fb/"><u>[Updated] In 2024, Social Media Synergy Connecting Twitch Streams with FB</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-swiftly-restoring-eliminated-reddit-content/"><u>[Updated] In 2024, Swiftly Restoring Eliminated Reddit Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-instant-access-to-12-high-quality-livestreams/"><u>[Updated] Instant Access to 12 High-Quality Livestreams</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-what-is-virtual-reality-video-for-2024/"><u>[Updated] What Is Virtual Reality Video for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-most-effective-ways-to-log-youtube-live-events/"><u>2024 Approved Most Effective Ways to Log YouTube Live Events</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comprehensive-fixes-overcoming-pc-compatibility-issues-with-windows-11/"><u>Comprehensive Fixes: Overcoming PC Compatibility Issues with Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-enhancing-video-engagement-with-correctly-uploaded-srt-files/"><u>In 2024, Enhancing Video Engagement with Correctly Uploaded SRT Files</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/olo-creators-path-to-dynamic-animation-art-for-2024/"><u>The Solo Creator’s Path to Dynamic Animation Art for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-inflatable-spas-indulge-in-luxury-comforts-techspot/"><u>Top-Rated Inflatable Spas : Indulge in Luxury Comforts | TechSpot</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshoot-and-fix-your-csgo-account-a-guide-to-resolving-logon-errors/"><u>Troubleshoot and Fix Your CSGO Account: A Guide to Resolving Logon Errors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-eliminating-black-frames-and-boxing-from-videos/"><u>Ultimate Guide: Eliminating Black Frames and Boxing From Videos</u></a></li>
 </ul></div>
 

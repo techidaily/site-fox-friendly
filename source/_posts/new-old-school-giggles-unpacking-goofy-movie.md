@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Old School Giggles  Unpacking 'Goofy Movie'\""
-date: 2025-01-01T02:30:08.997Z
-updated: 2025-01-03T23:53:34.901Z
+date: 2025-01-08T22:12:44.920Z
+updated: 2025-01-10T16:28:22.716Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ This movie was an adventure that resonated with many kids of that era. Moreover,
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Reviewing The Goofy Movie 1995
 
 The Goofy Movie is a heartwarming film about the father-son bond. When Max gets into trouble due to a school prank, his dad, Goofy, decides to take him on a trip. However, Max faces a dilemma as he has to miss his first date with Roxanne, the girl he likes. Max lies to Roxanne to avoid disappointment, claiming that he and his father are going to a concert instead.
@@ -45,20 +49,12 @@ Simply add video effects on Video with [Filmora Video Effect Editor](https://too
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How Was VHS Technology Used in Old Movies?
@@ -138,7 +134,7 @@ After finishing your editing, click on the Export button and export your video w
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -154,11 +150,7 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How Was VHS Technology Used in Old Movies?
@@ -189,6 +181,10 @@ As the VHS market grew, movie distributors released special editions and collect
 
 Such tapes became a valuable resource for film education and study. Film schools, universities, and film enthusiasts would compile these tapes for research purposes. It allows students and researchers to study and analyze films at their own pace. Similarly, it provided a medium for referencing and studying specific scenes or films in detail.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Wondershare Filmora: The New Age VHS Technology Video Editor
 
 [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/), like always, is a solution to your editing problems. If you want to create a Goofy movie VHS 2000 effect, you can with this tool. It allows you to apply already available presets in the library. However, if you want to go creative, Wondershare Filmora has a solution for you. You can create your own preset using Wondershare Filmora and much more.
@@ -199,6 +195,10 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you don't feel like applying in-built overlays from the 100+ collection of [VHS video effects](https://tools.techidaily.com/wondershare/filmora/download/), then don't because you can create your own. In this portion, you will learn how a movie, like VHS preset, can be created using this tool. These steps will properly explain to you step by step how to create a VHS look effect.
@@ -208,6 +208,10 @@ If you don't feel like applying in-built overlays from the 100+ collection of [V
 Launch Wondershare Filmora and open the “Stock Media” tab. Locate “Solid Colors” in the “Filmstock” section and drag the black image onto your project timeline. Adjust its duration as needed, and then open the "Effects" tab and type "VHS" in the search box. Choose the "VHS Distortion Bad" effect and drag it onto the timeline. Set the alpha value to 25 and press "OK." Proceed next to open the "Effects" tab and select the "VHS Distortion" effect. Place it on the previous layer and adjust its value to 35.
 
 ![add distortion effect and adjust](https://images.wondershare.com/filmora/article-images/2023/add-distortion-effect-and-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 2Add the VHS Rewind and Glitch Effect
 
@@ -232,10 +236,6 @@ Proceed to drag and drop the "Glitch Distortion" effect and place it over the pr
 After finishing your editing, click on the Export button and export your video with the VHS effect to your desired format. By following these steps in Wondershare Filmora, you can easily add **an extreme Goofy movie VHS effect** to your video.
 
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -265,18 +265,21 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-avoiding-disclosure-in-digital-footage/"><u>[New] 2024 Approved Avoiding Disclosure in Digital Footage</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-game-changers-gear-essentials-every-business-needs-to-stay-ahead-of-the-curve/"><u>[New] 2024 Approved Game Changers Gear Essentials Every Business Needs to Stay Ahead of the Curve</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-audio-pioneers-the-power-of-crossfading-for-2024/"><u>[Updated] Audio Pioneers The Power of Crossfading for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-get-real-with-your-logitech-webcam-recording-for-2024/"><u>[Updated] Get Real with Your Logitech Webcam Recording for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-expert-advice-finding-pristine-photo-collections/"><u>[Updated] In 2024, Expert Advice Finding Pristine Photo Collections</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-ranking-10-best-iphoneandroid-apps-for-video-enthusiasts-for-2024/"><u>[Updated] Ranking 10 Best iPhone/Android Apps for Video Enthusiasts for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/effortless-epub-creation-transform-your-azw3-files-and-eliminate-drm/"><u>Effortless ePub Creation: Transform Your AZW3 Files & Eliminate DRM</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Oppo A2 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/how-to-use-zoom-on-xbox-one/"><u>How to Use Zoom on Xbox One</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-evaluating-cost-effectiveness-in-youtube-promotions/"><u>In 2024, Evaluating Cost Effectiveness in YouTube Promotions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-how-to-elevate-your-iphone-photography-dive-into-hdr/"><u>In 2024, How to Elevate Your iPhone Photography Dive Into HDR</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/recover-lost-data-effortlessly-top-10-tips-for-restoring-deleted-files-on-windows-11-without-costs/"><u>Recover Lost Data Effortlessly: Top 10 Tips for Restoring Deleted Files on Windows 11 without Costs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-future-of-gaming-at-your-fingertips-top-10-vr-headsets-for-pc/"><u>The Future of Gaming at Your Fingertips Top 10 VR Headsets for PC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-real-time-vs-recorded-entertainment-twitch-vs-youtube-analysis/"><u>[New] 2024 Approved Real-Time vs Recorded Entertainment Twitch vs YouTube Analysis</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-rhythm-reconstructor-bundle/"><u>[New] 2024 Approved Rhythm Reconstructor Bundle</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-cutting-edge-methods-for-capturing-audio-in-audacity/"><u>[New] Cutting-Edge Methods for Capturing Audio in Audacity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-adventure-videography-supplies-for-travelers/"><u>[New] In 2024, Adventure Videography Supplies for Travelers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ideal-obs-preset-for-economical-machines/"><u>[New] In 2024, Ideal OBS Preset for Economical Machines</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ultimate-guide-top-8-tripods-for-4k-video-enthusiasts/"><u>[New] Ultimate Guide Top 8 Tripods for 4K Video Enthusiasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-intro-magic-crafting-irresistible-podcast-openers/"><u>[Updated] In 2024, Intro Magic Crafting Irresistible Podcast Openers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-windows-11-audio-recording-techniques/"><u>[Updated] In 2024, Windows 11 Audio Recording Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-13t-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi 13T Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ideal-digital-talk-initiator/"><u>In 2024, Ideal Digital Talk Initiator</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-perfect-instruction-manual-for-wm6/"><u>In 2024, Perfect Instruction Manual for WM6</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-photographers-guide-to-negative-imaging-for-2024/"><u>The Photographer’s Guide to Negative Imaging for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/understanding-the-upsides-and-downsides-of-implementing-webex-in-your-business-communication-strategy/"><u>Understanding the Upsides and Downsides of Implementing WebEx in Your Business Communication Strategy</u></a></li>
+<li><a href="https://fox-place.techidaily.com/why-does-my-laptops-battery-life-decrease-so-fast-discover-solutions-with-yl-computing-and-yl-software/"><u>Why Does My Laptop's Battery Life Decrease So Fast? Discover Solutions with YL Computing and YL Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-path-to-youtube-studio-the-editors-command-center-for-2024/"><u>Your Path to YouTube Studio The Editor's Command Center for 2024</u></a></li>
 </ul></div>
 
