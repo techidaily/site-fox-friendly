@@ -1,7 +1,7 @@
 ---
 title: "\"Photoshop Curves Decoded  A Beginner's Guide for 2024\""
-date: 2024-08-08T06:52:34.295Z
-updated: 2024-08-09T06:52:34.295Z
+date: 2025-01-09T19:57:09.113Z
+updated: 2025-01-16T19:52:05.196Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 
 ![curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/curve-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -43,48 +40,53 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -118,4 +120,23 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-dell-p2715q-review-a-glimpse-into-ultra-hd-technology/"><u>[New] 2024 Approved Dell P2715Q Review A Glimpse Into Ultra HD Technology</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-top-gratis-graphic-shops-where-quality-matters-most-for-2024/"><u>[New] Discover Top Gratis Graphic Shops Where Quality Matters Most for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-best-in-class-steadicam-equipment-for-drone-cinematography/"><u>[New] In 2024, Best-in-Class Steadicam Equipment for Drone Cinematography</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-explore-top-affordable-online-resources-your-dream-toolkit-for-visual-filmmaking/"><u>[New] In 2024, Explore Top Affordable Online Resources - Your Dream Toolkit for Visual Filmmaking</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-shaping-tomorrow-celebrating-the-top-6-in-nft-artistry/"><u>[Updated] 2024 Approved Shaping Tomorrow Celebrating the Top 6 in NFT Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-bridging-the-gap-with-magix-music-maker-for-beginners/"><u>[Updated] In 2024, Bridging the Gap with Magix Music Maker for Beginners</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-revolutionizing-voice-capture-a-compreenas-guide-to-facetime-recording-for-2024/"><u>[Updated] Revolutionizing Voice Capture A Compreenas Guide to FaceTime Recording for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-optimizing-board-use-on-zoom-desktopiosandroid-techniques/"><u>2024 Approved Optimizing Board Use on Zoom - Desktop/iOS/Android Techniques</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photographic-precision-the-ultimate-list-of-photo-framing-software/"><u>2024 Approved Photographic Precision The Ultimate List of Photo Framing Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-up-your-film-game-on-instagram-with-border-tips/"><u>2024 Approved Step up Your Film Game on Instagram with Border Tips</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-guide-on-apples-new-studio-display-core-specs-and-advanced-features-explored-tech-news-today/"><u>Comprehensive Guide on Apple's New Studio Display: Core Specs & Advanced Features Explored | Tech News Today</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/effortless-exploration-made-simple-best-7-fare-free-ai-tools-and-chatgpt-integrations-for-fast-travel-itinerary-prep/"><u>Effortless Exploration Made Simple: Best 7 Fare-Free AI Tools and ChatGPT Integrations for Fast Travel Itinerary Prep</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-default-public-tags-everyone/"><u>How To Turn Off Default Public Tags (@Everyone)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-screen-savvy-starting-point-deciphering-display-standards/"><u>In 2024, Screen-Savvy Starting Point Deciphering Display Standards</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/reel-into-reality-how-boomers-keep-ig-audiene-hooked/"><u>Reel Into Reality How Boomers Keep IG Audiene Hooked</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/strategic-sharing-spoken-engagement-for-youtube-viewers/"><u>Strategic Sharing Spoken Engagement for YouTube Viewers</u></a></li>
+</ul></div>
 

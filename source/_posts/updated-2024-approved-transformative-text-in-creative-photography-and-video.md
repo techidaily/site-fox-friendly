@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transformative Text in Creative Photography & Video\""
-date: 2025-01-09T00:50:27.454Z
-updated: 2025-01-10T18:43:35.387Z
+date: 2025-01-11T18:04:07.497Z
+updated: 2025-01-16T17:22:28.769Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,10 @@ Start Photoshop, and then click on the File menu. Select the New option and set 
 
 ![text distortion in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2\
 
 Click the Window menu to open the Layers panel and click Layers.
@@ -74,6 +78,10 @@ Click on the New Layer icon that resembles a bent-corner sticky note.
 ### Step 4\
 
 Click on the T icon located in the Tools panel. You can also click on the Window and select Tools if you don't see the Tools panel. After opening the Type toolbar, choose the text size, color, and font you'll use for the distorted text. Now, click the canvas, and then type the text you want to distort. The text appears in a non-distorted format when you type.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 5\
 
@@ -90,6 +98,10 @@ Be sure to pull it in different directions and check how the text will become fu
 ### Step 7\
 
 Now, click another corner and drag towards the center to make the text look like it's slightly squished.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 8\
 
@@ -279,10 +291,6 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 You can also distort text with online tools. You need an internet connection and your PC or mobile device to use these platforms. Here are some of the popular online text distorters you'll find online.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. PicMonkey
 
 This online tool provides photo editing and graphic design tools, and you can use it to distort the text in your photo. PicMonkey.com allows you to put your words into arcs and circles to create typography art. You can also add drop shadow, and knockout, to outline the center of the distorted text. The handles on both sides of the text box allow you to resize the diameter of the circled text or scrunch up or stretch out your arched text. Additionally, you can add spaces between the letters and play with the kerning of the text.
@@ -303,19 +311,15 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. GFTO
 
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Wavy Text Generator
 
@@ -353,10 +357,6 @@ The bottom line is: Distorting text in Photoshop is a simple process that requir
 
 With that in mind, let's look at how you can apply text distortion in photography using Photoshop.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1\
 
 Start Photoshop, and then click on the File menu. Select the New option and set parameters for your document, according to the space the text is going to occupy in its intended medium. In the Name field, type a name. You can also decide to leave the Photoshop default.
@@ -370,10 +370,6 @@ Click the Window menu to open the Layers panel and click Layers.
 ### Step 3\
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 4\
 
@@ -399,13 +395,13 @@ Now, click another corner and drag towards the center to make the text look like
 
 Take one of the middleboxes and pull and drug them on either the bottom or top to make the text wider.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 9\
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 10\
 
@@ -459,11 +455,19 @@ Many graphic designers use this tool to create distorted text on badges, labels,
 
 ![online text distorter - MockoFun](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Zalgo
 
 Zalgo Text Generator is an online tool that allows you to create glitch text. The Zalgo text will be a glitchy form of usual text. Zalgo.org is also free to use this online text distorter.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. GFTO
 
@@ -471,19 +475,11 @@ EnGFTO.com is an online text distorter that allows you to choose the text size a
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Wavy Text Generator
 
 This tool allows you to distort text by adding a wavy effect to it. To use this tool, you only have to head to nhttp://www.coding-dude.com/wp/wavy-text-generator/ and type your text in the field, then this text distorter will generate a preview showing the results of how your text will look like. The pink button allows you to copy your text's HTML/CSS code.
 
 ![online text distorter - Wavy Text Generator](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-13.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -502,7 +498,7 @@ Over the past few years, distortion effects have become popular. People also app
 03 [How to Distort Text in Video?](#part3)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Text Distortion?
@@ -561,9 +557,17 @@ Take one of the middleboxes and pull and drug them on either the bottom or top t
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 10\
 
 Select the File menu and click Save As. Photoshop will automatically have "PSD" displayed in the Format box, which allows you to save your file as a proprietary Photoshop PSD. Make sure you leave this extension, as it lets you re-access the design layers and perform more text distortions in the future. Now, click on Save.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 11\
 
@@ -594,10 +598,6 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 ![how to distort text in video with canva](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-10.png)
 
 1. You can download your video with text distortion or share it on your social media platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus! Free Online Text Distorter
 
@@ -663,22 +663,21 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-gopro-hero-5-black-vs-nikon-keymission-170-which-one-is-better/"><u>[New] 2024 Approved GoPro Hero 5 Black vs Nikon Keymission 170 Which One Is Better?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-diving-deep-essential-pro-tips-for-underwater-gopro-footage/"><u>[New] Diving Deep Essential Pro Tips for Underwater GoPro Footage</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player-for-2024/"><u>[New] The New Face of Sony Updates to S6500 Blu-Ray/HD Player for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/1716069141875-updated-2024-approved-essential-game-picks-ghost-of-tsushima-rival-edition/"><u>[Updated] 2024 Approved Essential Game Picks Ghost of Tsushima Rival Edition!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-moto-z2-unpacked-a-smartphones-triumph/"><u>[Updated] 2024 Approved Moto Z2 Unpacked A Smartphone's Triumph</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-photographys-new-frontier-illustration-and-motion-blurring-techniques/"><u>[Updated] 2024 Approved Photography's New Frontier Illustration and Motion Blurring Techniques</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-creating-a-space-for-feedback-talking-with-your-viewers/"><u>[Updated] Creating a Space for Feedback Talking with Your Viewers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-envisioning-with-vr-technology/"><u>[Updated] Envisioning with VR Technology</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-essential-ae-plugin-selection-for-superior-results/"><u>[Updated] In 2024, Essential AE Plugin Selection for Superior Results</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-picture-to-motion-transformation-with-music-elements/"><u>[Updated] In 2024, Picture-to-Motion Transformation with Music Elements</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-critical-errors-in-cult-of-the-lamb-for-smooth-gaming-on-your-computer/"><u>Fixing Critical Errors in Cult of the Lamb for Smooth Gaming on Your Computer</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-journey-to-cohesion-expert-tips-for-using-inshots-transition-tools/"><u>In 2024, Journey to Cohesion Expert Tips for Using Inshot's Transition Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-pubg-effective-techniques-for-altering-your-vocal-presence-for-2024/"><u>Mastering PUBG Effective Techniques for Altering Your Vocal Presence for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/motion-analysis-report-2023/"><u>Motion Analysis Report 2023</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-art-of-package-revelation-amplifying-initial-impressions/"><u>The Art of Package Revelation Amplifying Initial Impressions</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-malfunctioning-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify malfunctioning drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-elevate-your-live-stream-quality-the-art-of-using-dslr-on-computers/"><u>[New] In 2024, Elevate Your Live Stream Quality The Art of Using DSLR on Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-vocal-variety-ventures-in-free-fire-play/"><u>[New] In 2024, Vocal Variety Ventures in Free Fire Play</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-a-comprehensive-review-of-the-lightroom-app-on-android/"><u>[Updated] 2024 Approved A Comprehensive Review of the Lightroom App on Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-achieving-memetic-mastery-top-9-techniques-to-create-engaging-gifs-for-2024/"><u>[Updated] Achieving Memetic Mastery Top 9 Techniques to Create Engaging GIFs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dominating-the-youtube-sphere-key-strategies-for-top-tier-presence/"><u>[Updated] In 2024, Dominating the YouTube Sphere Key Strategies for Top-Tier Presence</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pixelpioneer-8-version-visual-conjurer/"><u>[Updated] In 2024, PixelPioneer 8-Version Visual Conjurer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-opt-out-of-autoplayed-podcast-selection-by-spotify/"><u>[Updated] Opt-Out of Autoplayed Podcast Selection by Spotify</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-resolved-managing-delayed-service-response-overcoming-error-1053/"><u>Error Resolved: Managing Delayed Service Response, Overcoming Error 1053</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-from-iphone-12ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock from iPhone 12/iPad/iPod</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-engaging-content-creation-videography-tips-in-education/"><u>In 2024, Engaging Content Creation Videography Tips in Education</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-realme-11-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Realme 11 5G?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-ultimate-playbook-speaking-with-flair-on-slides/"><u>In 2024, The Ultimate Playbook Speaking with Flair on Slides</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-analysis-leading-tv-streaming-providers-for-2024/"><u>In-Depth Analysis Leading TV Streaming Providers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/merging-and-editing-footage-on-iphone-for-2024/"><u>Merging and Editing Footage on iPhone for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/obs-or-wirecast-your-ultimate-guide-to-broadcast-software/"><u>OBS or Wirecast? Your Ultimate Guide to Broadcast Software</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208459667-treatment-options-may-include-surgery-radiation-therapy-chemotherapy-targeted-therapy-or-a-combination-of-these-modalities/"><u>Treatment Options May Include Surgery, Radiation Therapy, Chemotherapy, Targeted Therapy, or a Combination of These Modalities</u></a></li>
 </ul></div>
 

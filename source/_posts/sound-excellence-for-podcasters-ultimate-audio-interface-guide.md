@@ -1,7 +1,7 @@
 ---
 title: "\"Sound Excellence for Podcasters  Ultimate Audio Interface Guide\""
-date: 2025-01-04T21:59:43.438Z
-updated: 2025-01-10T19:28:01.182Z
+date: 2025-01-14T16:47:49.568Z
+updated: 2025-01-16T16:08:58.233Z
 tags: 
   - screen-recording
   - ai video
@@ -27,17 +27,9 @@ But what is an audio interface, and how does it work? In this article, we’ll t
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. What are audio interfaces for podcasting?
 
 ![audio interfaces](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Audio interfaces are unnecessary, complicated gadgets for some people. Others see them as an essential piece of gear to enhance the music experience.
 
@@ -119,6 +111,10 @@ You can’t do this without an audio interface. Or, If you plan on making music 
 
 Listening to someone speaking over the phone while trying to talk to them in person, their voice may sound garbled. Because noise surrounds the person’s mouth, creating a distortion in their voice that makes it impossible to decipher who is saying what.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Which parameters determine “better audio quality”?
 
 A microphone records sound waves, and digitization processes the sound waves and converts them into digital data called parameters. The main parameters include
@@ -139,10 +135,6 @@ The lowest bit depth you should use for professional recordings is 16-bit, but m
 
 ![bit depth](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5\. Which audio interface should you get for podcasts?
 
 If you’re looking for an audio interface for podcasting, you’re in luck—many options are available. Which is best for your needs and budget, from USB interfaces to standalone Bluetooth audio systems? Here are some of the most popular options in the industry right now.
@@ -150,6 +142,10 @@ If you’re looking for an audio interface for podcasting, you’re in luck—ma
 ### [Focusrite Scarlett 2i2](https://store.focusrite.com/en-gb/product/scarlett-2i2-3rd-gen/MOSC0025?%5Fgl=1%2A15hgfah%2A%5Fga%2AMTg0Mzg2ODMwMC4xNjY2NTM4OTU0%2A%5Fga%5F1S9T2JGT6Z%2AMTY2NjYyNDA2My4yLjEuMTY2NjYyNDA3NC4wLjAuMA..)
 
 ![focusrite scarlett 2i2](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Focusrite Scarlett 2i2 Studio recording bundle gives you a great recording experience with all the essentials. It’s packed with powerful upgrades, including two upgraded Scarlett mic preamps and high-performance AD/DA converters. The Scarlett 2i2 also offers preamp emulation named ‘Air’ for a clearer, open and brighter sound. That makes this interface a perfect choice for small project studios.
 
@@ -198,6 +194,10 @@ The unit’s solid preamps, agreeable price, and amazing recording quality point
 
 Most people aren’t aware that so much more equipment is required to put on a podcast than simply a microphone. Whether audio-recording software or a mixing board, many pieces of equipment are necessary to produce quality audio and video content. Here are the most important equipment needed to create a good podcast.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Microphone and Stand
 
 ![microphone and stand](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-7.jpg)
@@ -223,6 +223,10 @@ Headphones are required if you want to listen to podcasts during your commute. A
 ![sound-card](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-10.jpg)
 
 Sound cards are vital tools in podcast production. They offer two key features: quality audio and plug-and-play compatibility. A good sound card will have some form of digital audio output, such as optical or USB, allowing your sound card to feed recorded audio to any device, regardless of brand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Recording and editing software
 
@@ -255,7 +259,7 @@ This feature is designed to monitor silent pauses in video files and automatical
 ![silence detection beta](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-14.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Screen Recording**
@@ -288,15 +292,7 @@ If you want your music or podcast video to come alive, you must check out the au
 
 ![audio visualizer effects](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Considering all the above audio features offered by Filmora for podcasting, it is the best editing software in the current market. If you are interested in podcasting, Filmora provides you with all you need to make and record podcasts at an affordable price. So why not give it a try?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -355,10 +351,6 @@ For example, 44100 (44.1kHz) samples per second are considered good quality.
 
 ![sample rate](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Bit Depth**
 
 Bit depth controls the dynamic range of the recording and measures how many bits of information can be recorded for each sample.
@@ -366,10 +358,6 @@ Bit depth controls the dynamic range of the recording and measures how many bits
 The lowest bit depth you should use for professional recordings is 16-bit, but many digital audio recorders offer up to 32-bit floating settings with a higher dynamic range.
 
 ![bit depth](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5\. Which audio interface should you get for podcasts?
 
@@ -392,6 +380,10 @@ The Focusrite Scarlett 2i2 Studio recording bundle gives you a great recording e
 ### PreSonus AudioBox USB 96
 
 ![presonus audiobox usb 96](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you want to add a USB audio interface to your studio, check out the AudioBox USB 96\. With a two-front panel mic input and great performance, this microphone is a great fit for singers, podcasters, and guitar-bass collaborations.
 
@@ -422,10 +414,6 @@ The unit’s solid preamps, agreeable price, and amazing recording quality point
 * Mic Air Mode
 * Bus Powered
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 6\. Additional essential podcasting equipment for a podcast show
 
 Most people aren’t aware that so much more equipment is required to put on a podcast than simply a microphone. Whether audio-recording software or a mixing board, many pieces of equipment are necessary to produce quality audio and video content. Here are the most important equipment needed to create a good podcast.
@@ -438,6 +426,10 @@ One of the first things you need to get started podcasting is a good microphone,
 
 The microphone stand is also one of the essential pieces of audio equipment, as it is used to hold the mic in an optimal position to ensure that the sound quality is at its best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mixer
 
 ![mixer](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-8.jpg)
@@ -447,6 +439,10 @@ The mixer is the most important piece of equipment for a podcast because it is u
 ### Headphones
 
 ![headphones](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Headphones are required if you want to listen to podcasts during your commute. And the best ones for you depend on what kind of audio quality you prefer. A good pair of headphones will last you a long time. They are either wired or wireless; we recommend choosing wired over wireless because they offer low latency and are cheaper than wireless.
 
@@ -480,21 +476,25 @@ With Filmora audio ducking, you can lower the volume of a track while retaining 
 
 ![ducking audio](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Silence Detection**
 
 This feature is designed to monitor silent pauses in video files and automatically remove them from the files. Right-click the audio file and select “Silence Detection (Beta).”
 
 ![silence detection beta](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Screen Recording**
 
 Screen recorder app helps record your PC screen in real time. You can find this feature below the “New Project” tab. Click it, and your screen will start to record.
 
 ![screen recorder](https://images.wondershare.com/filmora/article-images/2022/12/what-is-audio-interface-for-podcasting-15.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Auto Synchronization**
 
@@ -556,24 +556,18 @@ There is so much information on the internet. But sometimes, it’s hard to find
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/onquer-youtubes-copy-paste-loop-mastery-essentials/"><u>[New] Conquer YouTube's Copy-Paste Loop Mastery Essentials</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-fast-tracking-visual-storytelling-with-google-collages/"><u>[Updated] 2024 Approved Fast-Tracking Visual Storytelling with Google Collages</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-in-depth-look-at-lg-27uhd68-4k-sync-technology/"><u>[Updated] 2024 Approved In-Depth Look at LG 27UHD68, 4K Sync Technology</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-transformative-approaches-to-engaging-with-online-video-reviews/"><u>[Updated] 2024 Approved Transformative Approaches to Engaging with Online Video Reviews</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-iphone-photography-handbook-tips-and-tricks/"><u>[Updated] In 2024, The iPhone Photography Handbook Tips & Tricks</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-premium-timekeeping-for-your-nuptials-appleandroid-selection/"><u>[Updated] Premium Timekeeping For Your Nuptials Apple/Android Selection</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-rapid-visual-repository-w-audio-walkthrough-guide/"><u>2024 Approved Rapid Visual Repository W/ Audio Walkthrough Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/essential-differences-macbook-air-against-macbook-pro-explored/"><u>Essential Differences: MacBook Air Against MacBook Pro Explored</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-for-fixing-and-optimizing-the-witcher-3-performance-on-pc-systems/"><u>Expert Tips for Fixing and Optimizing The Witcher 3 Performance on PC Systems</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-gt-neo-5-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Realme GT Neo 5 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-s17-pro-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo S17 Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-digital-imagery-with-musical-twist/"><u>In 2024, Digital Imagery with Musical Twist</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-glow-innovations-outshining-videos-through-design/"><u>In 2024, Glow Innovations Outshining Videos Through Design</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-keeping-track-of-changed-followers-on-instagram/"><u>In 2024, Keeping Track of Changed Followers on Instagram</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-nokia-xr21-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Nokia XR21 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-taxonomy-of-video-and-film-capture-systems/"><u>In 2024, Taxonomy of Video and Film Capture Systems</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-understanding-the-best-tools-for-changing-sky-background-for-2024/"><u>New Understanding The Best Tools for Changing Sky Background for 2024</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/solving-failed-program-installations-expert-advice-from-yl-computing/"><u>Solving Failed Program Installations: Expert Advice From YL Computing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-ultimate-gamers-crossroads-oculus-or-playstation-vr-for-2024/"><u>The Ultimate Gamer’s Crossroads Oculus or PlayStation VR for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-20-words-and-phrases-that-work-magic-in-your-marketing/"><u>[New] 2024 Approved 20 Words and Phrases That Work Magic in Your Marketing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-acclaimed-music-archives-for-visual-media/"><u>[New] 2024 Approved Acclaimed Music Archives for Visual Media</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-chortle-chronicles-recording-7-amusing-video-adventures/"><u>[New] In 2024, Chortle Chronicles Recording 7 Amusing Video Adventures</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-quick-tips-for-transforming-pinterest-videos-into-mp3s-for-2024/"><u>[New] Quick Tips for Transforming Pinterest Videos Into MP3s for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-plan-youtube-content-into-mp4/"><u>[Updated] Master Plan YouTube Content Into MP4</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-eliminating-expenses-gain-access-to-final-cut-pro/"><u>2024 Approved Eliminating Expenses Gain Access to Final Cut Pro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/avoid-the-digital-snare-spotting-invisible-threats/"><u>Avoid the Digital Snare: Spotting Invisible Threats</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discerning-language-focused-computational-methods/"><u>Discerning Language-Focused Computational Methods</u></a></li>
+<li><a href="https://win-superb.techidaily.com/eliminar-la-unidad-c-de-forma-segura-en-windows-10-tres-metodos-efectivos/"><u>Eliminar La Unidad C De Forma Segura en Windows 10: Tres Métodos Efectivos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-many-videos-fit-in-64128gb-data-insight/"><u>How Many Videos Fit In 64/128GB? Data Insight</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-framefusion-matrix-the-ultimate-montage-craft/"><u>In 2024, FrameFusion Matrix The Ultimate Montage Craft</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/perfect-photos-post-edit-top-6-iphone-techniques-to-tidy-up-images-for-2024/"><u>Perfect Photos Post-Edit Top 6 iPhone Techniques to Tidy Up Images for 2024</u></a></li>
 </ul></div>
 
