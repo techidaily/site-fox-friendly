@@ -1,7 +1,7 @@
 ---
 title: "Equipment Guide for Dynamic Documentary Making for 2024"
-date: 2025-01-15T18:18:14.964Z
-updated: 2025-01-16T18:48:35.847Z
+date: 2025-01-15T18:17:03.783Z
+updated: 2025-01-22T19:43:10.920Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ From the very beginning, when I started travel vlogging, I mentioned in my previ
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Travel Gear and Equipment: Are They Good Investments?
@@ -43,6 +43,10 @@ First off, I've got a mobile phone, mirrorless camera, action camera, gimbal, tr
 
 The next gadget that I want to get my hands on, A DRONE. I'm still saving, and surely, I will get that soon. First, let me explain why I got those types of equipment…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Vlogging Camera (Mirrorless Camera)
 
 Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cinematic shots. It is specially made for beginners; it has a lot of cool features and at a reasonable price. What I love about this is the flip screen, and I found it very exceptional for vlogging. You can also use 4k resolution with this camera. For me, the only issue with this camera is the image stabilization but it's not that significant, because of the **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**. This app offers the stabilization option that provides a smoothness level and it will be better than the raw or original clip footage of your video. Lastly, it is compact, handy and I highly recommend this.
@@ -54,7 +58,7 @@ Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cine
 Lenses are the most vital part of your camera; it brings light to a fixed object. Will it make a huge impact on your cinematic shot? For your montage? For your b-roll? Yes, yes, and also yes. The use of lenses has a greater and different impact because it has a contrasting effect, especially for sharpness, depth of field, details, and background blur. It is the most important parameter depending on the situation that you might have for traveling. For example, I used Sigma 16mm, a wide lens, which is good for landscape photography or montage. Another one is Sigma 30mm, this lens is good for mid-range shot portraits and it creates a dramatic effect while capturing a person or an object.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Gimbal
@@ -70,7 +74,7 @@ This is one of my favorite pieces of equipment and frequently used camera, the G
 ![action camera](https://images.wondershare.com/filmora/article-images/2022/07/action-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Batteries, External SSD, and Memory card
@@ -79,10 +83,6 @@ In any case, we needed a few accessories to support our equipment better. Simple
 
 ![battery ssd card](https://images.wondershare.com/filmora/article-images/2022/07/battery-ssd-card.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Laptop, desktop, or phone for editing
 
 In my own experience, every time I go out and visit different places, I always have my laptop with me, so that I can easily transfer my files and start the editing process. Constantly, when I have spare time or I'm not doing anything while resting during the trip, I start editing to make progress gradually. This can save my time. I'm going to show you how I transfer my files and edit my video by **STABILIZING** your video that makes it better in **Wondershare Filmora.**
@@ -90,7 +90,7 @@ In my own experience, every time I go out and visit different places, I always h
 ![laptop devices](https://images.wondershare.com/filmora/article-images/2022/07/laptop-devices.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
@@ -112,7 +112,7 @@ from there you can choose and select which video you would like to import
 ![import files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3DRAG AND DROP
@@ -142,7 +142,7 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Stabilize the Video in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -174,7 +174,7 @@ select video and you can choose Stabilization
 ![stabulizing the video](https://images.wondershare.com/filmora/guide/stabilization-02.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step5ANALYZES THE SELECTED VIDEO TO STABILIZE
@@ -211,24 +211,22 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-ifunny-meme-seamless-download-and-enjoyment-for-2024/"><u>[New] IFunny Meme Seamless Download and Enjoyment for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-how-to-overcome-sony-a6400-video-viewing-failure/"><u>[New] In 2024, How to Overcome Sony A6400 Video Viewing Failure</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-mavic-air-ushers-in-new-era-confronting-dji-sparks-legacy/"><u>[New] Mavic Air Ushers in New Era, Confronting DJI Spark’s Legacy</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-future-of-flight-hubsans-revolutionary-h501s-explored/"><u>[New] The Future of Flight - Hubsan's Revolutionary H501S Explored</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-strategic-approaches-to-dominating-spotifys-ad-space/"><u>[Updated] 2024 Approved Strategic Approaches to Dominating Spotify's Ad Space</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-synthesize-and-add-videos-to-your-listing/"><u>[Updated] 2024 Approved Synthesize and Add Videos to Your Listing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-diving-deep-into-the-detail-of-minecraft-design/"><u>[Updated] Diving Deep Into the Detail of Minecraft Design</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-elite-list-best-online-streaming-options-today/"><u>[Updated] Elite List Best Online Streaming Options Today</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-facebook-freedom-the-ultimate-avoidance-blueprint/"><u>[Updated] In 2024, Unlocking Facebook Freedom The Ultimate Avoidance Blueprint</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-income-insight-cutting-through-the-complexity-with-a-3-step-guide-to-youtube-revenue/"><u>[Updated] Income Insight Cutting Through the Complexity with a 3-Step Guide to YouTube Revenue</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-the-blueprint-designing-your-first-youtube-trailer/"><u>2024 Approved The Blueprint Designing Your First YouTube Trailer</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-what-lies-beneath-the-true-meanings-in-emoji/"><u>2024 Approved What Lies Beneath The True Meanings in Emoji</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-x90s-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo X90S ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/insight-into-vcplusplus-redistributable-needs/"><u>Insight Into VC++ Redistributable Needs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/market-mastery-blueprint-strategic-openings/"><u>Market Mastery Blueprint Strategic Openings</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-ultimate-review-how-the-clearstream-2v-indooroutdoor-hdtv-antenna-delivers-excellent-performance-in-an-attractive-package/"><u>The Ultimate Review: How the ClearStream 2V Indoor/Outdoor HDTV Antenna Delivers Excellent Performance in an Attractive Package</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/ultimate-selection-best-idevice-custom-alerts-for-2024/"><u>Ultimate Selection Best iDevice Custom Alerts for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/unleash-power-play-in-style-with-pdw4/"><u>Unleash Power, Play in Style with PDW4</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-7-amazing-strategies-how-chatgpt-supercharges-your-daily-productivity/"><u>Unveiling 7 Amazing Strategies: How ChatGPT Supercharges Your Daily Productivity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-face-fluidity-masterclass-perfecting-the-art-of-motion-blur-via-picsart/"><u>[New] 2024 Approved Face Fluidity Masterclass Perfecting the Art of Motion Blur via Picsart</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-focussnap-recorder-for-screen-masters/"><u>[New] 2024 Approved FocusSnap Recorder for Screen Masters</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-achieving-optimal-watchability-with-two-screens-on-netflix/"><u>[New] Achieving Optimal Watchability with Two Screens on Netflix</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-essential-tips-for-effective-voice-to-text-in-google-docs/"><u>[New] In 2024, Essential Tips for Effective Voice-to-Text in Google Docs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-hits-and-tags-mastering-the-language-of-virality-in-youtube-shorts/"><u>[New] In 2024, Hits & Tags Mastering the Language of Virality in YouTube Shorts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-complete-mac-book-on-srt-file-handling-for-2024/"><u>[New] The Complete Mac Book on SRT File Handling for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-enhance-photoshop-snaps-with-shake-effects-for-2024/"><u>[Updated] Enhance Photoshop Snaps with Shake Effects for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-easily-preserve-linkedin-videos-unveiling-this-years-top-6-apps/"><u>[Updated] In 2024, Easily Preserve LinkedIn Videos - Unveiling This Year's Top 6 Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-softening-volume-windowsmac-audio-tips/"><u>[Updated] Softening Volume Windows/Mac Audio Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-playtime-to-profits-ryan-kajis-youtube-cash-crusade/"><u>2024 Approved From Playtime to Profits Ryan Kaji's YouTube Cash Crusade</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-guide-to-supercharged-video-engagement-with-youtube-notes/"><u>2024 Approved Guide to Supercharged Video Engagement with YouTube Notes</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/1728484173712-windows-1187/"><u>在Windows 11、8或7系统中的即时文件及文件夹同步技巧</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/bridge-the-gap-between-viewers-and-wide-angles-posting-on-facebook/"><u>Bridge the Gap Between Viewers and Wide Angles Posting on Facebook</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-oneplus-11r-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting OnePlus 11R Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-realme-c55-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Realme C55 Phones? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-professional-motion-blur-techniques-for-digital-artists/"><u>In 2024, Professional Motion Blur Techniques for Digital Artists</u></a></li>
 </ul></div>
 

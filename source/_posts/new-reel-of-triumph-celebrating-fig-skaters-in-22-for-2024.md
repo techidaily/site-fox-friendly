@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reel of Triumph - Celebrating Fig Skaters in '22 for 2024\""
-date: 2025-01-11T16:31:30.494Z
-updated: 2025-01-16T20:17:43.861Z
+date: 2025-01-20T22:55:45.322Z
+updated: 2025-01-22T19:52:10.482Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
@@ -44,7 +48,7 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
@@ -60,7 +64,7 @@ Even though Nathan Chen finished first for men's short program of the team event
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
@@ -68,7 +72,7 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
@@ -94,7 +98,7 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -102,10 +106,6 @@ Step 2: Go to File > Project Settings and set the parameters as per your require
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
@@ -136,14 +136,15 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-accuracy-audit-a-vll-driven-review/"><u>[New] In 2024, Accuracy Audit A VLL-Driven Review</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unveiling-the-secrets-of-successful-youtube-live-games/"><u>[Updated] 2024 Approved Unveiling the Secrets of Successful YouTube Live Games</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-dissecting-the-features-of-inshots-editing-software-for-2024/"><u>[Updated] Dissecting the Features of InShot's Editing Software for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-quickened-keys-powerpoint-presentation-capture/"><u>[Updated] Quickened Keys PowerPoint Presentation Capture</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/file-funneling-features-5-techniques-to-desktops/"><u>File Funneling Features 5 Techniques to Desktops</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-samsung-galaxy-m14-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Samsung Galaxy M14 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-proven-methods-for-backdrop-cleansing-in-photoshop-enhanced-by-affinity/"><u>In 2024, Proven Methods for Backdrop Cleansing in Photoshop Enhanced by Affinity</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1721436126988-spoofing-chatbots-how-some-apps-mislead-and-compromise-users/"><u>Spoofing ChatBots: How Some Apps Mislead & Compromise Users</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-essential-metaverse-friendship-experiences/"><u>The Essential Metaverse Friendship Experiences</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-zero-price-green-screen-visuals/"><u>[New] In 2024, Zero Price, Green Screen Visuals</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-iphone-photos-arrangement-strategies-and-icloud-coordination/"><u>[New] The Art of iPhone Photos Arrangement Strategies and iCloud Coordination</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-videovisionaries-selecting-superior-4k-screen-options-for-2024/"><u>[New] VideoVisionaries Selecting Superior 4K Screen Options for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-conquer-the-connection-mastering-insta-tik-linkage/"><u>[Updated] 2024 Approved Conquer the Connection Mastering Insta-Tik Linkage</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-metaverse-maps-drawn-understanding-through-6-vivid-scenarios-for-2024/"><u>[Updated] Metaverse Maps Drawn Understanding Through 6 Vivid Scenarios for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/effortless-steps-to-secure-your-own-virtual-fireside-with-online-videos/"><u>Effortless Steps to Secure Your Own Virtual Fireside with Online Videos!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-your-windows-sound-experience-via-latest-audio-drivers/"><u>Elevate Your Windows Sound Experience via Latest Audio Drivers</u></a></li>
+<li><a href="https://discover-able.techidaily.com/expert-walkthrough-recording-cs-go-matches-on-a-windows-operating-system/"><u>Expert Walkthrough: Recording CS: GO Matches on a Windows Operating System</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-for-eliminating-restricted-admin-windows-alert/"><u>Strategies for Eliminating Restricted Admin Windows Alert</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-6-applicazioni-piu-efficaci-per-creare-animazioni-da-fotografie/"><u>Top 6 Applicazioni Più Efficaci per Creare Animazioni Da Fotografie</u></a></li>
 </ul></div>
 

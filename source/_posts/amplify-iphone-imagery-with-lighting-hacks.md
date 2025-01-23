@@ -1,7 +1,7 @@
 ---
 title: "Amplify iPhone Imagery with Lighting Hacks"
-date: 2024-07-29T05:21:10.414Z
-updated: 2024-07-30T05:21:10.414Z
+date: 2025-01-17T16:34:38.973Z
+updated: 2025-01-22T21:08:10.670Z
 tags: 
   - screen-recording
   - ai video
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 
 # iPhone Photography Lighting Tips
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -34,9 +30,6 @@ Photography derives its name from two ancient Greek words, photos, which means l
 
 Being a photographer means that you must be able to use light to your own advantage and play with it to get better results, so in this article we are going to take you through a lot of different types of light and we are going to provide you with useful tips on how to use light in your photos.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## iPhone Photography Lighting Tips
 
 * [Part 1: Tips for Outdoor iPhone Photographers](#part1)
@@ -54,10 +47,11 @@ Anyone who has seen a photo of a sunset knows how light during the golden hour l
 
 **2\. Blue hour:** Around half an hour before the night ends or after the sunset there is still enough light to shoot amazing photos. During that narrow period of time, you can create stunning city vistas because the artificial light of metropolises creates a contrast to the sky in the background. The light during the blue hour is colder, which is why photos taken during the period tend to have more blues and greens.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![blue-hour-photography](https://images.wondershare.com/filmora/article-images/blue-hour-photography.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Holding your phone in your hand while taking pictures during the blue hour may result in blurry photos because you have to set longer exposures in order to ensure your camera is getting enough light. Placing your iPhone on a tripod or on a surface on which it will be perfectly stable, will enable you to produce razor-sharp images with a lot of blue hour light.
 
@@ -71,10 +65,11 @@ The abundance of light puts you at risk of overexposing parts of your photo, and
 
 **4\. Cloudy sky:** Clouds can be photographer's best friend and his or her's worst enemy. A cloudy gray sky generates all sorts of problems to cameras because it is often much brighter than the rest of the scene. On the other hand, a blue sky with fluffy white clouds looks like the perfect background for a photo. This is a great example of how much outdoor photography depends on good weather conditions.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![cloudy-sky-lighting](https://images.wondershare.com/filmora/article-images/cloudy-sky-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Digital Photo Secrets
 
@@ -100,10 +95,11 @@ All you need to do in order to capitalize on backlight is to place the subject o
 
 **7\. Artificial light at night:** Long exposure photography is an art that takes time to master, but being patient and willing to learn all its tricks will improve your photo taking skills. Using an artificial light at night can help you avoid using flash or tripods while taking photos with an iPhone. Even if there is a lot of artificial light in the scene you want to photograph, the stability of your camera should be your main concern because even the smallest camera shake can easily blur the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![artificial-light-outdoor](https://images.wondershare.com/filmora/article-images/artificial-light-outdoor.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Efram Goldberg Photography
 
@@ -112,20 +108,21 @@ Rain creates reflections of artificial light on the streets at night, which is w
 ### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Tips for Indoor iPhone Photography Sessions
 
 Indoor photography often includes the use of artificial light, but during the day iPhone photographers can also take advantage of the light that comes through the windows. The light that falls at an angle produces shadows that add a sense of depth to the photo, thus creating an opportunity to take an artistic photo indoors.
 
 ![artificial-light](https://images.wondershare.com/filmora/article-images/artificial-light.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 However, artificial sources of light are usually a better option if you want to take interior photos since the natural sources of light are scarce and unreliable. Using a flash on your iPhone is also an option but its strong light will completely change the light setting of the scene.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -151,4 +148,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-launch-your-clips-free-intro-downloads-for-2024/"><u>[New] Launch Your Clips Free Intro Downloads for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-art-of-turning-youtube-media-on-its-head-for-2024/"><u>[New] The Art of Turning YouTube Media on Its Head for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-capturing-instagram-content-on-computers-techniques-and-tools/"><u>[Updated] Capturing Instagram Content on Computers Techniques and Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-essential-tips-for-compelling-screenplay-narration-for-2024/"><u>[Updated] Essential Tips for Compelling Screenplay Narration for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-toggle-pip-mode-in-ios-a-step-by-step-approach/"><u>[Updated] How to Toggle PIP Mode in iOS A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-boost-your-fb-ads-strategy-get-free-video-making-kit/"><u>[Updated] In 2024, Boost Your FB Ads Strategy Get Free Video-Making Kit</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-decoding-dji-phantom-3-a-thorough-examination/"><u>[Updated] In 2024, Decoding DJI Phantom 3 A Thorough Examination</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-prime-presenter-prefix-planner/"><u>[Updated] Prime Presenter Prefix Planner</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-future-in-flight-hubsan-h501s-hovering-highlights/"><u>[Updated] The Future in Flight Hubsan H501S Hovering Highlights</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-unveiling-secrets-to-amazing-photo-collages/"><u>[Updated] Unveiling Secrets to Amazing Photo Collages</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/embark-on-a-virtual-odyssey-with-your-ios-device/"><u>Embark on a Virtual Odyssey with Your iOS Device</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhancing-your-journey-a-detailed-walkthrough-of-the-live-view-capability-in-google-maps/"><u>Enhancing Your Journey: A Detailed Walkthrough of the Live View Capability in Google Maps</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guia-completa-para-crear-videos-en-stop-motion-trucos-y-ejercicios-con-muestra/"><u>Guía Completa Para Crear Videos en Stop Motion: Trucos Y Ejercicios Con Muestra</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-maximize-your-photos-with-samsungs-image-enhancers-for-2024/"><u>How to Maximize Your Photos with Samsung's Image Enhancers for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-6-proven-ways-to-unlock-oppo-find-x7-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Oppo Find X7 Phone When You Forget the Password</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-mixer-streams-on-macos-a-step-by-step-guide-for-2024/"><u>Mastering Mixer Streams on macOS A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/top-5-elite-windows-data-rescue-applications-expert-ranked-reviews-and-ratings/"><u>Top 5 Elite Windows Data Rescue Applications: Expert Ranked Reviews & Ratings</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Bring Life to Stills  Motion Blur Technique\""
-date: 2025-01-10T20:08:26.213Z
-updated: 2025-01-16T18:50:37.156Z
+date: 2025-01-22T00:15:58.366Z
+updated: 2025-01-22T16:09:12.579Z
 tags: 
   - screen-recording
   - ai video
@@ -34,13 +34,13 @@ Motion blur is created on photos to increase the aesthetic element of photograph
 ![what is motion blur](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Many professional photographers also create this effect by slowing down the shutter speed of the camera. In this case, using a tripod is necessary to effortlessly create a motion blur effect in still images. The motion blur effect is not only restricted to still images, but it is also added in movies, video games, and 3D renders. Thus, it's one of the commonly used effects which adds a cinematic element to your photos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Add the Motion Blur Effect to Your Photos in Photoshop?
@@ -57,17 +57,9 @@ Step1 First, download and install the Photoshop tool on your PC. Upload your pic
 
 ![duplicate the layer](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Now head to the "Filter" section and locate the option called "Blur." From the drop-down menu, select "Radial Blur." From the new window, adjust the amount to 10 and choose "Spin" in the "Blur Method" section.
 
 ![adjust the radial blur settings](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Under the "Quality" section, select "Best." Once done, click on the "OK" button. Wait for some time until the changes get saved. Now head back to the Layer section and tap on the "Vector Mask" option given below. Afterward, select the "Brush" tool from the left side.
 
@@ -81,17 +73,9 @@ Step5 Head back to the layer section and select the bottom layer. Now copy the l
 
 ![choose the motion blur](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step6 Now set the angle on the displayed window and adjust the distance to 200 pixels. Once done, press the "OK "button. For this layer, add a mask and execute the dabbing process on the face as we did before. For more modifications, you can add a high-contrast black-and-white effect to your photo.
 
 ![adjust motion blur distance](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus Tips – The Alternative to Photoshop to Create Motion Blur Effect
 
@@ -103,6 +87,10 @@ Do you want to simplify the whole process of adding motion blur to photos? The b
 
 To perform advanced editing, it offers features like Green Screen and AI Portrait. Using Filmora, you can also add a motion blur effect to your photos in its intuitive interface. After editing, you can instantly render your clip on this tool. Moreover, you can choose a desired output file format and resolution while exporting your file. Hence, it's a complete platform to modify and enhance photos in a friendly user interface.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Steps to Add Motion Blur on Wondershare Filmora
 
 Filmora is an efficient and cost-effective tool for video and photo editing. To create a motion blur effect on your photos without seeking any professional help, check the following instructions:
@@ -113,15 +101,15 @@ Start by launching Wondershare Filmora on your Windows or macOS device. Next, cl
 
 ![import your picture](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 2 Split the Clip
 
 After importing the picture, drag it to the timeline. Now play the clip on the timeline carefully. Pause the play head where you want to create a motion blur. Tap on the "Scissor" icon on the timeline to split your clip. Perform the same steps on your clip where you want to end the motion blur effect.
 
 ![split the added clip](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 3 Go to the Effects Tab
 
@@ -129,21 +117,25 @@ Navigate to the "Effects" section and locate the "Background Blur" option. After
 
 ![access the background blurs](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 4 Adjust the Parameters
 
 Now play your clip to see the results on your screen. You can adjust its parameters by proceeding to the "Transitions" tab. Here, select the "Dissolve" option. By applying this transition effect, you can quickly make your clip look smooth. For more modifications, you can also adjust the phase increment and zoom rate.
 
 ![choose the dissolve transition](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 5 Export the Blurred Photo File
 
 Once you are done with editing, access the "Export" setting of Filmora. Choose your preferred resolution and output file format from the given options to conclude.
 
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -153,6 +145,10 @@ Do you want to add an artistic look to your photos? One of the great ways to enh
 
 To perform advanced editing, it offers features like Green Screen and AI Portrait. Using Filmora, you can also add a motion blur effect to your photos in its intuitive interface. After editing, you can instantly render your clip on this tool. Moreover, you can choose a desired output file format and resolution while exporting your file. Hence, it's a complete platform to modify and enhance photos in a friendly user interface.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Steps to Add Motion Blur on Wondershare Filmora
 
 Filmora is an efficient and cost-effective tool for video and photo editing. To create a motion blur effect on your photos without seeking any professional help, check the following instructions:
@@ -162,6 +158,10 @@ Filmora is an efficient and cost-effective tool for video and photo editing. To 
 Start by launching Wondershare Filmora on your Windows or macOS device. Next, click on the "Create New Project" option and hit the "Arrow" icon on its main interface. By doing so, you can import the photo from your system.
 
 ![import your picture](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 2 Split the Clip
 
@@ -181,15 +181,15 @@ Now play your clip to see the results on your screen. You can adjust its paramet
 
 ![choose the dissolve transition](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 5 Export the Blurred Photo File
 
 Once you are done with editing, access the "Export" setting of Filmora. Choose your preferred resolution and output file format from the given options to conclude.
 
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -219,18 +219,22 @@ Do you want to add an artistic look to your photos? One of the great ways to enh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-enchant-your-audience-with-these-20-marketing-phrases/"><u>[New] 2024 Approved Enchant Your Audience with These 20 Marketing Phrases</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-copyright-confusion-suddenly-no-more-videos-for-2024/"><u>[New] Copyright Confusion Suddenly No More Videos for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-optimal-sound-the-best-mic-bundles-for-2024/"><u>[New] Optimal Sound The Best Mic Bundles for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-advanced-composition-strategies-with-blend-modes/"><u>[Updated] 2024 Approved Advanced Composition Strategies with Blend Modes</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-streamline-your-viewing-turn-onoff-picture-in-picture-on-iphones/"><u>[Updated] 2024 Approved Streamline Your Viewing Turn On/Off Picture in Picture on iPhones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-practices-in-confirming-your-youtube-access/"><u>[Updated] Best Practices in Confirming Your YouTube Access</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-easy-guide-to-firefoxs-popup-window-excellence/"><u>[Updated] Easy Guide to Firefox's Popup Window Excellence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-transformation-optimal-video-concepts-to-elevate-creativity/"><u>[Updated] In 2024, Channel Transformation Optimal Video Concepts to Elevate Creativity</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-backward-glimpse-reverse-video-tips/"><u>[Updated] In 2024, Instagram's Backward Glimpse Reverse Video Tips</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/essential-top-rated-virtual-world-films-for-2024/"><u>Essential Top-Rated Virtual World Films for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-unveil-top-8-sites-providing-free-download-of-3d-text-psdfiles/"><u>In 2024, Unveil Top 8 Sites Providing Free Download of 3D Text PSDFiles</u></a></li>
-<li><a href="https://review-topics.techidaily.com/iphone-11-pro-max-data-recovery-an-infographic-to-conquer-iphone-data-loss-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 11 Pro Max Data Recovery – An Infographic to Conquer iPhone Data Loss | Stellar</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-performing-dual-function-laptop-unveiled-surprisingly-neither-from-hp-nor-lenovo/"><u>Top Performing Dual-Function Laptop Unveiled, Surprisingly Neither From HP Nor Lenovo</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-huawei-p10-review-unpacking-its-impressive-specs-and-features-for-2024/"><u>[New] Huawei P10 Review Unpacking Its Impressive Specs and Features for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-fan-favorite-films-reimagined-7-replacements/"><u>[Updated] 2024 Approved Fan-Favorite Films Reimagined - #7 Replacements</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-decoding-androids-editing-elite-is-picku-the-ultimate-choice-for-2024/"><u>[Updated] Decoding Android's Editing Elite Is PickU the Ultimate Choice for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-fixing-curved-video-gopros-fisheye-issue-for-2024/"><u>[Updated] Fixing Curved Video GoPro's Fisheye Issue for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-dimming-decibels-softening-audio-in-computers/"><u>[Updated] In 2024, Dimming Decibels Softening Audio in Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-husqvarna-h501s-drone-unboxed-review-essentials/"><u>[Updated] In 2024, Husqvarna H501S Drone Unboxed - Review Essentials</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-winning-film-tech-comprerantes-top-5-windows-editing-tools/"><u>[Updated] In 2024, Winning Film Tech Comprerante's Top 5 Windows Editing Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-navigate-through-prime-virtual-bike-selections-for-2024/"><u>[Updated] Navigate Through Prime Virtual Bike Selections for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-clarity-cutting-edge-expert-recommendations-for-8k/"><u>2024 Approved Clarity Cutting-Edge Expert Recommendations for 8K</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/comparing-aomei-backupper-and-acronis-true-image-which-offers-the-best-data-protection/"><u>Comparing AOMEI Backupper and Acronis True Image: Which Offers the Best Data Protection?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elden-ring-still-unavailable-heres-what-you-need-to-know/"><u>Elden Ring Still Unavailable? Here's What You Need to Know</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-replace-the-hard-drive-on-playstation-5-an-in-depth-tutorial/"><u>How to Replace the Hard Drive on PlayStation 5: An In-Depth Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-navigate-easily-through-youtube-channel-disabling-on-devices/"><u>In 2024, Navigate Easily Through YouTube Channel Disabling on Devices</u></a></li>
+<li><a href="https://some-tips.techidaily.com/modern-obstacle-dealing-with-ambiguous-outcomes-and-doubts-in-ai-precision-insights-from-zdnet/"><u>Modern Obstacle: Dealing with Ambiguous Outcomes and Doubts in AI Precision - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-multi-group-facebook-interaction/"><u>Navigating the Maze of Multi-Group Facebook Interaction</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-techniques-for-non-functional-runmus-mic-in-gaming-setup/"><u>Troubleshooting Techniques for Non-Functional RunmuS Mic in Gaming Setup</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unseen-horizons-hot-list-of-vr-peripherals-top-10-for-2024/"><u>Unseen Horizons Hot List of VR Peripherals (Top 10) for 2024</u></a></li>
 </ul></div>
 
