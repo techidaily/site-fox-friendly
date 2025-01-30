@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reel of Triumph - Celebrating Fig Skaters in '22 for 2024\""
-date: 2025-01-20T22:55:45.322Z
-updated: 2025-01-22T19:52:10.482Z
+date: 2025-01-24T17:57:08.353Z
+updated: 2025-01-29T23:46:29.949Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter O
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -35,10 +39,6 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
@@ -46,10 +46,6 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
@@ -63,16 +59,12 @@ Even though Nathan Chen finished first for men's short program of the team event
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
@@ -98,7 +90,7 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -107,11 +99,19 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,15 +136,18 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-zero-price-green-screen-visuals/"><u>[New] In 2024, Zero Price, Green Screen Visuals</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-iphone-photos-arrangement-strategies-and-icloud-coordination/"><u>[New] The Art of iPhone Photos Arrangement Strategies and iCloud Coordination</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-videovisionaries-selecting-superior-4k-screen-options-for-2024/"><u>[New] VideoVisionaries Selecting Superior 4K Screen Options for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-conquer-the-connection-mastering-insta-tik-linkage/"><u>[Updated] 2024 Approved Conquer the Connection Mastering Insta-Tik Linkage</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-metaverse-maps-drawn-understanding-through-6-vivid-scenarios-for-2024/"><u>[Updated] Metaverse Maps Drawn Understanding Through 6 Vivid Scenarios for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/effortless-steps-to-secure-your-own-virtual-fireside-with-online-videos/"><u>Effortless Steps to Secure Your Own Virtual Fireside with Online Videos!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevate-your-windows-sound-experience-via-latest-audio-drivers/"><u>Elevate Your Windows Sound Experience via Latest Audio Drivers</u></a></li>
-<li><a href="https://discover-able.techidaily.com/expert-walkthrough-recording-cs-go-matches-on-a-windows-operating-system/"><u>Expert Walkthrough: Recording CS: GO Matches on a Windows Operating System</u></a></li>
-<li><a href="https://win11.techidaily.com/strategies-for-eliminating-restricted-admin-windows-alert/"><u>Strategies for Eliminating Restricted Admin Windows Alert</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-6-applicazioni-piu-efficaci-per-creare-animazioni-da-fotografie/"><u>Top 6 Applicazioni Più Efficaci per Creare Animazioni Da Fotografie</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-quick-start-to-recording-iphone-memos/"><u>[New] 2024 Approved Quick Start to Recording iPhone Memos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-seamless-upload-routine-from-imovie-to-youtube-video-sharing/"><u>[New] In 2024, Seamless Upload Routine From iMovie to YouTube Video Sharing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-nikon-km-170-vs-hero-black-a-tough-decision/"><u>[New] Nikon KM-170 VS Hero Black A Tough Decision</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unlock-the-potential-of-audience-feedback-on-youtube/"><u>[New] Unlock the Potential of Audience Feedback on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-3d-blu-ray-players/"><u>[Updated] 2024 Approved Best 3D Blu-Ray Players</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/descarga-rapida-e-ininterrumpible-de-videos-4k-las-aplicaciones-gratuitas-mas-efectivas-para-sus-listas-de-reproduccion-favoritas/"><u>Descarga Rápida E Ininterrumpible De Videos 4K: Las Aplicaciones Gratuitas Más Efectivas Para Sus Listas De Reproducción Favoritas</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/final-user-license-agreement-fula-pour-le-logiciel-digiarty-winxdvd/"><u>Final User License Agreement (FULA) Pour Le Logiciel Digiarty - WinXDVD</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-in-class-music-video-platforms/"><u>In 2024, Best-in-Class Music Video Platforms</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-hot-40-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix Hot 40 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/leading-websites-to-discover-glossy-gold-letter-effects-for-2024/"><u>Leading Websites to Discover Glossy Gold Letter Effects for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-issues-when-starting-the-razer-synapse-software/"><u>Overcoming Issues When Starting the Razer Synapse Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/sunny-side-up-videography-for-android-for-2024/"><u>Sunny Side-Up Videography for Android for 2024</u></a></li>
 </ul></div>
 

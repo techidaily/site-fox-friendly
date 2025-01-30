@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Enrich Your Film with Alternative Imagery for 2024"
-date: 2025-01-21T19:57:59.452Z
-updated: 2025-01-23T00:53:49.662Z
+date: 2025-01-28T19:33:43.505Z
+updated: 2025-01-30T06:36:07.148Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ Now that we know that, let's dive in!
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. B roll In TV And Movies
 
@@ -53,6 +57,10 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
@@ -61,16 +69,12 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -79,10 +83,6 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
@@ -90,7 +90,7 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -98,7 +98,7 @@ If flaws were discovered during primary photography, the directors could have re
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,18 +135,14 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-capture-selfie-snap-shots-with-vintage-iphone-x/"><u>[New] Capture Selfie Snap Shots with Vintage iPhone X</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-essential-guide-to-adding-srt-to-mp4s-updated-for-2024/"><u>[New] Essential Guide to Adding SRT To MP4s, Updated for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-convert-live-facebook-videos-to-mp3s-on-the-fly/"><u>[New] In 2024, Convert Live Facebook Videos to MP3s on the Fly</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-tips-and-insights-for-successful-spotify-marketing/"><u>[New] Tips and Insights for Successful Spotify Marketing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>[Updated] Auditory Aesthetics Choosing the Right Soundtracks for Boxings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-streamline-your-videos-10-best-flv-to-youtube-convertors-for-2024/"><u>[Updated] Streamline Your Videos 10 Best FLV to YouTube Convertors for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-top-10-gif-utilities-compatible-with-ios-devices-for-2024/"><u>[Updated] Top 10 GIF Utilities Compatible with iOS Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-centralized-digital-media-command-center/"><u>2024 Approved YouTube's Centralized Digital Media Command Center</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/how-to-construct-your-own-home-made-google-cardboard-vr-device/"><u>How to Construct Your Own Home-Made Google Cardboard VR Device</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-budgeting-for-effective-youtube-marketing/"><u>In 2024, Budgeting for Effective YouTube Marketing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-optimal-metaverse-displays-the-ultimate-8-picks/"><u>In 2024, Optimal Metaverse Displays The Ultimate 8 Picks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-archivists-edge-cutting-edge-strategies-for-social-downloads/"><u>The Archivist's Edge Cutting-Edge Strategies for Social Downloads</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-artistry-and-precision-in-microsofts-new-surface-studio-2-is-it-worth-the-investment/"><u>Unpacking Artistry and Precision in Microsoft’s New Surface Studio 2: Is It Worth The Investment?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-5-advanced-car-tracking-camera-systems/"><u>[Updated] 2024 Approved Top 5 Advanced Car Tracking Camera Systems</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-exploring-the-boundaries-of-true-black-on-asuss-professional-screen-for-2024/"><u>[Updated] Exploring the Boundaries of True Black on ASUS's Professional Screen for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-understanding-and-resolving-the-issue-of-missing-shorts-thumbnails/"><u>[Updated] Understanding & Resolving the Issue of Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unlocking-the-potential-a-compreayers-guide-to-batched-video-downloads-from-tiktok/"><u>2024 Approved Unlocking the Potential A Compreayer's Guide to Batched Video Downloads From TikTok</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/advanced-movie-file-management-six-tips-for-the-modern-user-in-windows-11/"><u>Advanced Movie File Management - Six Tips for the Modern User in Windows 11</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/androidios-video-cutting-edge-8-top-montage-tools-revealed/"><u>Android/iOS Video Cutting-Edge 8 Top Montage Tools Revealed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/essential-strategies-for-webp-to-jpeg-conversion-for-2024/"><u>Essential Strategies for WebP to JPEG Conversion for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-aspect-ratios-for-professional-videos-for-2024/"><u>Mastering Aspect Ratios for Professional Videos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Vivo Y27 4G? | Dr.fone</u></a></li>
 </ul></div>
 

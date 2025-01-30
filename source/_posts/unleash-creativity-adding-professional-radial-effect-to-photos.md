@@ -1,7 +1,7 @@
 ---
 title: "\"Unleash Creativity  Adding Professional Radial Effect to Photos\""
-date: 2025-01-17T16:28:23.224Z
-updated: 2025-01-22T18:49:20.703Z
+date: 2025-01-22T21:12:20.130Z
+updated: 2025-01-29T20:19:44.554Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ If you are unaware of the radial blur effect, this article can act as a guide. T
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is a Radial Blur Effect?
 
 The radial blur effect is somehow similar to motion blur. This effect can be created at a slow shutter speed in the camera, or you can move or rotate your cameras in certain ways to create this effect. Many photographers also create a motion blur effect by zooming in at a slow shutter speed. By adding this effect, you will create a tunnel vision in your photos.
@@ -36,7 +40,7 @@ The radial blur effect is somehow similar to motion blur. This effect can be cre
 Moreover, the **radial blur effect** can also evoke certain emotions by transforming the image. To create this effect, you have to be precise and accurate with your camera movements. Hence, you can bring focus and display a certain speed in your photos using the radial blur effect.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Add the Radial Blur Effect to Your Photos in Photoshop?
@@ -61,16 +65,12 @@ Step3 Afterward, click on the background layer and head to the "Filter" tab. Fro
 
 ![proceed with the radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 After making all the adjustments in the Radial Blur window, press the "OK" button. Once done, select the top layer and add a "Curve Adjustment Layer." Now adjust the curve properties according to your preference. Thus, you can see the radial blur effect on your photo on your screen.
 
 ![adjust the curves](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tips – The Alternative to Photoshop to Create Radial Blur Effect
@@ -85,6 +85,10 @@ For photo and video editing, Filmora provides several features such as Split Scr
 
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Steps to Create Radial Blur Effect Using Filmora
 
 Creating a radial blur effect in Filmora is extremely simple and easy. Its intuitive interface allows you to add a radial blur effect instantly with a few clicks. For your convenience, we have mentioned precise and authentic instructions below to create a radial blur effect in Filmora:
@@ -101,15 +105,15 @@ Drag and drop the photo in the timeline to proceed. Now go to the Effects tab an
 
 ![access the video effects](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 3 Adjust the Blur Settings
 
 Choose your preferred effect and drop it into the timeline. Now increase the duration of your effect according to the clip. Once done, double-click on the effect to open its properties. Here, you can adjust the size, intensity, and other elements of the blur effect.
 
 ![adjust the added blur settings](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step 4 Edit the Clip
 
@@ -118,7 +122,7 @@ You can also edit the clip by adding titles or more effects. Once done with the 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -133,10 +137,6 @@ For photo and video editing, Filmora provides several features such as Split Scr
 
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Steps to Create Radial Blur Effect Using Filmora
 
 Creating a radial blur effect in Filmora is extremely simple and easy. Its intuitive interface allows you to add a radial blur effect instantly with a few clicks. For your convenience, we have mentioned precise and authentic instructions below to create a radial blur effect in Filmora:
@@ -166,7 +166,7 @@ You can also edit the clip by adding titles or more effects. Once done with the 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -199,19 +199,15 @@ By reading this article, you have learned how to add a radial blur effect using 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-hololens-review-unleashing-virtual-potential-with-microsoft/"><u>[New] 2024 Approved HoloLens Review – Unleashing Virtual Potential with Microsoft</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-motorcycle-mastery-the-top-ranked-action-cameras-for-23-riders/"><u>[New] 2024 Approved Motorcycle Mastery – The Top-Ranked Action Cameras for '23 Riders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-prime-pioneering-1980s-techniques-in-film-making/"><u>[New] 2024 Approved Prime Pioneering 1980S Techniques in Film Making</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-pixelpie-cutter/"><u>[New] In 2024, PixelPie Cutter</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-discovering-the-prime-6-headgear-choices-for-capturing-life-with-gopro/"><u>[Updated] In 2024, Discovering the Prime 6 Headgear Choices for Capturing Life with GoPro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-premier-top-eight-for-unparalleled-4k-viewing/"><u>[Updated] In 2024, Premier Top Eight for Unparalleled 4K Viewing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-podcasts-versus-youtube-the-ultimate-content-battle/"><u>[Updated] Podcasts Versus YouTube The Ultimate Content Battle</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-spin-swivel-and-shuffle-videos-effortlessly-using-vlc-player/"><u>2024 Approved Spin, Swivel, and Shuffle Videos Effortlessly Using VLC Player</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-secrets-of-effective-free-youtube-video-transcriptions-revealed/"><u>2024 Approved The Secrets of Effective, FREE YouTube Video Transcriptions Revealed</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-skyrocket-your-view-count-youtube-success-via-sony-vegas-editing/"><u>In 2024, Skyrocket Your View Count YouTube Success via Sony Vegas Editing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-streamline-your-writing-process-transcribing-with-microsoft-word/"><u>In 2024, Streamline Your Writing Process Transcribing with Microsoft Word</u></a></li>
-<li><a href="https://article-posts.techidaily.com/leading-open-source-20-best-pubg-images-for-2024/"><u>Leading Open Source 20 Best PUBG Images for 2024</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/pcwd-my-cloud-home/"><u>PCへの自動セーブ：Wd My Cloud Homeのガイド</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210685388-9781510775671-the-green-witchs-guide-to-magical-plants-flowers/"><u>The Green Witch's Guide to Magical Plants & Flowers | Free Book</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-a-comprehensive-guide-accumulating-massive-amounts-of-tiktok-videos-for-2024/"><u>[New] A Comprehensive Guide Accumulating Massive Amounts of TikTok Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exclusive-guide-best-10-cost-free-transformers-for-jpg-to-gif/"><u>[New] Exclusive Guide Best 10 Cost-Free Transformers for JPG to GIF</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-boost-your-periscope-broadcast-speed-a-guide-for-2024/"><u>[Updated] Boost Your Periscope Broadcast Speed A Guide for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-transform-your-screen-recording-process-using-aiseesoft-tools-for-2024/"><u>[Updated] Transform Your Screen Recording Process Using Aiseesoft Tools for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/core-understanding-of-narrative-frameworks/"><u>Core Understanding of Narrative Frameworks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elite-5-film-and-dvd-creators-for-macos/"><u>In 2024, Elite 5 Film & Dvd Creators for macOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-perfect-methods-for-computer-based-vhs-artistic-touches/"><u>In 2024, Perfect Methods for Computer-Based VHS Artistic Touches</u></a></li>
+<li><a href="https://win-special.techidaily.com/microsoft-announces-significant-privacy-and-security-enhancements-following-intense-reviews-zdnet/"><u>Microsoft Announces Significant Privacy & Security Enhancements Following Intense Reviews - ZDNet</u></a></li>
+<li><a href="https://win-answers.techidaily.com/quick-guide-to-resolving-lengthy-wait-times-for-fallout-4-startup/"><u>Quick Guide to Resolving Lengthy Wait Times for Fallout 4 Startup</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unveiling-the-secrets-acquiring-attractive-pexel-photos-for-2024/"><u>Unveiling the Secrets Acquiring Attractive Pexel Photos for 2024</u></a></li>
 </ul></div>
 
