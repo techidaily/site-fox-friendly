@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate Playbook for Attracting Hundred Thousand on YouTube\""
-date: 2024-08-15T14:51:50.213Z
-updated: 2024-08-16T14:51:50.213Z
+date: 2025-02-05T16:15:18.193Z
+updated: 2025-02-11T17:26:25.614Z
 tags: 
   - screen-recording
   - ai video
@@ -26,21 +26,30 @@ If you're looking to get more views on YouTube, it's important that your channel
 
 ![pick topic 100k views video](https://images.wondershare.com/filmora/article-images/2022/09/pick-topic-100k-views-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You need to pick a specific subject matter or topic that you can talk about for a long time.
 
 * If you are passionate about it, it will show and people will resonate with your passion.
 * If you can talk about it in detail, people will be able to relate to the details and feel like they know what you're talking about (even if they don't).
 * If it's not too broad, but also not too narrow, then people won't be scratching their heads trying to figure out what you mean by "inbound marketing" or "email marketing." They won't have a clue as to what those terms mean unless there's some context around them—and if there is no context around them at all, then chances are these things aren't exactly interesting enough yet for anyone else either!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## #2\. Don't worry about producing the highest quality video
 
 ![shoot high quality video](https://images.wondershare.com/filmora/article-images/2022/09/shoot-high-quality-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Don't worry about producing the highest quality video. As long as you have a relevant and interesting topic, you can always improve the quality of your videos over time with more resources and equipment. Focus on creating content that is highly valuable to your audience and provides them with something they haven't seen before—not how pretty it looks.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #3\. Post in related video communities to find an audience
 
 ![post video to community](https://images.wondershare.com/filmora/article-images/2022/09/post-video-to-community.jpg)
@@ -53,13 +62,18 @@ Once you find a relevant community, make sure that you're posting in the right p
 
 ![use seo skill in youtube video](https://images.wondershare.com/filmora/article-images/2022/09/use-seo-skill-in-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The first step to getting more views is writing keyword-rich titles and descriptions. Keywords are important for search engines, which means they're also important for your video's ranking on YouTube. You want your videos to appear in the "top" (highest-ranked) results when someone searches for a certain topic or phrase.
 
 A good way to get ranked high is by using keywords. Keywords will help you rank higher in YouTube searches, which means more people will see your video!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## #5\. Use annotations to link videos together
 
 ![use animation to link videos](https://images.wondershare.com/filmora/article-images/2022/09/use-animation-to-link-videos.jpg)
@@ -71,9 +85,6 @@ Annotations are a great way to link videos together, or to link videos on your c
 * Link external sites that are relevant to your content (e.g., links to related blogs).
 * Add additional resources for more information about the topic at hand (the most common example is using a URL shortener like bitly).
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #6\. Comment back on other people's videos in your niche
 
 ![comment other videos in your niche](https://images.wondershare.com/filmora/article-images/2022/09/comment-other-videos-in-your-niche.jpg)
@@ -84,9 +95,6 @@ This might seem like an obvious way to get more views but I've seen many creator
 
 * It shows that there's a level of trust between creators working together within communities; this makes viewers feel like there's an opportunity for collaboration as well (and hopefully future collaborations!).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #7\. Upload at least one video per week and never skip a week
 
 ![upload video to youtube regularly](https://images.wondershare.com/filmora/article-images/2022/09/upload-video-to-youtube-regularly.jpg)
@@ -97,39 +105,34 @@ To make sure that videos get uploaded regularly without hassle, put them on a sc
 
 The best way to ensure regularity is by setting up an automated scheduler with analytics services like Tubebuddy that will automatically publish your content while also keeping track of when each new episode goes live on YouTube and how many views each receives over time—helping predict what kind of clip is likely to be most popular among viewers based on past trends
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## #8\. Add calls to action at the beginning of your video
 
 ![add call to action youtube video](https://images.wondershare.com/filmora/article-images/2022/09/add-call-to-action-youtube-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 
 * Tell viewers they can subscribe to your channel.
 * Ask them to like or comment on the video.
 * Ask them to share the video with their friends. This is a great way to increase traffic, especially if you have a small audience right now.
 * Encourage viewers to visit your website, or any other product or service that you offer as part of your channel's brand (if applicable).
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #9\. Fill your channel with useful information, not just marketing messages
 
 ![fill youtube channel with useful info](https://images.wondershare.com/filmora/article-images/2022/09/fill-youtube-channel-with-useful-info.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 One of the most common mistakes that people make when creating YouTube videos is focusing too much on themselves, their business and the products or services they sell. While this may be important for those who are looking to sell a product or service—and these types of things should definitely be mentioned at some point in your video—the majority of your viewers are not going to want to hear about how great you are.
 
 If you want to grow an audience on YouTube and get more views, then one thing you need to do is provide value. This could mean sharing tips and tricks, answering questions from viewers or promoting other channels that produce great content related to your niche (which will encourage them share it with their friends).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## #10\. Use playlists effectively to get more views
 
 ![create playlist for youtube videos](https://images.wondershare.com/filmora/article-images/2022/09/create-playlist-for-youtube-videos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 
 Playlists are a great way to get more views for your YouTube videos. They allow you to group together related videos, making it easier for viewers to find what they're looking for and watch more of your content. They also help in the search engine optimization (SEO) of those videos!
 
@@ -137,9 +140,6 @@ If you're looking to create a series of videos, playlists are an ideal way to do
 
 Playlists can also be used as a place where viewers can watch related content that isn't necessarily part of another video—for example if someone just really likes one thing from one video but would like other similar things too (like say music from several artists).
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The Bottom Line
 
 We hope this post has helped you get more views for your YouTube videos! If you follow these steps, we promise that your channel will be full of high-quality content in no time. Remember to take it slow and don't try to do everything at once. The most important thing is to stick with it - if you keep uploading videos every week and posting comments back on other people's channels (and interacting with commenters), then an audience will come along eventually.
@@ -172,6 +172,26 @@ We hope this post has helped you get more views for your YouTube videos! If you 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-key-pillars-top-6-social-platforms-benefiting-businesses/"><u>[New] 2024 Approved Key Pillars Top 6 Social Platforms Benefiting Businesses</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-crafting-a-compelling-movie-mini-epic/"><u>[New] Crafting a Compelling Movie Mini-Epic</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-digital-repository-open-source-game-tunes-for-2024/"><u>[New] Digital Repository Open Source Game Tunes for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-estimating-time-for-20mb-media-file-for-2024/"><u>[New] Estimating Time for 20MB Media File for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-eyepoint-expertise-essay/"><u>[New] Eyepoint Expertise Essay</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-quick-start-inserting-images-into-your-instagram-feed-for-2024/"><u>[New] Quick Start Inserting Images Into Your Instagram Feed for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-chiefs-guide-to-superior-cloud-vaults/"><u>[New] The Chief's Guide to Superior Cloud Vaults</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-a-deep-dive-into-toolwiz-app-for-professional-photos/"><u>[Updated] A Deep Dive Into Toolwiz App for Professional Photos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-pixiz-essentials-from-stills-to-moving-images/"><u>[Updated] In 2024, Pixiz Essentials From Stills to Moving Images</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unlock-the-power-of-podcasts-15-activities-that-blend-multitasking-and-growth/"><u>[Updated] In 2024, Unlock the Power of Podcasts 15 Activities that Blend Multitasking and Growth</u></a></li>
+<li><a href="https://some-skills.techidaily.com/amazon-kindle-e-readers-compare-the-latest-kindle-paperwhite-and-basic-models/"><u>Amazon Kindle E-Readers: Compare the Latest Kindle Paperwhite & Basic Models</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-y100-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo Y100 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/heroes-unleashed-sluggish-swap/"><u>Heroes Unleashed: Sluggish Swap</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-amusingscreen-join-the-video-making-party/"><u>In 2024, AmusingScreen Join the Video Making Party</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-convert-videos-into-high-quality-audio-the-10-best-tools-at-your-fingertips-free/"><u>New In 2024, Convert Videos Into High-Quality Audio - The 10 Best Tools at Your Fingertips (Free)</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/no-nonsense-affordable-protection-in-depth-review-of-the-procase-macbook-pro-13-bag/"><u>No-Nonsense, Affordable Protection: In-Depth Review of the ProCase MacBook Pro 13 Bag</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/tapping-into-efficiency-microsoft-introduces-key-surface-tools-for-business-productivity-zdnet-uncovered/"><u>Tapping Into Efficiency: Microsoft Introduces Key Surface Tools for Business Productivity - ZDNET Uncovered</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ultimate-manual-to-assembling-a-top-tier-4k-editing-pc/"><u>The Ultimate Manual to Assembling a Top-Tier 4K Editing PC</u></a></li>
+</ul></div>
 

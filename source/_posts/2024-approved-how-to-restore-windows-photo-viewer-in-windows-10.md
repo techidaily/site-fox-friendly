@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Restore Windows Photo Viewer in Windows 10\""
-date: 2024-08-22T20:27:40.097Z
-updated: 2024-08-23T20:27:40.097Z
+date: 2025-02-10T16:07:21.276Z
+updated: 2025-02-11T16:28:42.154Z
 tags: 
   - screen-recording
   - ai video
@@ -55,7 +55,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -65,13 +73,14 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -87,32 +96,25 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,8 +138,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-flashback-filmmaking-top-tricks-from-80s-vhs-to-enhance-todays-edits/"><u>[New] 2024 Approved Flashback Filmmaking Top Tricks From 80S VHS to Enhance Today’s Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-libre-meditation-harmonies/"><u>[New] 2024 Approved Libre Meditation Harmonies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-guide-to-scripting-engaging-youtube-videos/"><u>[New] In 2024, Step-by-Step Guide to Scripting Engaging YouTube Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-outro-aesthetics-selecting-templates-any-budget-for-2024/"><u>[New] Outro Aesthetics Selecting Templates, Any Budget for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ahead-of-the-curve-professional-360-cams-reviewed-2023-edition/"><u>[Updated] 2024 Approved Ahead of the Curve Professional 360° Cams Reviewed - 2023 Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-creative-commons-chill-vibes/"><u>[Updated] 2024 Approved Creative Commons Chill Vibes</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-jubilant-join-and-leave-steps/"><u>[Updated] 2024 Approved Jubilant Join & Leave Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-boost-your-photo-skills-with-these-top-pixlr-tricks-for-2024/"><u>[Updated] Boost Your Photo Skills with These Top Pixlr Tricks for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-discovering-superior-software-transformative-voices-for-vtubers-for-2024/"><u>[Updated] Discovering Superior Software Transformative Voices for VTubers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-express-creativity-infuse-laughter-kapwing-guide-for-2024/"><u>[Updated] Express Creativity, Infuse Laughter - Kapwing Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-maximize-your-youtube-shorts-earnings-for-2024/"><u>[Updated] How to Maximize Your YouTube Shorts Earnings for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-video-length-limit-a-compre-written-for-you/"><u>[Updated] In 2024, Instagram’s Video Length Limit - A Compre Written for You</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-rapid-access-to-prime-window-images/"><u>[Updated] Rapid Access to Prime Window Images</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-7-tips-to-create-teaching-videos/"><u>2024 Approved 7 Tips to Create Teaching Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-infinix-smart-8-plus-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Infinix Smart 8 Plus? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-motorola-razr-40-ultra-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Motorola Razr 40 Ultra to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlocking-the-potential-of-your-mobile-content-for-youtube-wealth/"><u>In 2024, Unlocking the Potential of Your Mobile Content for YouTube Wealth</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/struggling-with-your-iphones-battery-performance-after-ios-19-discover-these-7-helpful-tips-to-improve-it/"><u>Struggling with Your iPhone's Battery Performance After iOS 19? Discover These 7 Helpful Tips to Improve It</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/tips-for-finding-christian-choir-songs-online-and-personalizing-them-for-2024/"><u>Tips for Finding Christian Choir Songs Online & Personalizing Them for 2024</u></a></li>
+</ul></div>
 

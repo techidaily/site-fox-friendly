@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-By Written Guide to LUTs for Professional Photographers\""
-date: 2024-08-22T20:25:47.681Z
-updated: 2024-08-23T20:25:47.681Z
+date: 2025-02-05T18:15:21.840Z
+updated: 2025-02-11T18:12:36.857Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -65,6 +69,10 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -75,8 +83,9 @@ load 3d lut
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
@@ -85,8 +94,9 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Here's the second one
 
 1. Open the LUT folder, which changes the version to your version.
@@ -103,9 +113,6 @@ Grow Together
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -117,8 +124,9 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -147,6 +155,24 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ultimate-guide-to-windows-10-savvy-techniques/"><u>[New] In 2024, Ultimate Guide to Windows 10 Savvy Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-color-grading-using-luts-to-refine-your-work-in-ae/"><u>[New] Navigating Color Grading Using LUTs to Refine Your Work in AE</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-dial-in-on-details-the-essentials-of-google-meet-zooming/"><u>[Updated] 2024 Approved Dial In on Details The Essentials of Google Meet Zooming</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-essential-online-hubs-for-visualizing-text-effects/"><u>[Updated] 2024 Approved Essential Online Hubs for Visualizing Text Effects</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-elevate-screen-brilliance-for-android/"><u>[Updated] Elevate Screen Brilliance for Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-navigating-and-exploring-every-aspect-of-macs-preview-app/"><u>[Updated] In 2024, Navigating and Exploring Every Aspect of Mac's Preview App</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-master-iphones-multi-tasked-capture-feature/"><u>[Updated] Master iPhone's Multi-Tasked Capture Feature</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-art-of-increasing-indoor-ambiance-via-sunlight/"><u>[Updated] The Art of Increasing Indoor Ambiance via Sunlight</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unleash-your-creativity-with-personalized-filters-and-melodies-windows-10-photos-for-2024/"><u>[Updated] Unleash Your Creativity with Personalized Filters and Melodies (Windows 10 Photos) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-optimizing-youtube-content-for-top-views/"><u>2024 Approved Optimizing YouTube Content for Top Views</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/diy-fixes-for-non-starting-computers-expert-advice-from-the-tech-gurus-at-yl-software/"><u>DIY Fixes for Non-Starting Computers: Expert Advice From the Tech Gurus at YL Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/eliminating-suggested-podcast-selections-on-spotify/"><u>Eliminating Suggested Podcast Selections on Spotify</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-lava-yuva-3-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Lava Yuva 3 Is Unlocked</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-how-to-create-metaverse-avatar-with-ease-an-ultimate-guide/"><u>In 2024, How to Create Metaverse Avatar with Ease An Ultimate Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-yuva-3-pro-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Lava Yuva 3 Pro Phone without PIN</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-and-tricks-for-keeping-your-w11-cool/"><u>Tips & Tricks for Keeping Your W11 Cool</u></a></li>
+</ul></div>
 

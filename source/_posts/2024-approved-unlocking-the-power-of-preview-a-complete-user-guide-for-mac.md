@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking the Power of Preview  A Complete User Guide for Mac\""
-date: 2024-08-15T14:49:16.016Z
-updated: 2024-08-16T14:49:16.016Z
+date: 2025-02-06T17:39:24.991Z
+updated: 2025-02-11T16:14:54.735Z
 tags: 
   - screen-recording
   - ai video
@@ -36,9 +36,6 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -68,8 +65,9 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -86,9 +84,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -100,6 +95,10 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -118,8 +117,9 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -135,6 +135,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -152,9 +156,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -166,6 +167,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -200,9 +205,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 * Click **Choose** to convert all the images in a single go
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -227,6 +229,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-sniff-out-recent-unfollowers-on-instagram/"><u>[New] Sniff Out Recent Unfollowers on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-budget-friendly-sky-vault-optimal-large-file-haven/"><u>[Updated] In 2024, Budget-Friendly Sky Vault Optimal Large File Haven</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-achieving-gentle-growth-of-silence-in-audio-production/"><u>2024 Approved Achieving Gentle Growth of Silence in Audio Production</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-set-up-an-impromptu-zoom-meeting-with-your-android-smartphone/"><u>2024 Approved How to Set Up an Impromptu Zoom Meeting with Your Android Smartphone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-initiating-live-video-sharing-complete-walkthrough/"><u>2024 Approved Initiating Live Video Sharing Complete Walkthrough</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-inside-the-craft-of-creating-vr-films/"><u>2024 Approved Inside The Craft of Creating VR Films</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-leading-cloud-services-for-android/"><u>2024 Approved Leading Cloud Services for Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-quintessential-memes-the-creation-guide/"><u>2024 Approved Quintessential Memes The Creation Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-step-by-step-mastering-the-art-of-vr-exploration/"><u>2024 Approved Step-by-Step Mastering the Art of VR Exploration</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-ultimate-editors-guide-to-top-10-fcp-plug-ins/"><u>2024 Approved The Ultimate Editor's Guide to Top 10 FCP Plug-Ins</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unparalleled-20-anime-series-themes/"><u>2024 Approved Unparalleled 20 Anime Series Themes</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-fix-computer-freezing/"><u>How To Fix Computer Freezing</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-securely-update-your-amd-ryzen-chips-software-a-beginners-walkthrough/"><u>How to Securely Update Your AMD Ryzen Chip's Software – A Beginner’s Walkthrough</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-vivo-y17s-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Vivo Y17s Phone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>In 2024, The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/optimal-solution-review-prime-action-recorder-for-2024/"><u>Optimal Solution Review Prime Action Recorder for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tailor-made-win11-keys-personal-setup-guide/"><u>Tailor-Made Win11 Keys: Personal Setup Guide</u></a></li>
+</ul></div>
 

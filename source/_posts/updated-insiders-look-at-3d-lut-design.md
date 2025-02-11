@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Insider's Look at 3D LUT Design"
-date: 2025-01-24T04:04:15.125Z
-updated: 2025-01-29T16:11:52.653Z
+date: 2025-02-06T16:31:42.443Z
+updated: 2025-02-11T17:50:11.698Z
 tags: 
   - screen-recording
   - ai video
@@ -75,7 +75,247 @@ You can save the color settings in files with the extensions ".3dl," ".csv," and
 
 ![features of 3d luts - control color settings](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To correct your colors, first, the camera receives light and color. Then light passes through the lens and gets into the filter. Once the filter cuts off the infrared light, the rest of the light incident on the Bayer filter
+
+### 4\. Adjust the image
+
+You can adjust the image in the 3D LUT Creator using the A/B Grid. You first need to ensure that your settings are well set as per your mission. These include contrast, temperature, pivot, saturation, and dynamic range. Use the "Compare" button to compare the changes with the original file. The "before" and the "after" image should give you a deeper insight into what your video is like after adjustment.
+
+![features of 3d luts - adjust the image](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-4.jpg)
+
+### 5\. Find the custom LUT adjustment
+
+You can also find a custom LUT adjustment with this creator. To do so, go to the Color Adjustment tool and turn on the Custom LUT adjustment. Furthermore, this applies to both individual and group layers.
+
+### 6\. Adjust the colors
+
+For this feature, use the spider’s web in the A/B Grid and use the "color wheel." Several points on the web represent the colors in your image. To adjust color, click and drag a point in any direction of choice. You will have changed the original color within the image to another color.
+
+![features of 3d luts - adjust the color](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 7\. Generate a LUT File
+
+You can choose to save the adjustments as a LUT file. To create such a file, go to the "File" menu and select the "File" tab, then click on the "Export" option. Next, name your file and choose the LUT format that you want to use. The most popular LUT format is "cube". More so, it is quite compatible with several photo editors. Likewise, you can export your content to other platforms.
+
+## Does 3D LUT have a mobile app?
+
+Yes. 3D LUT has a mobile app version. You can use it to adjust your videos and photos from the comfort of your palms. It comprises these features.
+
+**Basic color adjustment:** This feature allows you to change your video or image color to your satisfaction. You can make it brighter or dull by moving the brightness bar to either the left or the right. Other adjustments are the contrast, saturation, and white balance.
+
+**Choose your photos from the gallery:** you don’t have to search for your data from other platforms. Simply choose photos or videos to use from the gallery. This applies to the earlier saved photos. However, you can also use your camera to shoot instant photos.
+
+**Color correction:** your image color could be too bright or dull. This feature enables you to correct the color to a perfect tone. Besides, you get to choose from a wide range of colors, or better still, do a quick mix even as you correct the needed sections.
+
+You don’t intend to compose your video and miss an open platform to share your content. Use the export tab to instantly share your video or images once ed to perfection. You can use it for marketing or tutorials.
+
+### The 3D LUT desktop version
+
+The desktop version is the most widely used. It is powerful, with enough tools to carry out a couple of color grading effects.
+
+#### How it works
+
+The 3D LUT Creator has a working image and a reference image. These are displayed side by side or top and bottom to show the "Before" and "After" effects. The best part is that you can comfortably interact with other programs such as After Effect and many more. The simplest way to add your content is to drag a photo from the Finder into the PS. Additionally, pasting your image from the clipboard also works well. This favors you when watching a video on a separate social media site like YouTube or Vimeo as long as you like the grading pattern. Use your desktop screenshot as a clipboard shortcut, then go to the 3D LUT Creator and hit "Command+V" to paste it.
+
+Note that after you paste your content into the program, you should begin to work with your color. Here are some useful tools for the desktop version.
+
+**The A/B Grid:** This tool enables you to change the hue and saturation of your image without affecting other colors. It is either square or circular, both with layered colors. You will notice the color wheel shows the control points with more saturation in the outer area, while less saturation is geared towards the center region. Nonetheless, it is quite easy to limit the colors on your screen, as you can choose to work with only a few at a time.
+
+**C/L Grid:** This tool is for controlling the contrast of a specific color. Make use of it by rotating the axis angle to influence specific hues to work with.
+
+Use this tool to control the saturation or luminance. This should be according to the existing state of your image, such as the current saturation. Likewise, you can use color swatches to perform color adjustments based on different color modes. Such color modes include SXY, YUV, CMYK, and RGBW, among others.
+
+**Masking:** This is another powerful tool capable of pulling an interesting color mixture. You can create masks based on various aspects of the settings, like hue and warmth.
+
+To download the app, visit the official website of 3D LUT Creator at:
+
+<http://3dlutcreator.com/>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Concluding Remarks
+
+**●** Working with **the 3D LUT Creator** is quite interesting. It gives a different approach to several common photo editors on the market. You get the 3D LUT mobile app version and the desktop version. It also brings you tons of tools to pull through any piece of colorwork on your images and videos. However, working with this program is complex and may suit only professional photographers and editors.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You need to be creative to compose a lookup table (LUT) for color grading. And working with LUT Creator is what you need for a successful outcome. Even though it suits advanced users, it comes with various tools to perform several things that concern color grading.
+
+After a successful 3D LUT app download, you are good to work with it on your computer. Easily display its working and reference images side by side, toggle them back and forth, or top and bottom as you show your creativity. You can bring your source photo into the 3D LUT Creator in several ways. Interacting with other programs, pasting from the clipboard, or simply swapping work as you reference your images lets you come up with perfect color grading.
+
+![everything about 3d lut you should know](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-1.jpg)
+
+#### In this article
+
+01 [What Is a 3D LUT Creator, Exactly?](#part1)
+
+02 [The 3D LUT Creator's Features](#part2)
+
+03 [Does 3D LUT have a mobile app?](#part3)
+
+## What Is a 3D LUT Creator, Exactly?
+
+A 3D LUT Creator is a program that harbors unique colors meant for grading your video or images. It creates 3DLUTS imported to other programs such as Adobe Premiere Pro, Final Cut Pro, and others. Creators opt for this top-notch program for several reasons. The speed is pretty fast, it harbors unique tools, and it easily integrates with other programs such as Adobe Photoshop. More so, 3D LUT Creator gives you a polished end product that upscales your creativity level.
+
+### The Cost of a 3D LUT Creator
+
+The 3D LUT Creator comes on both Windows and Mac OS devices for desktop versions. These operating systems use different licenses but can combine for a price of $299\. The Grading Edition is $99, the Standard Version is $199, and the PRO version is $249.
+
+## The 3D LUT Creator's Features
+
+This app is rich in features, enabling you to handle several color mixes and grading easily. The features supported by the 3D LUT Creator include:
+
+### 1\. Color match and correction with the reference image
+
+With a color match, you’ll be able to copy the color scheme from one image to another. The color correction is made from the grid-tied to the color plan with saturation and hue. You can then easily change the color scheme and work with any desired color range of your choice.
+
+![features of 3d luts](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 2\. Find the built-in LUT collection
+
+You can find a collection of LUTs up to 48 in number. These are both cinematic-look LUTs and technical LUTs for grayscale conversion. To achieve this, turn on the adjustment. You will then see a pop-up menu and an "Intensify" slider. Next, choose from the 48 collections of LUTs the color that suits you.
+
+### 3\. Control color settings
+
+You can save the color settings in files with the extensions ".3dl," ".csv," and ".cube" as these are cross-platform formats. Likewise, you can open them in other video editors like Adobe Premiere Pro, Adobe After Effects, and Final Cut Pro apps. To use it, take a frame of the video, then process it within the program and save the settings before finally applying a color profile to your video.
+
+![features of 3d luts - control color settings](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-3.jpg)
+
+To correct your colors, first, the camera receives light and color. Then light passes through the lens and gets into the filter. Once the filter cuts off the infrared light, the rest of the light incident on the Bayer filter
+
+### 4\. Adjust the image
+
+You can adjust the image in the 3D LUT Creator using the A/B Grid. You first need to ensure that your settings are well set as per your mission. These include contrast, temperature, pivot, saturation, and dynamic range. Use the "Compare" button to compare the changes with the original file. The "before" and the "after" image should give you a deeper insight into what your video is like after adjustment.
+
+![features of 3d luts - adjust the image](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 5\. Find the custom LUT adjustment
+
+You can also find a custom LUT adjustment with this creator. To do so, go to the Color Adjustment tool and turn on the Custom LUT adjustment. Furthermore, this applies to both individual and group layers.
+
+### 6\. Adjust the colors
+
+For this feature, use the spider’s web in the A/B Grid and use the "color wheel." Several points on the web represent the colors in your image. To adjust color, click and drag a point in any direction of choice. You will have changed the original color within the image to another color.
+
+![features of 3d luts - adjust the color](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-5.jpg)
+
+### 7\. Generate a LUT File
+
+You can choose to save the adjustments as a LUT file. To create such a file, go to the "File" menu and select the "File" tab, then click on the "Export" option. Next, name your file and choose the LUT format that you want to use. The most popular LUT format is "cube". More so, it is quite compatible with several photo editors. Likewise, you can export your content to other platforms.
+
+## Does 3D LUT have a mobile app?
+
+Yes. 3D LUT has a mobile app version. You can use it to adjust your videos and photos from the comfort of your palms. It comprises these features.
+
+**Basic color adjustment:** This feature allows you to change your video or image color to your satisfaction. You can make it brighter or dull by moving the brightness bar to either the left or the right. Other adjustments are the contrast, saturation, and white balance.
+
+**Choose your photos from the gallery:** you don’t have to search for your data from other platforms. Simply choose photos or videos to use from the gallery. This applies to the earlier saved photos. However, you can also use your camera to shoot instant photos.
+
+**Color correction:** your image color could be too bright or dull. This feature enables you to correct the color to a perfect tone. Besides, you get to choose from a wide range of colors, or better still, do a quick mix even as you correct the needed sections.
+
+You don’t intend to compose your video and miss an open platform to share your content. Use the export tab to instantly share your video or images once ed to perfection. You can use it for marketing or tutorials.
+
+### The 3D LUT desktop version
+
+The desktop version is the most widely used. It is powerful, with enough tools to carry out a couple of color grading effects.
+
+#### How it works
+
+The 3D LUT Creator has a working image and a reference image. These are displayed side by side or top and bottom to show the "Before" and "After" effects. The best part is that you can comfortably interact with other programs such as After Effect and many more. The simplest way to add your content is to drag a photo from the Finder into the PS. Additionally, pasting your image from the clipboard also works well. This favors you when watching a video on a separate social media site like YouTube or Vimeo as long as you like the grading pattern. Use your desktop screenshot as a clipboard shortcut, then go to the 3D LUT Creator and hit "Command+V" to paste it.
+
+Note that after you paste your content into the program, you should begin to work with your color. Here are some useful tools for the desktop version.
+
+**The A/B Grid:** This tool enables you to change the hue and saturation of your image without affecting other colors. It is either square or circular, both with layered colors. You will notice the color wheel shows the control points with more saturation in the outer area, while less saturation is geared towards the center region. Nonetheless, it is quite easy to limit the colors on your screen, as you can choose to work with only a few at a time.
+
+**C/L Grid:** This tool is for controlling the contrast of a specific color. Make use of it by rotating the axis angle to influence specific hues to work with.
+
+Use this tool to control the saturation or luminance. This should be according to the existing state of your image, such as the current saturation. Likewise, you can use color swatches to perform color adjustments based on different color modes. Such color modes include SXY, YUV, CMYK, and RGBW, among others.
+
+**Masking:** This is another powerful tool capable of pulling an interesting color mixture. You can create masks based on various aspects of the settings, like hue and warmth.
+
+To download the app, visit the official website of 3D LUT Creator at:
+
+<http://3dlutcreator.com/>
+
+## Concluding Remarks
+
+**●** Working with **the 3D LUT Creator** is quite interesting. It gives a different approach to several common photo editors on the market. You get the 3D LUT mobile app version and the desktop version. It also brings you tons of tools to pull through any piece of colorwork on your images and videos. However, working with this program is complex and may suit only professional photographers and editors.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You need to be creative to compose a lookup table (LUT) for color grading. And working with LUT Creator is what you need for a successful outcome. Even though it suits advanced users, it comes with various tools to perform several things that concern color grading.
+
+After a successful 3D LUT app download, you are good to work with it on your computer. Easily display its working and reference images side by side, toggle them back and forth, or top and bottom as you show your creativity. You can bring your source photo into the 3D LUT Creator in several ways. Interacting with other programs, pasting from the clipboard, or simply swapping work as you reference your images lets you come up with perfect color grading.
+
+![everything about 3d lut you should know](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-1.jpg)
+
+#### In this article
+
+01 [What Is a 3D LUT Creator, Exactly?](#part1)
+
+02 [The 3D LUT Creator's Features](#part2)
+
+03 [Does 3D LUT have a mobile app?](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## What Is a 3D LUT Creator, Exactly?
+
+A 3D LUT Creator is a program that harbors unique colors meant for grading your video or images. It creates 3DLUTS imported to other programs such as Adobe Premiere Pro, Final Cut Pro, and others. Creators opt for this top-notch program for several reasons. The speed is pretty fast, it harbors unique tools, and it easily integrates with other programs such as Adobe Photoshop. More so, 3D LUT Creator gives you a polished end product that upscales your creativity level.
+
+### The Cost of a 3D LUT Creator
+
+The 3D LUT Creator comes on both Windows and Mac OS devices for desktop versions. These operating systems use different licenses but can combine for a price of $299\. The Grading Edition is $99, the Standard Version is $199, and the PRO version is $249.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## The 3D LUT Creator's Features
+
+This app is rich in features, enabling you to handle several color mixes and grading easily. The features supported by the 3D LUT Creator include:
+
+### 1\. Color match and correction with the reference image
+
+With a color match, you’ll be able to copy the color scheme from one image to another. The color correction is made from the grid-tied to the color plan with saturation and hue. You can then easily change the color scheme and work with any desired color range of your choice.
+
+![features of 3d luts](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-2.jpg)
+
+### 2\. Find the built-in LUT collection
+
+You can find a collection of LUTs up to 48 in number. These are both cinematic-look LUTs and technical LUTs for grayscale conversion. To achieve this, turn on the adjustment. You will then see a pop-up menu and an "Intensify" slider. Next, choose from the 48 collections of LUTs the color that suits you.
+
+### 3\. Control color settings
+
+You can save the color settings in files with the extensions ".3dl," ".csv," and ".cube" as these are cross-platform formats. Likewise, you can open them in other video editors like Adobe Premiere Pro, Adobe After Effects, and Final Cut Pro apps. To use it, take a frame of the video, then process it within the program and save the settings before finally applying a color profile to your video.
+
+![features of 3d luts - control color settings](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-3.jpg)
+
+To correct your colors, first, the camera receives light and color. Then light passes through the lens and gets into the filter. Once the filter cuts off the infrared light, the rest of the light incident on the Bayer filter
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Adjust the image
 
@@ -144,7 +384,7 @@ After a successful 3D LUT app download, you are good to work with it on your com
 ![everything about 3d lut you should know](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### In this article
@@ -163,240 +403,8 @@ A 3D LUT Creator is a program that harbors unique colors meant for grading your 
 
 The 3D LUT Creator comes on both Windows and Mac OS devices for desktop versions. These operating systems use different licenses but can combine for a price of $299\. The Grading Edition is $99, the Standard Version is $199, and the PRO version is $249.
 
-## The 3D LUT Creator's Features
-
-This app is rich in features, enabling you to handle several color mixes and grading easily. The features supported by the 3D LUT Creator include:
-
-### 1\. Color match and correction with the reference image
-
-With a color match, you’ll be able to copy the color scheme from one image to another. The color correction is made from the grid-tied to the color plan with saturation and hue. You can then easily change the color scheme and work with any desired color range of your choice.
-
-![features of 3d luts](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-2.jpg)
-
-### 2\. Find the built-in LUT collection
-
-You can find a collection of LUTs up to 48 in number. These are both cinematic-look LUTs and technical LUTs for grayscale conversion. To achieve this, turn on the adjustment. You will then see a pop-up menu and an "Intensify" slider. Next, choose from the 48 collections of LUTs the color that suits you.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 3\. Control color settings
-
-You can save the color settings in files with the extensions ".3dl," ".csv," and ".cube" as these are cross-platform formats. Likewise, you can open them in other video editors like Adobe Premiere Pro, Adobe After Effects, and Final Cut Pro apps. To use it, take a frame of the video, then process it within the program and save the settings before finally applying a color profile to your video.
-
-![features of 3d luts - control color settings](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-3.jpg)
-
-To correct your colors, first, the camera receives light and color. Then light passes through the lens and gets into the filter. Once the filter cuts off the infrared light, the rest of the light incident on the Bayer filter
-
-### 4\. Adjust the image
-
-You can adjust the image in the 3D LUT Creator using the A/B Grid. You first need to ensure that your settings are well set as per your mission. These include contrast, temperature, pivot, saturation, and dynamic range. Use the "Compare" button to compare the changes with the original file. The "before" and the "after" image should give you a deeper insight into what your video is like after adjustment.
-
-![features of 3d luts - adjust the image](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 5\. Find the custom LUT adjustment
-
-You can also find a custom LUT adjustment with this creator. To do so, go to the Color Adjustment tool and turn on the Custom LUT adjustment. Furthermore, this applies to both individual and group layers.
-
-### 6\. Adjust the colors
-
-For this feature, use the spider’s web in the A/B Grid and use the "color wheel." Several points on the web represent the colors in your image. To adjust color, click and drag a point in any direction of choice. You will have changed the original color within the image to another color.
-
-![features of 3d luts - adjust the color](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-5.jpg)
-
-### 7\. Generate a LUT File
-
-You can choose to save the adjustments as a LUT file. To create such a file, go to the "File" menu and select the "File" tab, then click on the "Export" option. Next, name your file and choose the LUT format that you want to use. The most popular LUT format is "cube". More so, it is quite compatible with several photo editors. Likewise, you can export your content to other platforms.
-
-## Does 3D LUT have a mobile app?
-
-Yes. 3D LUT has a mobile app version. You can use it to adjust your videos and photos from the comfort of your palms. It comprises these features.
-
-**Basic color adjustment:** This feature allows you to change your video or image color to your satisfaction. You can make it brighter or dull by moving the brightness bar to either the left or the right. Other adjustments are the contrast, saturation, and white balance.
-
-**Choose your photos from the gallery:** you don’t have to search for your data from other platforms. Simply choose photos or videos to use from the gallery. This applies to the earlier saved photos. However, you can also use your camera to shoot instant photos.
-
-**Color correction:** your image color could be too bright or dull. This feature enables you to correct the color to a perfect tone. Besides, you get to choose from a wide range of colors, or better still, do a quick mix even as you correct the needed sections.
-
-You don’t intend to compose your video and miss an open platform to share your content. Use the export tab to instantly share your video or images once ed to perfection. You can use it for marketing or tutorials.
-
-### The 3D LUT desktop version
-
-The desktop version is the most widely used. It is powerful, with enough tools to carry out a couple of color grading effects.
-
-#### How it works
-
-The 3D LUT Creator has a working image and a reference image. These are displayed side by side or top and bottom to show the "Before" and "After" effects. The best part is that you can comfortably interact with other programs such as After Effect and many more. The simplest way to add your content is to drag a photo from the Finder into the PS. Additionally, pasting your image from the clipboard also works well. This favors you when watching a video on a separate social media site like YouTube or Vimeo as long as you like the grading pattern. Use your desktop screenshot as a clipboard shortcut, then go to the 3D LUT Creator and hit "Command+V" to paste it.
-
-Note that after you paste your content into the program, you should begin to work with your color. Here are some useful tools for the desktop version.
-
-**The A/B Grid:** This tool enables you to change the hue and saturation of your image without affecting other colors. It is either square or circular, both with layered colors. You will notice the color wheel shows the control points with more saturation in the outer area, while less saturation is geared towards the center region. Nonetheless, it is quite easy to limit the colors on your screen, as you can choose to work with only a few at a time.
-
-**C/L Grid:** This tool is for controlling the contrast of a specific color. Make use of it by rotating the axis angle to influence specific hues to work with.
-
-Use this tool to control the saturation or luminance. This should be according to the existing state of your image, such as the current saturation. Likewise, you can use color swatches to perform color adjustments based on different color modes. Such color modes include SXY, YUV, CMYK, and RGBW, among others.
-
-**Masking:** This is another powerful tool capable of pulling an interesting color mixture. You can create masks based on various aspects of the settings, like hue and warmth.
-
-To download the app, visit the official website of 3D LUT Creator at:
-
-<http://3dlutcreator.com/>
-
-## Concluding Remarks
-
-**●** Working with **the 3D LUT Creator** is quite interesting. It gives a different approach to several common photo editors on the market. You get the 3D LUT mobile app version and the desktop version. It also brings you tons of tools to pull through any piece of colorwork on your images and videos. However, working with this program is complex and may suit only professional photographers and editors.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You need to be creative to compose a lookup table (LUT) for color grading. And working with LUT Creator is what you need for a successful outcome. Even though it suits advanced users, it comes with various tools to perform several things that concern color grading.
-
-After a successful 3D LUT app download, you are good to work with it on your computer. Easily display its working and reference images side by side, toggle them back and forth, or top and bottom as you show your creativity. You can bring your source photo into the 3D LUT Creator in several ways. Interacting with other programs, pasting from the clipboard, or simply swapping work as you reference your images lets you come up with perfect color grading.
-
-![everything about 3d lut you should know](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-1.jpg)
-
-#### In this article
-
-01 [What Is a 3D LUT Creator, Exactly?](#part1)
-
-02 [The 3D LUT Creator's Features](#part2)
-
-03 [Does 3D LUT have a mobile app?](#part3)
-
-## What Is a 3D LUT Creator, Exactly?
-
-A 3D LUT Creator is a program that harbors unique colors meant for grading your video or images. It creates 3DLUTS imported to other programs such as Adobe Premiere Pro, Final Cut Pro, and others. Creators opt for this top-notch program for several reasons. The speed is pretty fast, it harbors unique tools, and it easily integrates with other programs such as Adobe Photoshop. More so, 3D LUT Creator gives you a polished end product that upscales your creativity level.
-
-### The Cost of a 3D LUT Creator
-
-The 3D LUT Creator comes on both Windows and Mac OS devices for desktop versions. These operating systems use different licenses but can combine for a price of $299\. The Grading Edition is $99, the Standard Version is $199, and the PRO version is $249.
-
-## The 3D LUT Creator's Features
-
-This app is rich in features, enabling you to handle several color mixes and grading easily. The features supported by the 3D LUT Creator include:
-
-### 1\. Color match and correction with the reference image
-
-With a color match, you’ll be able to copy the color scheme from one image to another. The color correction is made from the grid-tied to the color plan with saturation and hue. You can then easily change the color scheme and work with any desired color range of your choice.
-
-![features of 3d luts](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-2.jpg)
-
-### 2\. Find the built-in LUT collection
-
-You can find a collection of LUTs up to 48 in number. These are both cinematic-look LUTs and technical LUTs for grayscale conversion. To achieve this, turn on the adjustment. You will then see a pop-up menu and an "Intensify" slider. Next, choose from the 48 collections of LUTs the color that suits you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 3\. Control color settings
-
-You can save the color settings in files with the extensions ".3dl," ".csv," and ".cube" as these are cross-platform formats. Likewise, you can open them in other video editors like Adobe Premiere Pro, Adobe After Effects, and Final Cut Pro apps. To use it, take a frame of the video, then process it within the program and save the settings before finally applying a color profile to your video.
-
-![features of 3d luts - control color settings](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-3.jpg)
-
-To correct your colors, first, the camera receives light and color. Then light passes through the lens and gets into the filter. Once the filter cuts off the infrared light, the rest of the light incident on the Bayer filter
-
-### 4\. Adjust the image
-
-You can adjust the image in the 3D LUT Creator using the A/B Grid. You first need to ensure that your settings are well set as per your mission. These include contrast, temperature, pivot, saturation, and dynamic range. Use the "Compare" button to compare the changes with the original file. The "before" and the "after" image should give you a deeper insight into what your video is like after adjustment.
-
-![features of 3d luts - adjust the image](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-4.jpg)
-
-### 5\. Find the custom LUT adjustment
-
-You can also find a custom LUT adjustment with this creator. To do so, go to the Color Adjustment tool and turn on the Custom LUT adjustment. Furthermore, this applies to both individual and group layers.
-
-### 6\. Adjust the colors
-
-For this feature, use the spider’s web in the A/B Grid and use the "color wheel." Several points on the web represent the colors in your image. To adjust color, click and drag a point in any direction of choice. You will have changed the original color within the image to another color.
-
-![features of 3d luts - adjust the color](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 7\. Generate a LUT File
-
-You can choose to save the adjustments as a LUT file. To create such a file, go to the "File" menu and select the "File" tab, then click on the "Export" option. Next, name your file and choose the LUT format that you want to use. The most popular LUT format is "cube". More so, it is quite compatible with several photo editors. Likewise, you can export your content to other platforms.
-
-## Does 3D LUT have a mobile app?
-
-Yes. 3D LUT has a mobile app version. You can use it to adjust your videos and photos from the comfort of your palms. It comprises these features.
-
-**Basic color adjustment:** This feature allows you to change your video or image color to your satisfaction. You can make it brighter or dull by moving the brightness bar to either the left or the right. Other adjustments are the contrast, saturation, and white balance.
-
-**Choose your photos from the gallery:** you don’t have to search for your data from other platforms. Simply choose photos or videos to use from the gallery. This applies to the earlier saved photos. However, you can also use your camera to shoot instant photos.
-
-**Color correction:** your image color could be too bright or dull. This feature enables you to correct the color to a perfect tone. Besides, you get to choose from a wide range of colors, or better still, do a quick mix even as you correct the needed sections.
-
-You don’t intend to compose your video and miss an open platform to share your content. Use the export tab to instantly share your video or images once ed to perfection. You can use it for marketing or tutorials.
-
-### The 3D LUT desktop version
-
-The desktop version is the most widely used. It is powerful, with enough tools to carry out a couple of color grading effects.
-
-#### How it works
-
-The 3D LUT Creator has a working image and a reference image. These are displayed side by side or top and bottom to show the "Before" and "After" effects. The best part is that you can comfortably interact with other programs such as After Effect and many more. The simplest way to add your content is to drag a photo from the Finder into the PS. Additionally, pasting your image from the clipboard also works well. This favors you when watching a video on a separate social media site like YouTube or Vimeo as long as you like the grading pattern. Use your desktop screenshot as a clipboard shortcut, then go to the 3D LUT Creator and hit "Command+V" to paste it.
-
-Note that after you paste your content into the program, you should begin to work with your color. Here are some useful tools for the desktop version.
-
-**The A/B Grid:** This tool enables you to change the hue and saturation of your image without affecting other colors. It is either square or circular, both with layered colors. You will notice the color wheel shows the control points with more saturation in the outer area, while less saturation is geared towards the center region. Nonetheless, it is quite easy to limit the colors on your screen, as you can choose to work with only a few at a time.
-
-**C/L Grid:** This tool is for controlling the contrast of a specific color. Make use of it by rotating the axis angle to influence specific hues to work with.
-
-Use this tool to control the saturation or luminance. This should be according to the existing state of your image, such as the current saturation. Likewise, you can use color swatches to perform color adjustments based on different color modes. Such color modes include SXY, YUV, CMYK, and RGBW, among others.
-
-**Masking:** This is another powerful tool capable of pulling an interesting color mixture. You can create masks based on various aspects of the settings, like hue and warmth.
-
-To download the app, visit the official website of 3D LUT Creator at:
-
-<http://3dlutcreator.com/>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Concluding Remarks
-
-**●** Working with **the 3D LUT Creator** is quite interesting. It gives a different approach to several common photo editors on the market. You get the 3D LUT mobile app version and the desktop version. It also brings you tons of tools to pull through any piece of colorwork on your images and videos. However, working with this program is complex and may suit only professional photographers and editors.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You need to be creative to compose a lookup table (LUT) for color grading. And working with LUT Creator is what you need for a successful outcome. Even though it suits advanced users, it comes with various tools to perform several things that concern color grading.
-
-After a successful 3D LUT app download, you are good to work with it on your computer. Easily display its working and reference images side by side, toggle them back and forth, or top and bottom as you show your creativity. You can bring your source photo into the 3D LUT Creator in several ways. Interacting with other programs, pasting from the clipboard, or simply swapping work as you reference your images lets you come up with perfect color grading.
-
-![everything about 3d lut you should know](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-1.jpg)
-
-#### In this article
-
-01 [What Is a 3D LUT Creator, Exactly?](#part1)
-
-02 [The 3D LUT Creator's Features](#part2)
-
-03 [Does 3D LUT have a mobile app?](#part3)
-
-## What Is a 3D LUT Creator, Exactly?
-
-A 3D LUT Creator is a program that harbors unique colors meant for grading your video or images. It creates 3DLUTS imported to other programs such as Adobe Premiere Pro, Final Cut Pro, and others. Creators opt for this top-notch program for several reasons. The speed is pretty fast, it harbors unique tools, and it easily integrates with other programs such as Adobe Photoshop. More so, 3D LUT Creator gives you a polished end product that upscales your creativity level.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### The Cost of a 3D LUT Creator
-
-The 3D LUT Creator comes on both Windows and Mac OS devices for desktop versions. These operating systems use different licenses but can combine for a price of $299\. The Grading Edition is $99, the Standard Version is $199, and the PRO version is $249.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The 3D LUT Creator's Features
@@ -426,14 +434,6 @@ To correct your colors, first, the camera receives light and color. Then light p
 You can adjust the image in the 3D LUT Creator using the A/B Grid. You first need to ensure that your settings are well set as per your mission. These include contrast, temperature, pivot, saturation, and dynamic range. Use the "Compare" button to compare the changes with the original file. The "before" and the "after" image should give you a deeper insight into what your video is like after adjustment.
 
 ![features of 3d luts - adjust the image](https://images.wondershare.com/filmora/article-images/2022/05/everything-about-3d-lut-creator-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Find the custom LUT adjustment
 
@@ -511,20 +511,18 @@ To download the app, visit the official website of 3D LUT Creator at:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-engaging-verbal-communicator-study-part-8/"><u>[New] Engaging Verbal Communicator Study, Part 8</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unlock-15-simple-vlog-inspirations-today/"><u>[New] In 2024, Unlock 15 Simple Vlog Inspirations Today</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-ultimate-10-apps-to-boost-audio-velocity-for-2024/"><u>[New] Ultimate 10 Apps to Boost Audio Velocity for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-vita-video-editor-app-review-for-2024/"><u>[New] Vita Video Editor App Review for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-hdr-technology-demystified-with-a-look-at-aurora/"><u>[Updated] 2024 Approved HDR Technology Demystified with a Look at Aurora</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-explore-like-a-pro-with-tomtoms-actioncam-2023/"><u>[Updated] Explore Like a Pro with TomTom's ActionCam 2023</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-how-to-smoothly-integrate-linktree-into-your-tiktok-bio-space/"><u>[Updated] In 2024, How to Smoothly Integrate Linktree Into Your TikTok Bio Space</u></a></li>
-<li><a href="https://win-answers.techidaily.com/eliminate-chrome-stalls-and-glitches-on-windows-10-simple-fix-tips-for-seamless-browsing/"><u>Eliminate Chrome Stalls and Glitches on Windows 10 – Simple Fix Tips for Seamless Browsing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-dji-drone-limited-use-color-filters-complimentary/"><u>In 2024, DJI Drone Limited-Use Color Filters – Complimentary</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-vivo-s17e-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Vivo S17e Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-learn-the-art-of-saving-and-logging-periscope-content/"><u>In 2024, Learn the Art of Saving & Logging Periscope Content</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-windows-10-screen-recording-tools-the-ultimate-selection/"><u>In 2024, Windows 10 Screen Recording Tools - The Ultimate Selection</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-seamless-blend-of-images-into-majestic-collage-art-for-2024/"><u>The Seamless Blend of Images Into Majestic Collage Art for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unlocking-visual-potential-the-power-of-lut-transformations/"><u>Unlocking Visual Potential The Power of LUT Transformations</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-educational-evolution-via-virtual-reality-for-2024/"><u>[New] Educational Evolution via Virtual Reality for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-gradient-goes-night-premieres-trick/"><u>[New] Gradient Goes Night Premiere's Trick</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unraveling-the-lifecycle-of-windows-movie-maker-releases/"><u>[New] Unraveling the Lifecycle of Windows Movie Maker Releases</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-efficient-tactics-for-viewing-subscribers-on-yt/"><u>[Updated] Efficient Tactics for Viewing Subscribers on YT</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-become-a-spotify-ad-expert-in-no-time/"><u>[Updated] In 2024, Become a Spotify Ad Expert in No Time</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-quest-for-your-own-distinctive-stream-tagline/"><u>2024 Approved The Quest for Your Own Distinctive Stream Tagline</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-infinix-note-30i-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Infinix Note 30i Location Settings | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-volume-variation-virtuosity-in-avid-pro-tools-tutorials/"><u>In 2024, Volume Variation Virtuosity in Avid Pro Tools Tutorials</u></a></li>
+<li><a href="https://techtrends.techidaily.com/live-streaming-mastery-enhancing-your-videos-with-manycam-the-ultimate-virtual-camera-solution/"><u>Live Streaming Mastery: Enhancing Your Videos with ManyCam - The Ultimate Virtual Camera Solution</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-pros-and-cons-of-final-cut-pro-vs-final-cut-express-for-2024/"><u>New The Pros and Cons of Final Cut Pro vs Final Cut Express for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ultimate-solution-pack-6-best-apps-for-signature-erasure/"><u>Ultimate Solution Pack - 6 Best Apps for Signature Erasure</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unlocking-full-potential-always-launch-apps-with-admin-rights-on-windows-11-explained/"><u>Unlocking Full Potential: Always Launch Apps with Admin Rights on Windows 11 Explained</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-note-13-pro-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi Note 13 Pro 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
 </ul></div>
 

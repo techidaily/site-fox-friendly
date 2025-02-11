@@ -1,7 +1,7 @@
 ---
 title: "Ace the Art of Shooting on a Green Screen for 2024"
-date: 2024-08-22T20:26:33.221Z
-updated: 2024-08-23T20:26:33.221Z
+date: 2025-02-06T16:01:55.778Z
+updated: 2025-02-11T17:47:52.937Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ We’ve figured out some useful green screen tricks, have fun and hope you’ll 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
 #### 1 Lighting tips in shooting a Green Screen Video
@@ -59,6 +63,10 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -78,11 +86,19 @@ There are some mistakes that you can avoid to help your green screen video look 
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
@@ -93,6 +109,10 @@ Till now, I believe we have basic skills on how to shoot a green screen videos, 
 Besides compositing chroma keying videos in Filmora, you can also [stabilize your shaky videos](https://tools.techidaily.com/wondershare/filmora/download/), [put videos side by side](https://tools.techidaily.com/wondershare/filmora/download/), [blur the face in the video](https://tools.techidaily.com/wondershare/filmora/download/) and even more. Let's watch the video below and find out how people shoot and edit green screen videos. Remember to download Filmora to have a try by yourself.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -119,10 +139,22 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-demystifying-periscope-your-ultimate-learning-resource-for-2024/"><u>[New] Demystifying Periscope Your Ultimate Learning Resource for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/peedy-resizing-your-youtube-videos-for-mac-view-for-2024/"><u>[New] Speedy Resizing Your Youtube Videos for Mac View for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-which-is-superior-gopro-v5-edge-or-keymission-for-2024/"><u>[New] Which Is Superior, GoPro V5 Edge or Keymission for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-ab-testing-caption-variants/"><u>[Updated] 2024 Approved A/B Testing Caption Variants</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-under-100-investments-in-action-cameras-top-selections/"><u>[Updated] 2024 Approved Under $100 Investments in Action Cameras – Top Selections</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-innovative-solutions-for-your-ultimate-3d-viewing-needs-for-2024/"><u>[Updated] Innovative Solutions for Your Ultimate 3D Viewing Needs for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-leveraging-look-up-table-techniques-for-richer-images-in-pscc/"><u>[Updated] Leveraging Look-Up Table Techniques for Richer Images in PSCC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-collection-of-dynamic-text-for-ae-projects/"><u>[Updated] Ultimate Collection of Dynamic Text for AE Projects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-premiere-pros-full-scene-showcase-guide/"><u>2024 Approved Premiere Pro's Full Scene Showcase Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/5-innovative-yt-tales-share-your-life-journey-for-2024/"><u>5 Innovative YT Tales Share Your Life Journey for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/capturewin10-top-tier-recorder-for-2024/"><u>CaptureWin10 Top-Tier Recorder for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-13-pro-max-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/maximize-your-payload-top-10-drone-giants/"><u>Maximize Your Payload Top 10 Drone Giants</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/navigating-high-dynamic-range-photography-with-ps/"><u>Navigating High Dynamic Range Photography with PS</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-elevate-your-videos-how-to-use-picture-in-picture-in-final-cut-pro-for-2024/"><u>New Elevate Your Videos How to Use Picture-in-Picture in Final Cut Pro for 2024</u></a></li>
+</ul></div>
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

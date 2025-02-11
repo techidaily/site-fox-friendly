@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Renewal of Windows Photo Viewer  Two Efficient Methods in Windows 10\""
-date: 2025-01-25T03:55:44.026Z
-updated: 2025-01-30T05:25:55.428Z
+date: 2025-02-06T17:36:08.902Z
+updated: 2025-02-11T16:53:18.815Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Stay tuned to learn more!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why you prefer Windows Photo Viewer
@@ -74,13 +74,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,16 +96,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -114,11 +114,11 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -145,20 +145,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-linguistic-inputs-utilize-no-fee-required/"><u>[New] 2024 Approved Linguistic Inputs, Utilize No Fee Required</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-mastering-metaverse-marketing-techniques-for-2024/"><u>[New] Mastering Metaverse Marketing Techniques for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-previewed-activities-on-facebook-are-you-exposed-for-2024/"><u>[New] Previewed Activities on Facebook Are You Exposed for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-seamless-integration-of-obs-studio-with-android-tech-for-2024/"><u>[New] Seamless Integration of OBS Studio with Android Tech for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-color-grading-mastery-with-an-insight-into-lut-usage/"><u>[Updated] 2024 Approved Color Grading Mastery with an Insight Into LUT Usage</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-simplified-tutorial-mastering-meets-background-blur/"><u>[Updated] 2024 Approved Simplified Tutorial Mastering Meet's Background Blur</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-gain-an-edge-in-views-with-these-5-youtube-thumbnail-creators/"><u>[Updated] Gain an Edge in Views with These 5 YouTube Thumbnail Creators</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-basic-approach-adjust-sea-creature-tones-in-windows-os/"><u>[Updated] In 2024, Basic Approach Adjust Sea Creature Tones in Windows OS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-subtle-reduction-of-volume-in-fl-studio/"><u>[Updated] Subtle Reduction of Volume in FL Studio</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-perfecting-the-art-of-interviews-iphone-and-ipad-recording-techniques/"><u>2024 Approved Perfecting the Art of Interviews IPhone & iPad Recording Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/complete-guide-to-using-google-docs-for-speech-recognition/"><u>Complete Guide to Using Google Docs for Speech Recognition</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-a18-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Oppo A18?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-top-tier-vr-engine-software-a-comprehensive-review/"><u>In 2024, Top-Tier VR Engine Software A Comprehensive Review</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unlock-creative-potential-image-curve-magic-in-ps/"><u>[New] 2024 Approved Unlock Creative Potential Image Curve Magic in PS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-zero-cost-image-booster-online-plus-mobile-app/"><u>[New] Best Zero-Cost Image Booster Online + Mobile App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elevate-your-visual-storytelling-complimentary-basics-plus-paid-upgrade-lut-sets/"><u>[New] Elevate Your Visual Storytelling Complimentary Basics + Paid-Upgrade LUT Sets</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-professional-guide-to-recording-high-quality-audio/"><u>[New] Professional Guide to Recording High-Quality Audio</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-movie-journey-for-inspiration-seekers/"><u>[New] The Ultimate Movie Journey for Inspiration Seekers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-a-compilation-of-the-best-10-image-sharing-sites/"><u>[Updated] 2024 Approved A Compilation of the Best 10 Image Sharing Sites</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-rapid-accessibility-of-instagram-videos-and-stories/"><u>[Updated] 2024 Approved Rapid Accessibility of Instagram Videos and Stories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-instant-access-windows-photos-view/"><u>[Updated] Instant Access Windows Photos View</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-step-by-step-guide-to-creating-a-peak-vr-environment/"><u>[Updated] Step-by-Step Guide to Creating a Peak VR Environment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-stepwise-quietening-routine-for-mixes-for-2024/"><u>[Updated] Stepwise Quietening Routine for Mixes for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-zooming-into-success-livestream-mastery-with-zoom-and-youtube/"><u>2024 Approved Zooming Into Success Livestream Mastery with Zoom and YouTube</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/dolby-digital-woes-on-windows-11-heres-how-to-successfully-restart-and-fix-the-audio-driver-glitch/"><u>Dolby Digital Woes on Windows 11? Here's How to Successfully Restart and Fix the Audio Driver Glitch</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-iphones-sound-issues-clear-up-no-audio-and-improve-sound-quality-now/"><u>Fix Your iPhone's Sound Issues: Clear Up No Audio and Improve Sound Quality Now</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-realme-11-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Realme 11 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/step-by-step-approach-to-rectifying-greenscreen-issues/"><u>Step-by-Step Approach to Rectifying Greenscreen Issues</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-best-budget-friendly-high-fidelity-webm-players-for-2024/"><u>The Best Budget-Friendly, High-Fidelity WebM Players for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-perfect-photo-safe-mix-zero-cost-cloud-with-elite-paid-options-for-2024/"><u>The Perfect Photo Safe Mix Zero-Cost Cloud with Elite Paid Options for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate Media Creator Win8\""
-date: 2024-08-08T06:48:05.094Z
-updated: 2024-08-09T06:48:05.094Z
+date: 2025-02-06T16:15:53.200Z
+updated: 2025-02-11T16:45:46.526Z
 tags: 
   - screen-recording
   - ai video
@@ -34,31 +34,29 @@ Nowadays more and more people taking photos in an exceptional manner and creatin
 
 Filmora is compatible for Windows 7/8/8.1/10 64-bit PC and Mac OSX 10.11 or above Mac computer, and you can edit the same video project on both Mac or PC computer. In you haven’t heard about Filmora, check the video below and download it for free to check its magic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 We have written so many articles about [how to edit videos](https://tools.techidaily.com/wondershare/filmora/download/) with Filmora on Windows, to keep the content clean, you can check our guide about How to Edit videos. But if you have any questions about editing videos in Filmora, leave a comment below and I’ll reply the comment soon.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to use DVD slideshow Builder on Windows 8
 
 The content below will tell you how to make a video movie using [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/).
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 1.Install video movie software and import files
 
 Download and install [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), in "Organize" tab, drag and drop your digital photos to the storyboard (you can also add videos from computer or camera as you like).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![video movie maker](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then add background music in "Personalize" tab. You can click "Music" button to add or just drag the music to the background track. You can add sounds or your own record by clicking "Voice Over".
 
@@ -70,11 +68,12 @@ You can also add some adorable elements to make your movie video more funny and 
 
 ![DVD Slideshow Personalize](https://images.wondershare.com/filmora/article-images/dvd-slideshow-personalize.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3.Save your own video movie or share online
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![DVD Slideshow Create](https://images.wondershare.com/filmora/article-images/dvd-slideshow-create.jpg)
 
 Now hit "Create", and preview your video movie. Then choose a way to output. Here are some options for you:
@@ -88,19 +87,21 @@ Ok, that's done. You see, with this **video movie maker for windows 8**, making 
 
 ![video movie maker for windows 8](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
 Interested in Filmora video editor? Check the YouTube tutorial about Filmora from tutvide and download it to try.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -125,6 +126,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-depth-guide-to-effortless-photo-and-video-file-transfers-in-windows-10/"><u>[Updated] In-Depth Guide to Effortless Photo & Video File Transfers in Windows 10</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/1-identifying-your-pcs-graphics-card-issues-on-windows-a-comprehensive-guide-by-yl-software/"><u>1. Identifying Your PC's Graphics Card Issues on Windows - A Comprehensive Guide by YL Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-building-striking-podcast-branding-logo-design-guide/"><u>2024 Approved Building Striking Podcast Branding Logo Design Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-core-understanding-of-narrative-frameworks/"><u>2024 Approved Core Understanding of Narrative Frameworks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-filmoras-route-to-convert-avi-to-eye-catching-gifs/"><u>2024 Approved Filmora’s Route to Convert AVI to Eye-Catching GIFs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-navigating-the-highest-rated-pixel-soundtracks-online/"><u>2024 Approved Navigating the Highest-Rated Pixel Soundtracks Online</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-optimal-devices-for-photogrammetric-movies/"><u>2024 Approved Optimal Devices for Photogrammetric Movies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-tier-hdr-camera-selection-made-easy/"><u>2024 Approved Top-Tier HDR Camera Selection Made Easy</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-fixes-to-address-the-wlanapidll-error-and-improve-system-stability/"><u>Effective Fixes to Address the WLANAPI.DLL Error and Improve System Stability</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/get-ready-for-the-future-of-android-a-step-by-step-guide-to-downloading-and-installing-android-13-beta-1-plus-tips-on-when-to-upgrade/"><u>Get Ready for the Future of Android: A Step-by-Step Guide to Downloading & Installing Android 13 Beta 1 - Plus, Tips on When to Upgrade!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/in-depth-info-ps5-slim-model-pricing-insights-debut-dates-and-features-compared/"><u>In-Depth Info: PS5 Slim Model - Pricing Insights, Debut Dates & Features Compared</u></a></li>
+<li><a href="https://howto.techidaily.com/itel-a60-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel A60 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvel-avengers-evaluation-outstanding-entertainment-or-just-ordinary/"><u>Marvel Avengers Evaluation: Outstanding Entertainment or Just Ordinary?</u></a></li>
+</ul></div>
 
