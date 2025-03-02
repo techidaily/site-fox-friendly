@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transformative Text in Creative Photography & Video\""
-date: 2025-02-08T16:20:58.427Z
-updated: 2025-02-11T17:35:00.366Z
+date: 2025-03-01T16:05:48.058Z
+updated: 2025-03-02T17:17:25.161Z
 tags: 
   - screen-recording
   - ai video
@@ -71,17 +71,9 @@ Click the Window menu to open the Layers panel and click Layers.
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4\
 
 Click on the T icon located in the Tools panel. You can also click on the Window and select Tools if you don't see the Tools panel. After opening the Type toolbar, choose the text size, color, and font you'll use for the distorted text. Now, click the canvas, and then type the text you want to distort. The text appears in a non-distorted format when you type.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 5\
 
@@ -225,10 +217,6 @@ Click on the New Layer icon that resembles a bent-corner sticky note.
 
 Click on the T icon located in the Tools panel. You can also click on the Window and select Tools if you don't see the Tools panel. After opening the Type toolbar, choose the text size, color, and font you'll use for the distorted text. Now, click the canvas, and then type the text you want to distort. The text appears in a non-distorted format when you type.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 5\
 
 Check the list and right-click on the new text layer with a T icon symbol and the words you have typed. Select the Rasterize Layer option; this will turn the box with the T icon into a white and gray checkerboard.
@@ -252,10 +240,6 @@ Take one of the middleboxes and pull and drug them on either the bottom or top t
 ### Step 9\
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 10\
 
@@ -320,10 +304,6 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Wavy Text Generator
 
@@ -435,10 +415,6 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 ![how to distort text in video with canva](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. You can download your video with text distortion or share it on your social media platforms.
 
 ## Bonus! Free Online Text Distorter
@@ -492,10 +468,6 @@ Over the past few years, distortion effects have become popular. People also app
 02 [How to Distort Text in Photography Using Photoshop](#part2)
 
 03 [How to Distort Text in Video?](#part3)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Is Text Distortion?
 
@@ -591,10 +563,6 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 You can also distort text with online tools. You need an internet connection and your PC or mobile device to use these platforms. Here are some of the popular online text distorters you'll find online.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. PicMonkey
 
 This online tool provides photo editing and graphic design tools, and you can use it to distort the text in your photo. PicMonkey.com allows you to put your words into arcs and circles to create typography art. You can also add drop shadow, and knockout, to outline the center of the distorted text. The handles on both sides of the text box allow you to resize the diameter of the circled text or scrunch up or stretch out your arched text. Additionally, you can add spaces between the letters and play with the kerning of the text.
@@ -609,19 +577,11 @@ Many graphic designers use this tool to create distorted text on badges, labels,
 
 ![online text distorter - MockoFun](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Zalgo
 
 Zalgo Text Generator is an online tool that allows you to create glitch text. The Zalgo text will be a glitchy form of usual text. Zalgo.org is also free to use this online text distorter.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. GFTO
 
@@ -663,19 +623,17 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-essential-guide-for-newbies-visual-fidelity-in-videos/"><u>[New] 2024 Approved Essential Guide for Newbies Visual Fidelity in Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-bridging-gap-integrating-zoom-into-your-gmail-setup/"><u>[New] Bridging Gap Integrating Zoom Into Your Gmail Setup</u></a></li>
-<li><a href="https://common-error.techidaily.com/solved-wmi-provider-host-high-cpu-usage-on-windows-1111-quickly-and-easily/"><u>[Solved] WMI Provider Host: High CPU Usage on Windows 11/11 | Quickly & Easily!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-optimizing-footage-variety-in-your-video-production/"><u>[Updated] 2024 Approved Optimizing Footage Variety in Your Video Production</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-digital-canvas-the-path-to-photomosaic-mastery-for-2024/"><u>[Updated] Digital Canvas The Path to PhotoMosaic Mastery for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevate-your-video-voyage-navigating-the-world-of-youtube-links/"><u>[Updated] Elevate Your Video Voyage Navigating the World of YouTube Links</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-secret-sauce-to-staying-fresh-on-instagram-a-4-step-guide-to-gifs/"><u>[Updated] The Secret Sauce to Staying Fresh on Instagram A 4-Step Guide to GIFs</u></a></li>
-<li><a href="https://win11.techidaily.com/amplifying-age-old-directx-experience-via-dxvk-compatibility/"><u>Amplifying Age-Old DirectX Experience via DXVK Compatibility</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/audio-exploration-at-your-fingertips-with-audible-membership/"><u>Audio Exploration at Your Fingertips with Audible Membership</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-live-streaming-simplified-a-guide-to-using-onestream/"><u>In 2024, Live Streaming Simplified A Guide to Using OneStream</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/innovative-techniques-for-effective-look-up-table-lut-applications-in-adobe-photoshop-cc/"><u>Innovative Techniques for Effective Look-Up Table (LUT) Applications in Adobe PhotoShop CC</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/pc-5/"><u>PCが黒い画面で起動しない時の最適処置方法 重要5ステップ！</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/reassessing-the-updates-to-sonys-s6500-bdhd-player-for-2024/"><u>Reassessing the Updates to Sony's S6500 BD/HD Player for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-techniques-to-remove-audio-from-updated-avi-software-file/"><u>Updated Techniques to Remove Audio From Updated AVI Software File</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-perfecting-sound-levels-in-recordings-step-by-step-guide/"><u>[New] 2024 Approved Perfecting Sound Levels in Recordings Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oost-engagement-with-quick-unique-coverage-options-on-shorts-for-2024/"><u>[New] Boost Engagement with Quick, Unique Coverage Options on Shorts for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-core-concepts-in-moving-graphic-artistry/"><u>[Updated] 2024 Approved Core Concepts in Moving Graphic Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-leading-live-tv-streams-combo-of-global-and-locals/"><u>[Updated] Leading Live TV Streams Combo of Global and Locals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/flaskful-formula-freaks/"><u>FLASKFUL FORMULA FREAKS</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-repairing-user-profile-service-malfunctions-and-ensuring-successful-logins-in-windows-1011/"><u>Guide: Repairing 'User Profile Service' Malfunctions and Ensuring Successful Logins in Windows 10/11</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-13-to-windows-10-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 13 to Windows 10? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-40-pro-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 40 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pinnacle-blu-ray-players-1s/"><u>Pinnacle Blu-Ray Players - #1S</u></a></li>
+<li><a href="https://discover-data.techidaily.com/resolving-the-issue-of-excessive-cpu-usage-by-windows-module-installer-top-11-fixes/"><u>Resolving the Issue of Excessive CPU Usage by Windows Module Installer: Top 11 Fixes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-role-of-extras-in-creating-dynamic-storytelling-for-2024/"><u>The Role of Extras in Creating Dynamic Storytelling for 2024</u></a></li>
+<li><a href="https://win-bits.techidaily.com/unique-wallpaper-creations-with-slay-discover-by-yl-computing/"><u>Unique Wallpaper Creations with Slay - Discover by YL Computing</u></a></li>
 </ul></div>
 

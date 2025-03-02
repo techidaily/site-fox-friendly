@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  2022 Beijing Games  A Chilly Snapshot\""
-date: 2025-02-04T16:12:40.876Z
-updated: 2025-02-11T17:36:14.912Z
+date: 2025-02-28T18:53:08.999Z
+updated: 2025-03-02T16:41:53.666Z
 tags: 
   - screen-recording
   - ai video
@@ -61,25 +61,13 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Van der Poel Breaks the World Record
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
@@ -87,15 +75,7 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
@@ -113,10 +93,6 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
@@ -130,10 +106,6 @@ Zhou is considering the silver win as a consolation prize but he could not showc
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -156,19 +128,17 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-step-by-step-process-for-making-a-stellar-podcast-launch-video/"><u>[New] 2024 Approved Step-By-Step Process for Making a Stellar Podcast Launch Video</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-say-goodbye-to-stumbles-in-your-instagram-stream/"><u>[New] Say Goodbye to Stumbles in Your Instagram Stream</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-zoom-transcoding-mastery-essential-three-step-approach-for-2024/"><u>[New] Zoom Transcoding Mastery Essential Three-Step Approach for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ensuring-long-term-access-to-itunes-videos/"><u>[Updated] 2024 Approved Ensuring Long-Term Access to iTunes Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-gateway-to-success-with-a-bundle-of-50-free-adornments/"><u>[Updated] 2024 Approved Your Gateway to Success with a Bundle of 50 FREE Adornments</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-ideal-iphone-photo-apps-for-slide-shows-xr-to-x-for-2024/"><u>[Updated] Ideal iPhone Photo Apps for Slide Shows (XR to X) for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-peeking-at-high-resolution-display-innovation-the-dell-p2715q-review/"><u>[Updated] In 2024, Peeking at High-Resolution Display Innovation - The Dell P2715Q Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transform-your-watching-experience-adding-captions-to-windows-media-player/"><u>[Updated] In 2024, Transform Your Watching Experience Adding Captions to Windows Media Player</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unlock-the-full-potential-of-vr-on-your-android-device/"><u>[Updated] In 2024, Unlock the Full Potential of VR on Your Android Device</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-lenovo-thinkpad-x230-drivers-fast-and-simple-guide/"><u>Download & Install Lenovo ThinkPad X230 Drivers - Fast & Simple Guide</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expert-picks-the-most-advanced-weather-watching-tools-of-2e24/"><u>Expert Picks: The Most Advanced Weather Watching Tools of 2E24</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-asus-rog-phone-7-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Asus ROG Phone 7 Phones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/revolutionary-q500-the-ultimate-4k-bird-for-2024/"><u>Revolutionary Q500 The Ultimate 4K Bird for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/zoo-call-sounds-crystal-clear-with-fixes/"><u>Zoo Call Sounds Crystal Clear with Fixes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-elite-camera-drones-10-unveiling-visuals-like-never-before/"><u>[New] 2024 Approved Elite Camera Drones #10 Unveiling Visuals Like Never Before</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-asus-proart-hdr-master-the-4k-quest-continues/"><u>[New] In 2024, ASUS ProArt HDR Master The 4K Quest Continues</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-scripting-a-powerful-tiktok-outro-statement/"><u>[Updated] 2024 Approved Scripting a Powerful TikTok Outro Statement</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-chucklechasm-exciting-places-to-get-comical-calls-for-2024/"><u>[Updated] ChuckleChasm Exciting Places to Get Comical Calls for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/correcting-mute-issues-in-screencasts-with-powerpoint/"><u>Correcting Mute Issues in Screencasts with PowerPoint</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-iphone-12-mini-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My iPhone 12 mini?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-art-of-video-grading-a-practical-handbook/"><u>In 2024, The Art of Video Grading A Practical Handbook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-smart-technique-for-iphone-videos-reduction-and-scaling/"><u>In 2024, The Smart Technique for iPhone Videos Reduction & Scaling</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-ultimate-routes-turning-pinterest-vids-into-music-files/"><u>In 2024, Ultimate Routes Turning Pinterest Vids Into Music Files</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/razers-innovation-at-work-hot-swappable-keyboard-reviewed/"><u>Razer's Innovation at Work - Hot-Swappable Keyboard Reviewed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/voice-over-basics-from-script-to-screen-for-2024/"><u>Voice-Over Basics From Script to Screen for 2024</u></a></li>
 </ul></div>
 

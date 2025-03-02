@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fashioning a Footprint  Fonts for Visual Stories in AE for 2024\""
-date: 2025-02-05T16:26:14.765Z
-updated: 2025-02-11T17:25:58.039Z
+date: 2025-02-25T19:18:27.525Z
+updated: 2025-03-02T18:50:56.483Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
 
 ![browse fonts adobe](https://images.wondershare.com/filmora/article-images/2022/07/browse-fonts-adobe.jpg)
@@ -70,10 +66,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -85,10 +77,6 @@ If for some reason you don't want to use After Effects on your device to edit yo
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
@@ -115,20 +103,12 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,18 +138,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-elevate-your-youtube-creation-by-merging-media-and-music/"><u>[New] 2024 Approved Elevate Your YouTube Creation by Merging Media and Music</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-to-remove-images-background-in-canva/"><u>[New] 2024 Approved How to Remove Image's Background In Canva</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-swiftly-survey-your-windows-documentation-for-2024/"><u>[New] Swiftly Survey Your Windows Documentation for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-syma-x8c-mastering-advanced-maneuvers/"><u>[New] Syma X8C Mastering Advanced Maneuvers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-platform-pair-comparison-twitch-and-youtube/"><u>[New] The Ultimate Platform Pair Comparison Twitch and YouTube</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-dive-into-multi-tasking-mastery-with-chromes-pip-feature/"><u>[Updated] Dive Into Multi-Tasking Mastery with Chrome's PIP Feature</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-streamlining-audacity-for-superior-audio-capture-for-2024/"><u>[Updated] Streamlining Audacity for Superior Audio Capture for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-samsung-galaxy-f14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/effective-multitasking-during-podcast-engagement-for-2024/"><u>Effective Multitasking During Podcast Engagement for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-best-free-premiere-pro-templates/"><u>In 2024, Best Free Premiere Pro Templates</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/spectral-perfection-program/"><u>Spectral Perfection Program</u></a></li>
-<li><a href="https://games-able.techidaily.com/stylus-symphony-tablet-takes-over-mice/"><u>Stylus Symphony: Tablet Takes Over Mice</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-huawei-p60-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Huawei P60 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-from-frame-to-script-innovative-ways-of-integrating-text-in-images/"><u>[New] 2024 Approved From Frame to Script Innovative Ways of Integrating Text in Images</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-innovative-methods-for-shuffling-yt-playlists/"><u>[New] In 2024, Innovative Methods for Shuffling YT Playlists</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-zoom-email-integration-tips-for-efficient-meetings-for-2024/"><u>[New] Mastering Zoom Email Integration Tips for Efficient Meetings for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unseen-approaches-to-bypass-online-educational-content/"><u>[New] Unseen Approaches to Bypass Online Educational Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-beyond-the-veil-of-space-time-the-greatest-sci-fi-films-experiences-for-2024/"><u>[Updated] Beyond the Veil of Space-Time The Greatest Sci-Fi Films' Experiences for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-step-by-step-guide-to-seamless-editing-of-full-spherical-video-content/"><u>[Updated] Step-by-Step Guide to Seamless Editing of Full Spherical Video Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/beyond-sharex-exploring-superior-tools-for-2024/"><u>Beyond-ShareX Exploring Superior Tools for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/evaluating-your-systems-health-a-guide-to-inspecting-computer-hardware-tips-from-yl-computing/"><u>Evaluating Your System's Health: A Guide to Inspecting Computer Hardware - Tips From YL Computing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-xiaomi-14-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Xiaomi 14 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/las-16-maximas-reproductoras-de-imagenes-en-cinta-para-sistemas-windows-y-apple-seleccion-ideal/"><u>Las 16 Máximas Reproductoras De Imágenes en Cinta Para Sistemas Windows Y Apple: Selección Ideal</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/marker-assisted-selection-can-expedite-the-identification-of-desirable-traits-within-a-genetically-diverse-population/"><u>Marker-Assisted Selection Can Expedite the Identification of Desirable Traits Within a Genetically Diverse Population</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/seo-revolution-transforming-your-content-visibility/"><u>SEO Revolution Transforming Your Content Visibility</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/upgrade-your-viewing-experience-with-tcls-enhanced-q-and-s-series-lineup-now-including-1-19-cutting-edge-models/"><u>Upgrade Your Viewing Experience With TCL's Enhanced Q and S Series Lineup, Now Including 1 19 Cutting-Edge Models</u></a></li>
 </ul></div>
 

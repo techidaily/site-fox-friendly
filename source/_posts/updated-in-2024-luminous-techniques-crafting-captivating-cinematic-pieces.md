@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Luminous Techniques  Crafting Captivating Cinematic Pieces\""
-date: 2025-02-04T18:14:24.588Z
-updated: 2025-02-11T17:05:35.519Z
+date: 2025-02-27T18:35:46.932Z
+updated: 2025-03-02T16:29:41.286Z
 tags: 
   - screen-recording
   - ai video
@@ -26,10 +26,6 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -69,10 +65,6 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
 ##### Step4 Use Practical Lights
@@ -80,10 +72,6 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
@@ -103,19 +91,11 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Summary
 
@@ -151,14 +131,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-cost-free-treasure-hunts-finding-gorgeous-tiktok-backdrops-for-2024/"><u>[New] Cost-Free Treasure Hunts Finding Gorgeous TikTok Backdrops for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-explore-our-1-ranked-facebook-video-downloading-apps-for-ios/"><u>[New] Explore Our #1 Ranked Facebook Video Downloading Apps for iOS</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-hasten-artistic-touch-ups-on-windows-10-photos/"><u>[New] Hasten Artistic Touch-Ups on Windows 10 Photos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-navigating-sierra-icloud-for-seamless-access/"><u>[New] Navigating Sierra iCloud for Seamless Access</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-next-generation-of-green-visual-effects-tools-for-2024/"><u>[New] Next Generation of Green Visual Effects Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-setting-up-personalized-video-shots-on-youtube/"><u>[Updated] 2024 Approved Setting Up Personalized Video Shots on YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-perfectly-smooth-window-snap-tool/"><u>[Updated] In 2024, Perfectly Smooth Window Snap Tool</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-connoisseurs-choice-15-elite-gopro-accessories/"><u>[Updated] In 2024, The Connoisseur's Choice 15 Elite GoPro Accessories</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-apple-iphone-15-pro-max-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On Apple iPhone 15 Pro Max If Youve Tried Everything</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-comprehensive-manual-for-effective-morphvox-voice-changes/"><u>[New] 2024 Approved The Comprehensive Manual for Effective MorphVOX Voice Changes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-from-novice-to-vlogger-top-tips-to-enhance-your-tiktok-videos/"><u>[New] From Novice to Vlogger Top Tips to Enhance Your TikTok Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-instant-youtube-financial-forecasting/"><u>[New] Instant YouTube Financial Forecasting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-present-day-drones-and-their-upcoming-role-evolution-for-2024/"><u>[New] Present-Day Drones and Their Upcoming Role Evolution for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-becoming-an-illustration-maestro-best-mac-free-tools/"><u>[Updated] 2024 Approved Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-best-settings-audience-focused-screen-shots-for-2024/"><u>[Updated] Best Settings Audience-Focused Screen Shots for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-frugal-flight-assemblies-budget-friendly-drones-ranking-for-2024/"><u>[Updated] Frugal Flight Assemblies Budget-Friendly Drones Ranking for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-elevate-create-and-earn-a-startup-guide-for-youtube-channels/"><u>[Updated] In 2024, Elevate, Create & Earn A Startup Guide for YouTube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-personalize-your-channel-with-free-pics-in-2024/"><u>[Updated] Personalize Your Channel With Free Pics, In 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-poco-f5-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Poco F5 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-advice-on-gadgets-and-pc-hardware-from-toms-forum/"><u>Expert Advice on Gadgets and PC Hardware From Tom's Forum</u></a></li>
+<li><a href="https://fox-links.techidaily.com/full-examination-of-djis-drone-inspire-1/"><u>Full Examination of DJI's Drone, Inspire 1</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-creative-video-overlays-top-10-essentials/"><u>In 2024, Creative Video Overlays Top 10 Essentials</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/leverage-cookiebot-technology-for-enhanced-web-presence/"><u>Leverage Cookiebot Technology for Enhanced Web Presence</u></a></li>
+<li><a href="https://program-issues.techidaily.com/minecraft-freeze-fixes-top-tips-to-get-your-game-running-smoothly-again/"><u>Minecraft Freeze Fixes: Top Tips to Get Your Game Running Smoothly Again</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-vivo-x100-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Vivo X100? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/uncover-the-best-10-online-vectors-collections-for-2024/"><u>Uncover the Best 10 Online Vectors Collections for 2024</u></a></li>
 </ul></div>
 

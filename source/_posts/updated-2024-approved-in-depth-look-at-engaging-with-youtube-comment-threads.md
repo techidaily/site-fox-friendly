@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  In-Depth Look at Engaging with YouTube Comment Threads\""
-date: 2025-02-09T16:28:50.978Z
-updated: 2025-02-11T17:39:43.535Z
+date: 2025-02-25T19:01:55.533Z
+updated: 2025-03-02T16:19:35.397Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ Want to become the master of moderation? Read on for everything you need to know
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is YouTube Comment
 
 YouTube comments are an opportunity for the site's 1.7 million unique monthly visitors to share what they love, hate or simply must troll. It's like the internet own personal Thunderdome, but while it can be a place for negativity, YouTube comments can also be a powerful opportunity for positive community building and engagement.
@@ -44,10 +40,6 @@ YouTube comments are an opportunity for the site's 1.7 million unique monthly vi
 Not only does it show your fans followers that you care about what they have to say, engaging with comments has they have to say, engaging with comments has the added benefit of boosting you in the YouTube algorithm. Videos with lots of likes, replies and moderation tend to show up higher in search results.
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Advantage of YouTube comments
 
@@ -68,10 +60,6 @@ Each comment you leave is another reference and exposure to your brand (and a ch
 Step1 Below the video itself, find the comment section.
 
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
 
@@ -94,10 +82,6 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
 
@@ -135,10 +119,6 @@ Comments history also contains the link to the video where you've left the comme
 
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 YouTube allows users to view and edit all the comments they have made on YouTube videos on both desktop and mobile apps. You can also edit or delete the comment if you so wish However you cannot delete any comments you made on YouTube from the Google my Activity page. It can be done from within the YouTube app only.
@@ -175,18 +155,21 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-excursion-videography-tools-compilation/"><u>[New] Excursion Videography Tools Compilation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-from-novice-to-pro-periscope-stream-mastery/"><u>[Updated] 2024 Approved From Novice to Pro Periscope Stream Mastery</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premier-live-basketball-experience-at-home/"><u>[Updated] 2024 Approved Premier Live Basketball Experience at Home</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-perfect-process-iphones-podcast-downloading-technique/"><u>[Updated] 2024 Approved Unveiling the Perfect Process IPhone's Podcast Downloading Technique</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-effortless-online-subtitles-the-leading-free-services-for-2024/"><u>[Updated] Effortless Online Subtitles The Leading Free Services for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-steps-to-acquire-free-and-safe-vlc-player-on-a-mac-computer/"><u>2024 Approved Steps to Acquire Free and Safe VLC Player on a Mac Computer</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/experience-retro-gaming-with-these-top-6-super-mario-bros-hits-for-your-computer/"><u>Experience Retro Gaming with These Top 6 Super Mario Bros Hits for Your Computer</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-from-novice-to-master-the-ultimate-periscope-handbook/"><u>In 2024, From Novice to Master The Ultimate Periscope Handbook</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-honor-magic5-ultimate-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Honor Magic5 Ultimate Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-unpacking-the-virb-ultra-30-action-cam-by-garmin/"><u>In 2024, Unpacking the VIRB Ultra 30 Action Cam by Garmin</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/score-the-cheapest-apple-watch-series-9-ever-after-prime-deals-end-special-discounts-revealed/"><u>Score the Cheapest Apple Watch Series 9 Ever After Prime Deals End | Special Discounts Revealed</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-ultimate-list-of-ios-solutions-to-play-your-favorite-psp-games/"><u>The Ultimate List of iOS Solutions to Play Your Favorite PSP Games</u></a></li>
-<li><a href="https://win11.techidaily.com/utilizing-pythons-socket-module-for-windows-network-files/"><u>Utilizing Python's Socket Module for Windows Network Files</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-enhancing-auditory-appreciation-via-iphones-playback/"><u>[New] In 2024, Enhancing Auditory Appreciation via iPhone's Playback</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-microscopic-views-in-microsoft-teams-chat-for-2024/"><u>[New] Mastering the Microscopic Views in Microsoft Teams Chat for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-enhancing-your-video-editing-skills-with-magix/"><u>[Updated] In 2024, Enhancing Your Video Editing Skills with Magix</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-step-by-step-shooting-stunning-timelapse-videos-on-black-hero5/"><u>[Updated] In 2024, Step by Step Shooting Stunning Timelapse Videos on Black Hero5</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-guide-80s-vhs-tricks-for-dynamic-edits-for-2024/"><u>[Updated] Ultimate Guide 80'S VHS Tricks for Dynamic Edits for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cognitive-conclave-selective-general-knowledge-channels-for-2024/"><u>Cognitive Conclave Selective General Knowledge Channels for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-guide-keeping-your-airpods-pristine-the-complete-cleaning-and-sanitizing-process/"><u>Essential Guide: Keeping Your AirPods Pristine - The Complete Cleaning & Sanitizing Process</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-elevate-your-content-selecting-the-best-video-aspect-ratio/"><u>In 2024, Elevate Your Content Selecting the Best Video Aspect Ratio</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-honor-magic-6-lite-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Honor Magic 6 Lite Phones with/without a PC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-pro-photo-framegers-to-polish-pictures-online/"><u>In 2024, Pro Photo Framegers to Polish Pictures Online</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-the-techniques-preventing-battlefield-1-from-crashing-instantly/"><u>Master the Techniques: Preventing Battlefield 1 From Crashing Instantly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/masterpieces-14-animated-textual-works/"><u>Masterpieces 14 Animated Textual Works</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-instagram-to-tiktok-connection-protocol/"><u>The Instagram to TikTok Connection Protocol</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-guide-to-premium-car-cellphone-docking-devices/"><u>Ultimate Guide to Premium Car Cellphone Docking Devices</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-galaxy-s23-fe-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Galaxy S23 FE</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/yl-software-tutorial-mastering-your-display-configuration-steps/"><u>YL Software Tutorial: Mastering Your Display Configuration Steps</u></a></li>
 </ul></div>
 

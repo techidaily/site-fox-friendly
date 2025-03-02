@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Light on Shadows  Techniques for Depth in Illustrator\""
-date: 2024-08-22T20:28:47.246Z
-updated: 2024-08-23T20:28:47.246Z
+date: 2025-02-26T16:04:59.265Z
+updated: 2025-03-02T18:37:25.277Z
 tags: 
   - screen-recording
   - ai video
@@ -66,9 +66,6 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 
 Step9 Finally, it's time to export the image, and you're all done.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Best Alternative Way to Create 3D Text Animation
 
 You might not believe it, but there's an even more accessible and less expensive way to create 3D text effects. You can use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Compared to Illustrator, Filmora is much better for beginners and more affordable.
@@ -79,9 +76,6 @@ You might not believe it, but there's an even more accessible and less expensive
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -92,16 +86,10 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
@@ -114,9 +102,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -127,9 +112,6 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
@@ -164,8 +146,26 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-expert-tips-for-penning-engaging-vlogger-scripts/"><u>[New] 2024 Approved Expert Tips for Penning Engaging Vlogger Scripts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unveiling-the-secrets-of-automatic-transcription-in-google-docs/"><u>[New] 2024 Approved Unveiling the Secrets of Automatic Transcription in Google Docs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-premium-and-basic-win-driven-design-applications-guide/"><u>[Updated] 2024 Approved Premium & Basic Win-Driven Design Applications Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-4k-mastery-in-asuss-proart-pa-329q-display/"><u>[Updated] 2024 Approved Unveiling the 4K Mastery in Asus's ProArt PA 329Q Display</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-high-definition-videography-unveiled-by-yi/"><u>[Updated] High Definition Videography Unveiled by Yi</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-srt-to-sub-magic-three-effective-ways/"><u>[Updated] In 2024, SRT to SUB Magic Three Effective Ways</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-depth-guide-to-automatic-text-generation-with-google-docs-voice-recognition-for-2024/"><u>[Updated] In-Depth Guide to Automatic Text Generation with Google Docs Voice Recognition for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-portrait-perfection-free-official-passport-image-generator-download/"><u>[Updated] Portrait Perfection Free, Official Passport Image Generator Download</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secrets-to-the-ultimate-5-free-pinterest-video-loader/"><u>2024 Approved Secrets to the Ultimate 5-Free Pinterest Video Loader</u></a></li>
+<li><a href="https://win-forum.techidaily.com/effective-techniques-to-rollback-windows-11-software-upgrades/"><u>Effective Techniques to Rollback Windows 11 Software Upgrades</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-realme-v30t-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme V30T If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/implement-now-eight-cutting-edge-ai-language-models-for-personalization/"><u>Implement Now: Eight Cutting-Edge AI Language Models for Personalization</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-leading-360-degree-pro-cams-2023-edition-review/"><u>In 2024, Leading 360-Degree Pro Cams 2023 Edition Review</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-lightning-fast-photo-reader-for-pcs/"><u>In 2024, Lightning-Fast Photo Reader for PCs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-prime-applications-transforming-vtuber-voices-on-the-fly/"><u>In 2024, Prime Applications Transforming VTuber Voices on the Fly</u></a></li>
+<li><a href="https://techtrends.techidaily.com/introducing-apples-new-ultimate-entertainment-device-the-revolutionary-vision-pro/"><u>Introducing Apple’s New 'Ultimate Entertainment Device': The Revolutionary Vision Pro</u></a></li>
+<li><a href="https://windows11.techidaily.com/powertoys-lockmaster-a-compreayers-guide-to-files/"><u>PowerToys Lockmaster: A Compreayer's Guide to Files</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/troubleshooting-and-fixing-hp-officejet-pro-n-series-drivers/"><u>Troubleshooting and Fixing HP OfficeJet Pro N Series Drivers</u></a></li>
+<li><a href="https://win-help.techidaily.com/what-you-need-to-know-microsoft-announces-paid-pricing-plan-for-windows-11-updates-cost-breakdown/"><u>What You Need To Know: Microsoft Announces Paid Pricing Plan For Windows 11 Updates - Cost Breakdown</u></a></li>
+</ul></div>
 

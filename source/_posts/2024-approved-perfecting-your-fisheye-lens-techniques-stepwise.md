@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Perfecting Your Fisheye Lens Techniques Stepwise\""
-date: 2024-08-22T20:31:26.161Z
-updated: 2024-08-23T20:31:26.161Z
+date: 2025-02-24T16:03:31.413Z
+updated: 2025-03-02T17:11:00.456Z
 tags: 
   - screen-recording
   - ai video
@@ -36,21 +36,12 @@ thumbnail: https://thmb.techidaily.com/e3894a6ad1afb8650d841abb2ecac55565ace18e9
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -63,11 +54,6 @@ thumbnail: https://thmb.techidaily.com/e3894a6ad1afb8650d841abb2ecac55565ace18e9
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -76,9 +62,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -95,10 +78,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -122,8 +101,23 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-in-pixels-we-trust-a-guide-to-photomontages/"><u>[New] 2024 Approved In Pixels We Trust A Guide to Photomontages</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-ultimate-guide-to-voice-to-text-conversion-using-ms-words-advanced-features/"><u>[New] 2024 Approved The Ultimate Guide to Voice-to-Text Conversion Using MS Word's Advanced Features</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-bridging-virtuality-business-applications-in-vr/"><u>[New] Bridging Virtuality Business Applications in VR</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-clear-vision-how-to-cut-out-image-clutter-on-photopea/"><u>[New] Clear Vision How to Cut Out Image Clutter on Photopea</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-exploring-the-world-of-desktop-capturing-a-sprout-review-for-2024/"><u>[New] Exploring the World of Desktop Capturing - A Sprout Review for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/"><u>[Updated] 2024 Approved Swiftly Move Data Fast and Reliable Methods to Direct Files Onto Your Computer</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-avoid-common-errors-while-spinning-videos-in-android-apps/"><u>[Updated] Avoid Common Errors While Spinning Videos in Android Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-outro-aesthetics-selecting-templates-any-budget/"><u>[Updated] In 2024, Outro Aesthetics Selecting Templates, Any Budget</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-youtube-full-length-view-control-for-2024/"><u>[Updated] Mastering YouTube Full-Length View Control for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-5-samsung-gear-vr-games/"><u>[Updated] Top 5 Samsung Gear VR Games</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-hours-of-content-convert-to-gb-figure/"><u>In 2024, Hours of Content Convert to GB Figure</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/navigating-macos-11-big-sur-system-details-for-2024/"><u>Navigating MacOS 11 Big Sur - System Details for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-vivo-x100-pro-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Vivo X100 Pro with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/solving-isolated-sound-issue/"><u>Solving Isolated Sound Issue</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unmissable-streaming-games-await/"><u>Unmissable Streaming Games Await</u></a></li>
+</ul></div>
 

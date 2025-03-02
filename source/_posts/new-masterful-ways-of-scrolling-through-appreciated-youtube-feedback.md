@@ -1,7 +1,7 @@
 ---
 title: "[New] Masterful Ways of Scrolling Through Appreciated YouTube Feedback"
-date: 2025-02-10T18:24:25.259Z
-updated: 2025-02-11T16:58:20.909Z
+date: 2025-02-23T18:06:17.710Z
+updated: 2025-03-02T17:25:14.692Z
 tags: 
   - screen-recording
   - ai video
@@ -92,10 +92,6 @@ Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
@@ -103,10 +99,6 @@ Step3 Click the **Comments** section.
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 To see videos/comments you liked or disliked, please follow these steps as continuation:
 
@@ -125,10 +117,6 @@ Now you will see the videos you liked or disliked and also the comments you like
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
@@ -182,10 +170,6 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to See Liked Comments on YouTube?
 
 YouTube is a service that is available for free, and it may be a terrific place for teenagers to find interest. Many young people use YouTube to watch comedy shows, how-to videos, recipes, hacks, and music videos. Teenagers also use the video-sharing platform to subscribe to other YouTubers and famous personalities and to follow their favorite vloggers (video bloggers).
@@ -208,10 +192,6 @@ Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
@@ -220,27 +200,15 @@ Now you will see your comment history, including the date when you commented on 
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To see videos/comments you liked or disliked, please follow these steps as continuation:
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
@@ -249,10 +217,6 @@ Now you will see the videos you liked or disliked and also the comments you like
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
@@ -326,20 +290,22 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-capturing-magic-in-motion-a-guide-to-hero5-timelapses/"><u>[New] In 2024, Capturing Magic in Motion A Guide to Hero5 Timelapses</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mirthful-mastery-no-monetary-boundaries-for-2024/"><u>[New] Mirthful Mastery, No Monetary Boundaries for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-pro-gamers-guide-to-superior-webcam-gameplay-capturing-for-2024/"><u>[New] Pro Gamer's Guide to Superior WebCam Gameplay Capturing for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-exploring-the-depths-of-fraps-recorders/"><u>[Updated] 2024 Approved Exploring the Depths of Fraps Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-harmonizing-visuals-and-audio-in-unboxing-videos/"><u>[Updated] 2024 Approved Harmonizing Visuals & Audio in Unboxing Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-vlc-mp4-and-various-format-conversion-techniques/"><u>[Updated] 2024 Approved Mastering VLC MP4 & Various Format Conversion Techniques</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-navigating-color-grading-using-luts-to-refine-your-work-in-ae/"><u>[Updated] Navigating Color Grading Using LUTs to Refine Your Work in AE</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-sonic-overlay-for-serene-scenery-on-screens/"><u>[Updated] Sonic Overlay for Serene Scenery on Screens</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-today-in-virtual-reality-hardware/"><u>[Updated] Today in Virtual Reality Hardware</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/crafting-captivating-livestreams-with-zoom-for-youtube-audiences-for-2024/"><u>Crafting Captivating Livestreams with Zoom for YouTube Audiences for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y200-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo Y200 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://win-updates.techidaily.com/mastering-the-removal-of-superfluous-android-programs-on-your-personal-computer-top-strategies-and-techniques/"><u>Mastering the Removal of Superfluous Android Programs on Your Personal Computer: Top Strategies and Techniques</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mobile-live-streaming-on-yt-without-thousands-in-followers/"><u>Mobile Live Streaming on YT Without Thousands in Followers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/simplify-your-social-media-uploading-multiple-photos-and-vids-on-ig/"><u>Simplify Your Social Media Uploading Multiple Photos and Vids on IG</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/k-your-marketing-potential-with-our-50plus-free-youtube-banners-for-2024/"><u>Unlock Your Marketing Potential with Our 50+ Free YouTube Banners for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-premiere-20-unlicensed-pubg-picture-collections/"><u>[New] 2024 Approved Premiere 20 Unlicensed PUBG Picture Collections</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-command-attention-on-instagram-nine-paths-to-social-media-glory/"><u>[New] Command Attention on Instagram Nine Paths to Social Media Glory</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-gleeful-loginsign-up-step-guide/"><u>[New] Gleeful Login/Sign Up Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-evaluating-m1s-capabilities-for-heavy-duty-media-editing/"><u>[New] In 2024, Evaluating M1's Capabilities for Heavy-Duty Media Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-free-video-openings-that-stand-out-today/"><u>[New] In 2024, Free Video Openings That Stand Out Today</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-movavi-plus-review-a-detailed-look-at-its-version/"><u>[New] Movavi Plus Review – A Detailed Look at Its Version</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-amplify-your-video-content-with-precision-insights-from-social-blade-and-youtube/"><u>[Updated] 2024 Approved Amplify Your Video Content with Precision Insights From Social Blade & YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-best-choice-in-motion-typography-designs/"><u>[Updated] 2024 Approved Best Choice in Motion Typography Designs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-best-live-stream-tools-for-gamers/"><u>[Updated] 2024 Approved Unveiling Best Live-Stream Tools for Gamers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-essential-breakdown-for-wm6-setup/"><u>[Updated] Essential Breakdown for WM6 Setup</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-filming-your-journey-essentials-checklist/"><u>[Updated] Filming Your Journey – Essentials Checklist</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/affordable-precision-with-the-new-logitech-g515-lightspeed-tkl-a-low-profile-mechanical-keyboard-review/"><u>Affordable Precision with the New Logitech G515 Lightspeed TKL: A Low Profile Mechanical Keyboard Review</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-hal-initialization-issues-on-windows-11-a-comprehensive-guide/"><u>Fixing HAL Initialization Issues on Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-pro-max-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Pro Max Passcode Screen?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-shots-and-their-tales-the-most-shared-stock-memes/"><u>In 2024, Top Shots and Their Tales The Most Shared Stock Memes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/navigating-the-nuances-of-premieres-fullscreen-mode-for-2024/"><u>Navigating the Nuances of Premiere's Fullscreen Mode for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-solutions-for-ds4-connectivity-woes-in-windows-systems-with-failed-driver-installs/"><u>Step-by-Step Solutions for DS4 Connectivity Woes in Windows Systems with Failed Driver Installs</u></a></li>
 </ul></div>
 

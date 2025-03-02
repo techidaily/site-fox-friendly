@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Panoramic Filmmaking Made Easy  9 Key Techniques\""
-date: 2024-08-22T20:32:00.678Z
-updated: 2024-08-23T20:32:00.678Z
+date: 2025-02-28T17:05:43.313Z
+updated: 2025-03-02T17:58:40.733Z
 tags: 
   - screen-recording
   - ai video
@@ -44,37 +44,22 @@ thumbnail: https://thmb.techidaily.com/ea0b0402d1ea26fd039e2c69b50b2f77be9bc5a66
 
  You need an unipod to keep the camera setup stable at all times, and at the same time allow you to move with ease. Moving with a tripod can be hard. Another benefit of using a unipod is that it is easier to clean after the video shoot because it only has a single leg, compared to the tripod’s three legs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### 5\. Keep device at the same height as your line of sight
 
  The placement of the camera can affect the experience of the viewers. If the camera is too low, the viewers will feel like they are two feet shorter. It will be like see the world as a mouse. And if the camera is too high, the viewers will feel like they are giants. And if the viewers will be watching the 360 video with a VR headset, the effect will be exaggerated a lot more. That’s why it is important to keep the camera level with your line of sight.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Keep all the videos in the same timeline for easier editing of the video
 
  When the videos are recorded in the same timeline, it will make it easier to edit the video. It is recommended to turn on all the GoPro cameras at the same time. Avoid using a remote control for the cameras because it will cost a lot of power. Another suggestion is to clap your hand around the device. That way you can identify the frame and make it easier to keep the six videos in the same timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### 7\. Use natural light when available
 
  When shooting a 360 degree video, you should consider using natural light or utilize a panoramic shooting studio. That way there will be no light device shown in the resulting video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 8\. Hide the microphone
 
  For recording the audio, it is best to hide the camera. It is recommended to use a mini microphone when shooting the video. It will provide a more natural sound to other types of microphones. Hopefully in the future cameras are able to capture 360 degree sound that will make the sound shift as the viewer turns one’s head.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. Keep an object in one camera
 
  It is important to keep the subject in one of the cameras or else it will be hard to stitch or edit the videos. Objects that are near the edge of the video should be static to make editing a lot easier.
@@ -83,9 +68,6 @@ thumbnail: https://thmb.techidaily.com/ea0b0402d1ea26fd039e2c69b50b2f77be9bc5a66
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -109,8 +91,22 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-master-your-mobile-communications-skype-and-zoom-on-android/"><u>[New] 2024 Approved Master Your Mobile Communications Skype & Zoom on Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-rhythm-reconstructor-bundle/"><u>[New] 2024 Approved Rhythm Reconstructor Bundle</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-cutting-edge-methods-for-capturing-audio-in-audacity/"><u>[New] Cutting-Edge Methods for Capturing Audio in Audacity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-adventure-videography-supplies-for-travelers/"><u>[New] In 2024, Adventure Videography Supplies for Travelers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-creating-captivating-visuals-with-diy-filming-methods/"><u>[New] In 2024, Creating Captivating Visuals with DIY Filming Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-intro-magic-crafting-irresistible-podcast-openers/"><u>[Updated] In 2024, Intro Magic Crafting Irresistible Podcast Openers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-windows-11-audio-recording-techniques/"><u>[Updated] In 2024, Windows 11 Audio Recording Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-xsplit-database-comprehensive-review-archives/"><u>[Updated] XSplit Database Comprehensive Review Archives</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/4-astuces-pour-corriger-les-valeurs-erronees-de-capacite-de-disque-dur-dans-windows-11/"><u>4 Astuces Pour Corriger Les Valeurs Erronées De Capacité De Disque Dur Dans Windows 11</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exclusive-scoop-on-the-ultimate-15-inch-notebooks-of-2024-authoritative-assessments-and-rankings/"><u>Exclusive Scoop on the Ultimate 15-Inch Notebooks of 2024: Authoritative Assessments & Rankings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-perfect-instruction-manual-for-wm6/"><u>In 2024, Perfect Instruction Manual for WM6</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovate-with-ease-learn-to-use-free-dall-e-3-via-microsoft-bing/"><u>Innovate With Ease: Learn to Use Free DALL-E 3 via Microsoft Bing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-streaming-microphones-the-ultimate-guide/"><u>Top-Rated Streaming Microphones : The Ultimate Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-to-resolve-guilty-gear-strive-pc-game-crashes/"><u>Troubleshooting Steps to Resolve Guilty Gear Strive PC Game Crashes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/zen-5-processors-amd-brings-next-gen-performance-to-laptops-and-desktop-computers/"><u>Zen 5 Processors: AMD Brings Next-Gen Performance to Laptops and Desktop Computers</u></a></li>
+</ul></div>
 

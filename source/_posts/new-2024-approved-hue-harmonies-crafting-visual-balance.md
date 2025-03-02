@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Hue Harmonies  Crafting Visual Balance\""
-date: 2025-02-06T16:29:38.699Z
-updated: 2025-02-11T18:00:58.335Z
+date: 2025-02-24T17:05:21.600Z
+updated: 2025-03-02T19:06:37.911Z
 tags: 
   - screen-recording
   - ai video
@@ -34,10 +34,6 @@ Color grading is the video editing process wherein grading (arranging) colors in
 In cinematography, color grading refers to the manipulation of film and video images to create consistent color tones throughout a motion picture. Many filmmakers use a color palette or preset as part of their overall production plan. These palettes represent artistic choices that provide the film with a cohesive general aspect. When film footage does not adequately match these color palettes, directors and colorists use digital color grading tools to change video colors as needed.
 
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
@@ -73,10 +69,6 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
@@ -86,10 +78,6 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -116,10 +104,6 @@ Here, there are two options to select: The Color correction. It offers different
 First, you need to select the specific video portion you want to change the color. Just click the scissor icon or what we call split tool. In this case, I split the 2nd video when I zoom in on the subject.
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * And I selected the end portion of the video. After that, choose the part of the video.
 
@@ -152,10 +136,6 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -223,20 +203,22 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-expert-picks-for-drone-pilots-vr-eyewear/"><u>[New] Expert Picks for Drone Pilots’ VR Eyewear</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ranked-the-best-5-iphones-for-effortless-podcast-access/"><u>[New] In 2024, Ranked The Best 5 iPhones for Effortless Podcast Access</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-smart-strategies-achieving-advertising-excellence/"><u>[New] In 2024, Smart Strategies Achieving Advertising Excellence</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-top-strategies-for-capturing-discords-real-time-broadcasts-for-2024/"><u>[New] Top Strategies for Capturing Discord's Real-Time Broadcasts for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-unlocking-tiktok-the-ultimate-guide-to-joining-lives-for-2024/"><u>[New] Unlocking TikTok The Ultimate Guide to Joining Lives for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-canvas-clearance-techniques-for-uncluttered-image-frames/"><u>[Updated] In 2024, Canvas Clearance Techniques for Uncluttered Image Frames</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-crafting-an-impactful-podcast-intro-video/"><u>[Updated] In 2024, Crafting an Impactful Podcast Intro Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-direct-download-vs-alternative-store-instagram-reels-efficiently/"><u>[Updated] In 2024, Direct Download vs Alternative Store Instagram Reels Efficiently</u></a></li>
-<li><a href="https://techidaily.com/1-step-by-step-guide-completely-erase-and-hide-user-accounts-in-linux/"><u>1. Step-by-Step Guide: Completely Erase and Hide User Accounts in Linux</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-connectivity-with-the-small-yet-solid-ourlink-u631-nano-sized-wifi-usb-adaptor/"><u>Experience Unmatched Connectivity with the Small Yet Solid Ourlink U631 Nano-Sized WiFi USB Adaptor</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/exploring-the-frontier-top-360-cameras-for-industry-pros-2023-for-2024/"><u>Exploring the Frontier Top 360° Cameras for Industry Pros, 2023 for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-do-creators-receive-payment-for-reviews/"><u>In 2024, Do Creators Receive Payment for Reviews?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-hexadrones-aviations-top-ten/"><u>In 2024, HexaDrones Aviation's Top Ten</u></a></li>
-<li><a href="https://win-popular.techidaily.com/plongez-dans-lunivers-polyvalent-des-systemes-de-fichiers-le-manuel-absolument-necessaire/"><u>Plongez Dans L'Univers Polyvalent Des Systèmes De Fichiers - Le Manuel Absolument Nécessaire!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-meizu-21-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Meizu 21 to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-androids-photography-hub-is-pickup-at-the-top-of-its-class/"><u>[New] 2024 Approved Android's Photography Hub Is PickUp at the Top of Its Class?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-basic-blueprint-for-seamless-speech-alteration-in-your-windows-sphere/"><u>[New] 2024 Approved The Basic Blueprint for Seamless Speech Alteration in Your Windows Sphere</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-guide-for-seamless-sending-of-large-videos-from-iphones/"><u>[New] Step by Step Guide for Seamless Sending of Large Videos From iPhones</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unparalleled-20-anime-series-themes/"><u>[New] Unparalleled 20 Anime Series Themes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-choosing-between-podcast-and-youtube-for-content-delivery-for-2024/"><u>[Updated] Choosing Between Podcast and YouTube for Content Delivery for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-essential-convertor-list-8-proven-sub-and-srt-solutions-for-2024/"><u>[Updated] Essential Convertor List 8 Proven Sub and SRT Solutions for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-navigating-the-metaverse-with-a-quick-avatar-design/"><u>[Updated] Navigating the Metaverse with a Quick Avatar Design</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-select-12-premium-camcorders-equipped-with-global-positioning-systems-for-2024/"><u>[Updated] Select 12 Premium Camcorders Equipped With Global Positioning Systems for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-thanks-for-watching-outro-templates-free-and-paid/"><u>[Updated] Thanks For Watching Outro Templates (Free & Paid)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-artists-pathway-journeying-from-hobbyist-to-professional-for-2024/"><u>[Updated] The Artist's Pathway Journeying From Hobbyist to Professional for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-6-hottest-4k-yt-to-mp3-tools-a-direct-comparison-for-2024/"><u>[Updated] Top 6 Hottest 4K YT To MP3 Tools A Direct Comparison for 2024</u></a></li>
+<li><a href="https://win-webster.techidaily.com/essential-guide-navigating-and-controlling-device-drivers-via-windows-control-panel-expert-tips-from-yl-computing/"><u>Essential Guide: Navigating and Controlling Device Drivers via Windows Control Panel - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-corrected-clandestine-miniature-video-absence/"><u>In 2024, Corrected Clandestine Miniature Video Absence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-monthly-earnings-from-youtube-as-a-content-creator/"><u>In 2024, Monthly Earnings From YouTube as a Content Creator</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/investigating-the-crop-code-in-imovie-for-2024/"><u>Investigating the Crop Code in iMovie for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1771134-9781461744719-maine-ghosts-and-legends-2nd-ed/"><u>Maine Ghosts and Legends (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 

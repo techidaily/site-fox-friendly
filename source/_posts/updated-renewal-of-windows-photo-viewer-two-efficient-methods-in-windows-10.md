@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Renewal of Windows Photo Viewer  Two Efficient Methods in Windows 10\""
-date: 2025-02-06T17:36:08.902Z
-updated: 2025-02-11T16:53:18.815Z
+date: 2025-02-27T18:37:27.092Z
+updated: 2025-03-02T16:08:03.213Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -74,10 +70,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
@@ -100,23 +92,11 @@ Here is the detailed guide –
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -145,22 +125,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unlock-creative-potential-image-curve-magic-in-ps/"><u>[New] 2024 Approved Unlock Creative Potential Image Curve Magic in PS</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-best-zero-cost-image-booster-online-plus-mobile-app/"><u>[New] Best Zero-Cost Image Booster Online + Mobile App</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-elevate-your-visual-storytelling-complimentary-basics-plus-paid-upgrade-lut-sets/"><u>[New] Elevate Your Visual Storytelling Complimentary Basics + Paid-Upgrade LUT Sets</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-professional-guide-to-recording-high-quality-audio/"><u>[New] Professional Guide to Recording High-Quality Audio</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-ultimate-movie-journey-for-inspiration-seekers/"><u>[New] The Ultimate Movie Journey for Inspiration Seekers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-a-compilation-of-the-best-10-image-sharing-sites/"><u>[Updated] 2024 Approved A Compilation of the Best 10 Image Sharing Sites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-rapid-accessibility-of-instagram-videos-and-stories/"><u>[Updated] 2024 Approved Rapid Accessibility of Instagram Videos and Stories</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-instant-access-windows-photos-view/"><u>[Updated] Instant Access Windows Photos View</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-step-by-step-guide-to-creating-a-peak-vr-environment/"><u>[Updated] Step-by-Step Guide to Creating a Peak VR Environment</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-stepwise-quietening-routine-for-mixes-for-2024/"><u>[Updated] Stepwise Quietening Routine for Mixes for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-zooming-into-success-livestream-mastery-with-zoom-and-youtube/"><u>2024 Approved Zooming Into Success Livestream Mastery with Zoom and YouTube</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/dolby-digital-woes-on-windows-11-heres-how-to-successfully-restart-and-fix-the-audio-driver-glitch/"><u>Dolby Digital Woes on Windows 11? Here's How to Successfully Restart and Fix the Audio Driver Glitch</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-your-iphones-sound-issues-clear-up-no-audio-and-improve-sound-quality-now/"><u>Fix Your iPhone's Sound Issues: Clear Up No Audio and Improve Sound Quality Now</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-realme-11-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Realme 11 5G to New Phone | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/step-by-step-approach-to-rectifying-greenscreen-issues/"><u>Step-by-Step Approach to Rectifying Greenscreen Issues</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-best-budget-friendly-high-fidelity-webm-players-for-2024/"><u>The Best Budget-Friendly, High-Fidelity WebM Players for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-perfect-photo-safe-mix-zero-cost-cloud-with-elite-paid-options-for-2024/"><u>The Perfect Photo Safe Mix Zero-Cost Cloud with Elite Paid Options for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-easy-steps-for-sending-files-directly-to-your-computer/"><u>[New] 2024 Approved Easy Steps for Sending Files Directly to Your Computer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-to-maximize-your-view-with-lg-27ud88-w-monitor/"><u>[New] 2024 Approved How to Maximize Your View with LG 27UD88-W Monitor</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-m1-dominance-video-editors-rejoice-in-seamless-experience/"><u>[New] 2024 Approved M1 Dominance Video Editors Rejoice in Seamless Experience</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-strategies-for-sustainable-brand-collaboration-with-youtubers/"><u>[New] Strategies for Sustainable Brand Collaboration with YouTubers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-crafting-consumer-contentment-masterful-unboxing-tactics/"><u>[Updated] 2024 Approved Crafting Consumer Contentment Masterful Unboxing Tactics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-the-secrets-to-impactful-patient-storytelling-in-video-for-2024/"><u>[Updated] Unveiling the Secrets to Impactful Patient Storytelling in Video for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streamlined-multitasking-in-safari-with-pip/"><u>2024 Approved Streamlined Multitasking in Safari with PIP</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/enhancing-your-listening-experience-the-essentials-of-recording-with-audacity-on-mac/"><u>Enhancing Your Listening Experience The Essentials of Recording with Audacity on Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-11-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset iPhone 11 to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mirari-childrens-alarm-clock-reviewed-a-must-have-device-to-start-your-childs-day-right/"><u>Mirari Children’s Alarm Clock Reviewed – A Must-Have Device to Start Your Child's Day Right!</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-cmd-prompt-lack-of-admin-privileges/"><u>Resolving Cmd Prompt Lack of Admin Privileges</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-that-clear-up-common-system-errors/"><u>Strategies that Clear Up Common System Errors</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnet-reviews-an-exceptional-laptop-with-stunning-visuals-and-impressive-adaptability-for-every-need/"><u>ZDNet Reviews an Exceptional Laptop with Stunning Visuals and Impressive Adaptability for Every Need</u></a></li>
 </ul></div>
 
